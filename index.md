@@ -1,4 +1,4 @@
-Under cherry-trees    
-Here along this way but I,    
-With tears.    
+The rains of summer join together.    
+in dusky night    
+are darkened . . .    
 
