@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-let us arrange these flowers    
-This autumn evening.    
+Carven gods long gone    
+mingling with bright small shells    
+Bearded, with bent canes    
 
