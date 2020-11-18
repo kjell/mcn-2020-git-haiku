@@ -1,4 +1,4 @@
-White cloud of mist    
-The fragrant blossoms remain.    
-A butterfly floats and balances    
+Lightning -    
+A frog jumps in -    
+A perfect evening!    
 
