@@ -1,4 +1,4 @@
-The rains of summer join together.    
-in your brief sweet waters    
-With tears.    
+Why so scrawny, cat?    
+these heavy snow-flakes settling    
+Goes plop! Watersplash!    
 
