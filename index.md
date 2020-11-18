@@ -1,4 +1,4 @@
-None is travelling    
-then cry all birds and fishes    
-Like our tendrilled life    
+Wake! The sky is light!    
+let us arrange these flowers    
+This autumn evening.    
 
