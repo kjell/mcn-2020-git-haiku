@@ -1,4 +1,4 @@
-Under cherry-trees    
-There's no sign that can foretell    
-Our hungry donkey    
+Mountain-rose petals    
+A frog jumps in -    
+But he's beautiful!    
 
