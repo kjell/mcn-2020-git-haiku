@@ -1,4 +1,4 @@
-In the sea-surf edge    
-Penetrating the very rock,    
-from the kiri tree.    
+Lightning -    
+tolling twilight bell; Temple    
+This autumn evening.    
 
