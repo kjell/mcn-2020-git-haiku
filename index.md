@@ -1,4 +1,4 @@
-An old pond    
-he starts to grind the rice,    
+Now that eyes of hawks    
+The fragrant blossoms remain.    
 Moon-lighted mountains!    
 
