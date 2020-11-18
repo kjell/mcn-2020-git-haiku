@@ -1,4 +1,4 @@
-Glorious the moon    
-then cry all birds and fishes    
-are darkened    
+Lightning -    
+to see the moon, whose solemn pace    
+A solitary bird    
 
