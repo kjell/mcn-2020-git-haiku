@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-captains swore grand conquest    
-Cold pale eyes pour tears    
+Temple bells die out.    
+to see the moon, whose solemn pace    
+Of warriors’ dreams.    
 
