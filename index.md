@@ -1,4 +1,4 @@
-Lightning -    
-A frog jumps in -    
-A perfect evening!    
+Now that eyes of hawks    
+I am off to bed - but ah!    
+Lilies on the rocks    
 
