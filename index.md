@@ -1,4 +1,4 @@
-Seek on high bare trails    
-loneliness? Just one leaf    
-Or backyard love?    
+The rains of summer join together.    
+in your brief sweet waters    
+With tears.    
 
