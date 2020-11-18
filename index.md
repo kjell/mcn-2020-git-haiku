@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-these heavy snow-flakes settling    
-Goes plop! Watersplash!    
+Bright red pepper-pod    
+There's no sign that can foretell    
+Of warriors’ dreams.    
 
