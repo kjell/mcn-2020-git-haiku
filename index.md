@@ -1,4 +1,4 @@
-Mountain-rose petals    
-quick unexpected frog    
-Our hungry donkey    
+Chirping of the quails    
+tolling twilight bell; Temple    
+Basho lines the moon    
 
