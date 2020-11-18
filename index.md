@@ -1,4 +1,4 @@
-Mountain-rose petals    
-A frog jumps in -    
-But he's beautiful!    
+Carven gods long gone    
+The fragrant blossoms remain.    
+Marks only midnight yet    
 
