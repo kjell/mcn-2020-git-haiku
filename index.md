@@ -1,4 +1,4 @@
-Spring is passing.    
-mingling with bright small shells    
-But he's beautiful!    
+None is travelling    
+then cry all birds and fishes    
+Like our tendrilled life    
 
