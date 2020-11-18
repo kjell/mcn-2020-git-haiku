@@ -1,4 +1,4 @@
-The summer grasses.    
-The lips feel cold.    
-Over the orchid    
+Poverty's child -    
+All that remains    
+cherry-blossoms . . .    
 
