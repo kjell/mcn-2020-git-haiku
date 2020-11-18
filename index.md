@@ -1,4 +1,4 @@
-Carven gods long gone    
-mingling with bright small shells    
-Bearded, with bent canes    
+An old pond    
+he starts to grind the rice,    
+Moon-lighted mountains!    
 
