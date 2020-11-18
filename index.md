@@ -1,4 +1,4 @@
-Glorious the moon    
-is quieted with creepers    
-Crying, whirling, white    
+White cloud of mist    
+oh voices of the wild ducks    
+Mogami River.    
 
