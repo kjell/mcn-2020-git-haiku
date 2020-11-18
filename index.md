@@ -1,4 +1,4 @@
-Spring is passing.    
-these heavy snow-flakes settling    
-Among the flowers    
+Seek on high bare trails    
+loneliness? Just one leaf    
+Or backyard love?    
 
