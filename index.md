@@ -1,4 +1,4 @@
-Temple bells die out.    
-to see the moon, whose solemn pace    
-Of warriors’ dreams.    
+For a lovely bowl    
+There's no sign that can foretell    
+are darkened . . .    
 
