@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-I am off to bed - but ah!    
-Lilies on the rocks    
+Won't you come and see    
+watching us pass, met death    
+These dark hands of life    
 
