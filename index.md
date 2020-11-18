@@ -1,4 +1,4 @@
-None is travelling    
-in dusky night    
-On the temple porch    
+Spring is passing.    
+mingling with bright small shells    
+But he's beautiful!    
 
