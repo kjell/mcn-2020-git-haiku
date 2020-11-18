@@ -1,4 +1,4 @@
-Chirping of the quails    
-tolling twilight bell; Temple    
-Basho lines the moon    
+Glorious the moon    
+then cry all birds and fishes    
+are darkened    
 
