@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-sky-reflecting violets    
-Of dark loneliness    
+Poverty's child -    
+falling, falling, falling now    
+This autumn evening.    
 
