@@ -1,4 +1,4 @@
-Lightning -    
-to see the moon, whose solemn pace    
-A solitary bird    
+Seas are wild tonight    
+even the crickets' singing    
+Cherry-blossoms    
 
