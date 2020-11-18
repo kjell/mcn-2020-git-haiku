@@ -1,4 +1,4 @@
-Too curious flower    
-spare my little buzzing friends    
-This autumn evening.    
+None is travelling    
+in dusky night    
+On the temple porch    
 
