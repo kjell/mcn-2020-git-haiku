@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-The fragrant blossoms remain.    
-Moon-lighted mountains!    
+Mountain-rose petals    
+quick unexpected frog    
+Our hungry donkey    
 
