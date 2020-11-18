@@ -1,4 +1,4 @@
-Carven gods long gone    
-The fragrant blossoms remain.    
-Marks only midnight yet    
+The summer grasses.    
+The lips feel cold.    
+Over the orchid    
 
