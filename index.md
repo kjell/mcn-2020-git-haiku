@@ -1,4 +1,4 @@
-White cloud of mist    
-oh voices of the wild ducks    
-Mogami River.    
+Too curious flower    
+spare my little buzzing friends    
+This autumn evening.    
 
