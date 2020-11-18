@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-let us to the road again    
-Murmuring Mogami    
+In the sea-surf edge    
+Penetrating the very rock,    
+from the kiri tree.    
 
