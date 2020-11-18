@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-these brilliant-hued hibiscus    
-From the kiri tree.    
+White cloud of mist    
+The fragrant blossoms remain.    
+A butterfly floats and balances    
 
