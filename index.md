@@ -1,4 +1,4 @@
-Swallow in the dusk    
-How swift it is    
-The Autumn wind.    
+Why so scrawny, cat?    
+to see the moon, whose solemn pace    
+The autumn dusk is here.    
 
