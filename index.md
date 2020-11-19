@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-to see the moon, whose solemn pace    
-The autumn dusk is here.    
+Clouds come from time to time -    
+above white    
+Our hungry donkey    
 
