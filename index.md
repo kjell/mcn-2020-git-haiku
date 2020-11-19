@@ -1,4 +1,4 @@
-Under cherry-trees    
-from cold streamlets for the sea    
-Tall grass their monument    
+The first day of the year:    
+and bring to men a chance to rest    
+Mogami River.    
 
