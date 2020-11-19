@@ -1,4 +1,4 @@
-Carven gods long gone    
-soup, the salad, fish and all    
-Cherry-blossoms    
+First white snow of fall    
+these brilliant-hued hibiscus    
+How soon it must die.    
 
