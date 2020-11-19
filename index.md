@@ -1,4 +1,4 @@
-Won't you come and see    
-dead leaves alone foregather    
-They meet, they mate    
+White cloud of mist    
+captains swore grand conquest    
+A water-jewel    
 
