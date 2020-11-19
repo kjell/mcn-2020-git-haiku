@@ -1,4 +1,4 @@
-This snowy morning    
-in your brief sweet waters    
-Contemptuous of frost    
+The summer grasses.    
+above white    
+Mogami River.    
 
