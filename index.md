@@ -1,4 +1,4 @@
-Won't you come and see    
-A frog jumps in -    
-Morning-glory gazing    
+Must springtime fade?    
+visit the ancestral grave    
+Ueno? Asakura?    
 
