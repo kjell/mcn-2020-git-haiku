@@ -1,4 +1,4 @@
-Silent the old town    
-I am off to bed - but ah!    
-Mountain-top jewels    
+Clouds come from time to time -    
+Here along this way but I,    
+How soon it must die.    
 
