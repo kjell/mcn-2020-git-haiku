@@ -1,4 +1,4 @@
-Such utter silence!    
-let us to the road again    
-Murmuring Mogami    
+Ballet in the air    
+chirping, keeps the autumn gay    
+The autumn dusk is here.    
 
