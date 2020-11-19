@@ -1,4 +1,4 @@
-The river gathering may rains    
-fell in silent dawn, spilling    
-are darkened . . .    
+Mountain-rose petals    
+let us to the road again    
+Ueno? Asakura?    
 
