@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-perfumes her wings by floating    
-and gazes at the moon.    
+Won't you come and see    
+There's no sign that can foretell    
+It’s the Doll’s Festival.    
 
