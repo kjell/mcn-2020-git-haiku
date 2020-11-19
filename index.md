@@ -1,4 +1,4 @@
-The rains of summer join together.    
-in dusky night    
-Crying, whirling, white    
+Under cherry-trees    
+oh voices of the wild ducks    
+Darting dragon-fly!    
 
