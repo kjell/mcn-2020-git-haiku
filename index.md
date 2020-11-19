@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-then cry all birds and fishes    
-Among the flowers    
+Oh, tranquility!    
+is quieted with creepers    
+Companion butterfly!    
 
