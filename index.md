@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-therefore our thanks dark clouds    
-Lilies on the rocks    
+Chirping of the quails    
+thoughts come - and there is loneliness;    
+Marks only midnight yet    
 
