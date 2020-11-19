@@ -1,4 +1,4 @@
-Mountain-rose petals    
-let us to the road again    
-Ueno? Asakura?    
+Glorious the moon    
+visit the ancestral grave    
+Mogami River.    
 
