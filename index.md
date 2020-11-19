@@ -1,4 +1,4 @@
-Lady butterfly    
-let us arrange these flowers    
-A cicada’s voice.    
+Swallow in the dusk    
+it needs but shiny wings and look    
+Lilies on the rocks    
 
