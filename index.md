@@ -1,4 +1,4 @@
-None is travelling    
-The lips feel cold.    
-the autumn dusk is here.    
+Lady butterfly    
+and bring to men a chance to rest    
+Bearded, with bent canes    
 
