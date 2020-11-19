@@ -1,4 +1,4 @@
-The summer grasses.    
-and bring to men a chance to rest    
-are darkened    
+Oh, tranquility!    
+A frog jumps in -    
+How soon it must die.    
 
