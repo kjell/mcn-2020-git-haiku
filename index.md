@@ -1,4 +1,4 @@
-Lady butterfly    
-and bring to men a chance to rest    
-Bearded, with bent canes    
+Swallow in the dusk    
+How swift it is    
+The Autumn wind.    
 
