@@ -1,4 +1,4 @@
-Too curious flower    
-thoughts come - and there is loneliness;    
-from looking at the moon.    
+White cloud of mist    
+starving for fat fish or mice    
+are darkened . . .    
 
