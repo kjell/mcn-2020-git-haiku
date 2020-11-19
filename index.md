@@ -1,4 +1,4 @@
-Oh, tranquility!    
-just enough to bend the leaves    
-from looking at the moon.    
+Now in sad autumn    
+stretching over Sado Island    
+Basho lines the moon    
 
