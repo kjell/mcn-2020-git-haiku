@@ -1,4 +1,4 @@
-The summer grasses.    
-above white    
-Mogami River.    
+Dawn-shining mountains    
+thoughts come - and there is loneliness;    
+Among the flowers    
 
