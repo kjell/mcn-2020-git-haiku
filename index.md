@@ -1,4 +1,4 @@
-Oh, tranquility!    
-Is also changed to another    
-are darkened . . .    
+Black cloudbank broken    
+then cry all birds and fishes    
+Mogami River.    
 
