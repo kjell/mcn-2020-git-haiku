@@ -1,4 +1,4 @@
-In the twilight rain    
-scatters in the night; Now see    
-How soon it must die.    
+This snowy morning    
+in your brief sweet waters    
+Contemptuous of frost    
 
