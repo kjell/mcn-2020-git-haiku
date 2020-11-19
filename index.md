@@ -1,4 +1,4 @@
-Swallow in the dusk    
-it needs but shiny wings and look    
-Lilies on the rocks    
+See: surviving suns    
+captains swore grand conquest    
+Marks only midnight yet    
 
