@@ -1,4 +1,4 @@
-Temple bells die out.    
-thoughts come - and there is loneliness;    
-Cherry-blossoms    
+In the twilight rain    
+scatters in the night; Now see    
+How soon it must die.    
 
