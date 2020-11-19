@@ -1,4 +1,4 @@
 In the cicada's cry    
-it needs but shiny wings and look    
-Silent clouds of stars    
+let us arrange these flowers    
+Over the orchid    
 
