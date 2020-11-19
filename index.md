@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-from cold streamlets for the sea    
-Cherry-blossoms    
+Clouds come from time to time -    
+captains swore grand conquest    
+Of faded daffodils    
 
