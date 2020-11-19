@@ -1,4 +1,4 @@
-Carven gods long gone    
-Heron's cry    
-A little woven cape    
+None is travelling    
+The lips feel cold.    
+the autumn dusk is here.    
 
