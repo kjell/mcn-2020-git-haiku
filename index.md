@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-Here along this way but I,    
-How soon it must die.    
+Under cherry-trees    
+The birds cry, and the fishes’ eyes are     
+It’s the Doll’s Festival.    
 
