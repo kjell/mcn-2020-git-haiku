@@ -1,4 +1,4 @@
-Cold first winter rain    
-let us to the road again    
-Of faded daffodils    
+The summer grasses.    
+here at your flowering grave    
+Goes plop! Watersplash!    
 
