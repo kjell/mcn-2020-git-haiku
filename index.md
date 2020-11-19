@@ -1,4 +1,4 @@
-Under cherry-trees    
-oh voices of the wild ducks    
-Darting dragon-fly!    
+Oh, tranquility!    
+The birds cry, and the fishes’ eyes are     
+Silent clouds of stars    
 
