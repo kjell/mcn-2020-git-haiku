@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-it needs but shiny wings and look    
-Of faded daffodils    
+In the cicada's cry    
+The lips feel cold.    
+With tears.    
 
