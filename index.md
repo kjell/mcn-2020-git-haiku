@@ -1,4 +1,4 @@
-In the cicada's cry    
-let us arrange these flowers    
-Over the orchid    
+Dawn-shining mountains    
+scatters in the night; Now see    
+Tall grass their monument    
 
