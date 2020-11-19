@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-The lips feel cold.    
-from looking at the moon.    
+Cloud of cherry-bloom    
+perfumes her wings by floating    
+Morning-glory gazing    
 
