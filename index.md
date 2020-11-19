@@ -1,4 +1,4 @@
-Seas are wild tonight    
-even the crickets' singing    
-Cherry-blossoms    
+An old pond    
+and bring to men a chance to rest    
+But he's beautiful!    
 
