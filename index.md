@@ -1,4 +1,4 @@
-Ballet in the air    
-chirping, keeps the autumn gay    
-The autumn dusk is here.    
+The first day of the year:    
+here at your flowering grave    
+from looking at the moon.    
 
