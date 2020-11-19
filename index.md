@@ -1,4 +1,4 @@
-Seek on high bare trails    
-who spends his little breakfast    
-Crying, whirling, white    
+Such utter silence!    
+All that remains    
+A water-jewel    
 
