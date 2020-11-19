@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-perfumes her wings by floating    
+Won't you come and see    
+A frog jumps in -    
 Morning-glory gazing    
 
