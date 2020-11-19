@@ -1,4 +1,4 @@
-Here, where a thousand    
-The birds cry, and the fishes’ eyes are     
-from the kiri tree.    
+Now in sad autumn    
+even the crickets' singing    
+With tears.    
 
