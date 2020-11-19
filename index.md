@@ -1,4 +1,4 @@
-In the cicada's cry    
+Bright red pepper-pod    
 The lips feel cold.    
-With tears.    
+from looking at the moon.    
 
