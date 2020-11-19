@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-is quieted with creepers    
-Seasoned with petals    
+Temple bells die out.    
+starving for fat fish or mice    
+Our hungry donkey    
 
