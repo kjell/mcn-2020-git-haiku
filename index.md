@@ -1,4 +1,4 @@
-Glorious the moon    
-visit the ancestral grave    
-Mogami River.    
+In the cicada's cry    
+that black crow I hate so much    
+A water-jewel    
 
