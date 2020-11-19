@@ -1,4 +1,4 @@
-An old pond    
-and bring to men a chance to rest    
-But he's beautiful!    
+Bright red pepper-pod    
+in your brief sweet waters    
+Like our tendrilled life    
 
