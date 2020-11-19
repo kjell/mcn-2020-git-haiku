@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-thoughts come - and there is loneliness;    
-Among the flowers    
+Nine times arising    
+above white    
+Mountain-top jewels    
 
