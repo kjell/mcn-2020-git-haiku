@@ -1,4 +1,4 @@
-First white snow of fall    
-There's no sign that can foretell    
-Companion butterfly!    
+Black cloudbank broken    
+and bring to men a chance to rest    
+With tears.    
 
