@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-in your brief sweet waters    
-Like our tendrilled life    
+Black cloudbank broken    
+The fragrant blossoms remain.    
+Come to rest our necks    
 
