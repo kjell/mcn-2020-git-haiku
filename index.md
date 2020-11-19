@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-Penetrating the very rock,    
-Muffled by hot rocks    
+Now that eyes of hawks    
+from cold streamlets for the sea    
+Cherry-blossoms    
 
