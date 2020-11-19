@@ -1,4 +1,4 @@
-Now in sad autumn    
-even the crickets' singing    
-With tears.    
+Oh, tranquility!    
+dead leaves alone foregather    
+A water-jewel    
 
