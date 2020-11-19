@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-here at your flowering grave    
-A lovely sunset    
+Wake! The sky is light!    
+even the crickets' singing    
+Over the orchid    
 
