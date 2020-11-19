@@ -1,4 +1,4 @@
-In the cicada's cry    
-that black crow I hate so much    
-A water-jewel    
+Mountain-rose petals    
+in dusky night    
+A cicada’s voice.    
 
