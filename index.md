@@ -1,4 +1,4 @@
-Oh, tranquility!    
-dead leaves alone foregather    
-A water-jewel    
+A owner of the old thatched hut    
+these brilliant-hued hibiscus    
+A cicada’s voice.    
 
