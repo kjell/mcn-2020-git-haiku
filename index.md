@@ -1,4 +1,4 @@
-Too curious flower    
-perfumes her wings by floating    
-Crying, whirling, white    
+Dry cheerful cricket    
+There's no sign that can foretell    
+A little woven cape    
 
