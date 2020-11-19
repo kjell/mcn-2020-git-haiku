@@ -1,4 +1,4 @@
-Black cloudbank broken    
-then cry all birds and fishes    
-Mogami River.    
+The river gathering may rains    
+fell in silent dawn, spilling    
+are darkened . . .    
 
