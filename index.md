@@ -1,4 +1,4 @@
-White cloud of mist    
-captains swore grand conquest    
-A water-jewel    
+Bright red pepper-pod    
+is quieted with creepers    
+Seasoned with petals    
 
