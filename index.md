@@ -1,4 +1,4 @@
-Oh, tranquility!    
-spare my little buzzing friends    
-Goes plop! Watersplash!    
+Temple bells die out.    
+There's no sign that can foretell    
+Among the flowers    
 
