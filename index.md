@@ -1,4 +1,4 @@
-Under cherry-trees    
-The birds cry, and the fishes’ eyes are     
-It’s the Doll’s Festival.    
+The summer grasses.    
+and bring to men a chance to rest    
+are darkened    
 
