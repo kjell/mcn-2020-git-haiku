@@ -1,4 +1,4 @@
-See: surviving suns    
-captains swore grand conquest    
-Or backyard love?    
+In the cicada's cry    
+it needs but shiny wings and look    
+Silent clouds of stars    
 
