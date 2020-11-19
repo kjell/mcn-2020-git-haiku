@@ -1,4 +1,4 @@
-Oh, tranquility!    
-The birds cry, and the fishes’ eyes are     
-Silent clouds of stars    
+Cold first winter rain    
+let us to the road again    
+Of faded daffodils    
 
