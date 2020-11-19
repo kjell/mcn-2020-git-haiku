@@ -1,4 +1,4 @@
-White cloud of mist    
-as I take my darkening path    
-With tears.    
+Too curious flower    
+perfumes her wings by floating    
+Crying, whirling, white    
 
