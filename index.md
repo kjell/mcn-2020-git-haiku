@@ -1,4 +1,4 @@
-Black cloudbank broken    
-and bring to men a chance to rest    
-With tears.    
+Carven gods long gone    
+Penetrating the very rock,    
+How soon it must die.    
 
