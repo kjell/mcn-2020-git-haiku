@@ -1,4 +1,4 @@
-Carven gods long gone    
-Penetrating the very rock,    
-How soon it must die.    
+The first day of the year:    
+mingling with bright small shells    
+Over the orchid    
 
