@@ -1,4 +1,4 @@
-The first day of the year:    
-and bring to men a chance to rest    
-Mogami River.    
+Poverty's child -    
+quick unexpected frog    
+But he's beautiful!    
 
