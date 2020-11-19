@@ -1,4 +1,4 @@
-Won't you come and see    
-There's no sign that can foretell    
-It’s the Doll’s Festival.    
+Clouds come from time to time -    
+therefore our thanks dark clouds    
+Lilies on the rocks    
 
