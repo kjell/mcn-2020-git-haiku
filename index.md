@@ -1,4 +1,4 @@
-The first day of the year:    
-here at your flowering grave    
-from looking at the moon.    
+Under cherry-trees    
+from cold streamlets for the sea    
+Tall grass their monument    
 
