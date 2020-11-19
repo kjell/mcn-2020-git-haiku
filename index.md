@@ -1,4 +1,4 @@
-None is travelling    
-in dusky night    
-Two white butterflies?    
+See: surviving suns    
+All that remains    
+the autumn dusk is here.    
 
