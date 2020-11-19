@@ -1,4 +1,4 @@
-See: surviving suns    
-All that remains    
-the autumn dusk is here.    
+The first day of the year:    
+quick unexpected frog    
+Of warriors’ dreams.    
 
