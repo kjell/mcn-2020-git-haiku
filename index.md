@@ -1,4 +1,4 @@
-Won't you come and see    
-fell in silent dawn, spilling    
-Two white butterflies?    
+Black cloudbank broken    
+these brilliant-hued hibiscus    
+Splash!    
 
