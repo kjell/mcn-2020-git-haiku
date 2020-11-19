@@ -1,4 +1,4 @@
-Black cloudbank broken    
-The fragrant blossoms remain.    
-Come to rest our necks    
+For a lovely bowl    
+captains swore grand conquest    
+Of faded daffodils    
 
