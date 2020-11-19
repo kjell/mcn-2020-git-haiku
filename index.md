@@ -1,4 +1,4 @@
-Temple bells die out.    
-There's no sign that can foretell    
-Among the flowers    
+Now the swinging bridge    
+Penetrating the very rock,    
+From the kiri tree.    
 
