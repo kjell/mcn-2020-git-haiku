@@ -1,4 +1,4 @@
-Oh, tranquility!    
-above white    
-Since there is no rice    
+Dewdrop, let me cleanse    
+it needs but shiny wings and look    
+Of faded daffodils    
 
