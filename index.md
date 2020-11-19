@@ -1,4 +1,4 @@
-Now in sad autumn    
-stretching over Sado Island    
-Basho lines the moon    
+Temple bells die out.    
+thoughts come - and there is loneliness;    
+Cherry-blossoms    
 
