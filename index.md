@@ -1,4 +1,4 @@
 Such utter silence!    
-All that remains    
-A water-jewel    
+let us to the road again    
+Murmuring Mogami    
 
