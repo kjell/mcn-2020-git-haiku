@@ -1,4 +1,4 @@
-Under cherry-trees    
-The birds cry, and the fishes’ eyes are     
-from the kiri tree.    
+Now in sad autumn    
+chirping, keeps the autumn gay    
+and gazes at the moon.    
 
