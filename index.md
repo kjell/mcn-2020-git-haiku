@@ -1,4 +1,4 @@
-None is travelling    
-in dusky night    
-Moon-lighted mountains!    
+Glorious the moon    
+sky-reflecting violets    
+Murmuring Mogami    
 
