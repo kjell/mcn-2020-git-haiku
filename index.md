@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-let us to the road again    
-This autumn evening.    
+Seek on high bare trails    
+The birds cry, and the fishes’ eyes are     
+The autumn dusk is here.    
 
