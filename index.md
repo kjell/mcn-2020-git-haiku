@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-let us arrange these flowers    
-are darkened    
+Clouds come from time to time -    
+above white    
+Goes plop! Watersplash!    
 
