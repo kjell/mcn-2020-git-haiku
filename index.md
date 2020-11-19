@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-captains swore grand conquest    
-Of faded daffodils    
+Won't you come and see    
+Line that won't be deleted    
+Of dark loneliness    
 
