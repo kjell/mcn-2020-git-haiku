@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-There's no sign that can foretell    
-A little woven cape    
+Cloud of cherry-bloom    
+here at your flowering grave    
+A lovely sunset    
 
