@@ -1,4 +1,4 @@
 Oh, tranquility!    
-A frog jumps in -    
-How soon it must die.    
+Is also changed to another    
+are darkened . . .    
 
