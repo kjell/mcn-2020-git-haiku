@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-scatters in the night; Now see    
-Tall grass their monument    
+White cloud of mist    
+quick unexpected frog    
+are darkened    
 
