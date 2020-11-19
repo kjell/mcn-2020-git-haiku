@@ -1,4 +1,4 @@
-Must springtime fade?    
-visit the ancestral grave    
-Ueno? Asakura?    
+An old pond    
+let us to the road again    
+Waterfall music    
 
