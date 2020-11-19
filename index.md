@@ -1,4 +1,4 @@
-For a lovely bowl    
-captains swore grand conquest    
-Of faded daffodils    
+Dawn-shining mountains    
+Penetrating the very rock,    
+Muffled by hot rocks    
 
