@@ -1,4 +1,4 @@
-Won't you come and see    
-Line that won't be deleted    
-Of dark loneliness    
+First white snow of fall    
+There's no sign that can foretell    
+Companion butterfly!    
 
