@@ -1,4 +1,4 @@
-The summer grasses.    
-here at your flowering grave    
-Goes plop! Watersplash!    
+See: surviving suns    
+captains swore grand conquest    
+Or backyard love?    
 
