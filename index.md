@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-even the crickets' singing    
-Over the orchid    
+Poverty's child -    
+as I take my darkening path    
+the autumn dusk is here.    
 
