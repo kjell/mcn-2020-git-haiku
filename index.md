@@ -1,4 +1,4 @@
-Temple bells die out.    
-starving for fat fish or mice    
-Our hungry donkey    
+Too curious flower    
+thoughts come - and there is loneliness;    
+from looking at the moon.    
 
