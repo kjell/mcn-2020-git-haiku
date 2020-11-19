@@ -1,4 +1,4 @@
-In the cicada's cry    
+Spring is passing.    
 just enough to bend the leaves    
-Lilies on the rocks    
+Like our tendrilled life    
 
