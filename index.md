@@ -1,4 +1,4 @@
-Nine times arising    
-above white    
-Mountain-top jewels    
+Dry cheerful cricket    
+in dusky night    
+Morning-glory gazing    
 
