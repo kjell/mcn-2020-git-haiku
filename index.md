@@ -1,4 +1,4 @@
-Oh, tranquility!    
-is quieted with creepers    
-Companion butterfly!    
+Lady butterfly    
+let us arrange these flowers    
+A cicada’s voice.    
 
