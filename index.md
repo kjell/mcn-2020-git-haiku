@@ -1,4 +1,4 @@
-Mountain-rose petals    
-in dusky night    
-A cicada’s voice.    
+Oh, tranquility!    
+just enough to bend the leaves    
+from looking at the moon.    
 
