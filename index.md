@@ -1,4 +1,4 @@
-Temple bells die out.    
-from cold streamlets for the sea    
-How soon it must die.    
+The first day of the year:    
+Heron's cry    
+Mountain-top jewels    
 
