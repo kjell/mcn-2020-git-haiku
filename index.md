@@ -1,4 +1,4 @@
-Will we meet again    
-quick unexpected frog    
-The Autumn wind.    
+Bright red pepper-pod    
+let us arrange these flowers    
+are darkened    
 
