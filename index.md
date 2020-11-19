@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-in dusky night    
-Morning-glory gazing    
+Oh, tranquility!    
+above white    
+Since there is no rice    
 
