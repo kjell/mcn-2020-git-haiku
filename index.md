@@ -1,4 +1,4 @@
-The sea darkening    
-these heavy snow-flakes settling    
-Bush-clover petals    
+Silent the old town    
+I am off to bed - but ah!    
+Mountain-top jewels    
 
