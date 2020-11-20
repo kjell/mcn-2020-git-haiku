@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-How swift it is    
-With tears.    
+None is travelling    
+and bring to men a chance to rest    
+A perfect evening!    
 
