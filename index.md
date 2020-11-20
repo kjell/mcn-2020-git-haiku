@@ -1,4 +1,4 @@
-None is travelling    
-falling, falling, falling now    
-Mountain-top jewels    
+In the cicada's cry    
+perfumes her wings by floating    
+Lilies on the rocks    
 
