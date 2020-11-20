@@ -1,4 +1,4 @@
-Poverty's child -    
-The lips feel cold.    
-Lilies on the rocks    
+The first day of the year:    
+chirping, keeps the autumn gay    
+the autumn dusk is here.    
 
