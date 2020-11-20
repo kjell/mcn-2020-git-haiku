@@ -1,4 +1,4 @@
-If there were fragrance    
-in dusky night    
-Of dark loneliness    
+Temple bells die out.    
+it needs but shiny wings and look    
+Companion butterfly!    
 
