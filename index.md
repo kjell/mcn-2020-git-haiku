@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-these heavy snow-flakes settling    
-Tall grass their monument    
+Here, where a thousand    
+in dusky night    
+from looking at the moon.    
 
