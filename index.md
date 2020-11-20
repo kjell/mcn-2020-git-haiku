@@ -1,4 +1,4 @@
-Nine times arising    
-these heavy snow-flakes settling    
-from looking at the moon.    
+None is travelling    
+stretching over Sado Island    
+the autumn dusk is here.    
 
