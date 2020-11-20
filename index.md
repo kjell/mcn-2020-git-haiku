@@ -1,4 +1,4 @@
-Here, where a thousand    
-in dusky night    
-from looking at the moon.    
+Dewdrop, let me cleanse    
+quick unexpected frog    
+It’s the Doll’s Festival.    
 
