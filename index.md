@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-How swift it is    
-Since there is no rice    
+None is travelling    
+All that remains    
+Among the flowers    
 
