@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-thoughts come - and there is loneliness;    
-the autumn dusk is here.    
+Here, where a thousand    
+sky-reflecting violets    
+Two white butterflies?    
 
