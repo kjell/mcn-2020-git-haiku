@@ -1,4 +1,4 @@
-Ah me! I am one    
-loneliness? Just one leaf    
-This autumn evening.    
+Clouds come from time to time -    
+How swift it is    
+With tears.    
 
