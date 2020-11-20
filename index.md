@@ -1,4 +1,4 @@
-The sea darkening    
-A frog jumps in -    
-A water-jewel    
+Oh, tranquility!    
+Here along this way but I,    
+Waterfall music    
 
