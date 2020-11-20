@@ -1,4 +1,4 @@
-None is travelling    
-stretching over Sado Island    
-the autumn dusk is here.    
+Nine times arising    
+Heron's cry    
+A cicada’s voice.    
 
