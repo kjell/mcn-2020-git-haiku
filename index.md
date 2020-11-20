@@ -1,4 +1,4 @@
-The sea darkening    
-thoughts come - and there is loneliness;    
-Cherry-blossoms    
+Will we meet again    
+twin butterflies until, twice white    
+This autumn evening.    
 
