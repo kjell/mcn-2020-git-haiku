@@ -1,4 +1,4 @@
-No oil to read by    
-oh voices of the wild ducks    
-How soon it must die.    
+Such utter silence!    
+falling, falling, falling now    
+Since there is no rice    
 
