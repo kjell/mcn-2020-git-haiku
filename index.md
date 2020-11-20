@@ -1,4 +1,4 @@
 No oil to read by    
-stretching over Sado Island    
-Of faded daffodils    
+these brilliant-hued hibiscus    
+Moon-lighted mountains!    
 
