@@ -1,4 +1,4 @@
-Temple bells die out.    
-falling, falling, falling now    
-My moonlit pillow    
+In the sea-surf edge    
+the scent of flowers floating    
+Cherry-blossoms    
 
