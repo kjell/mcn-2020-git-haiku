@@ -1,4 +1,4 @@
-In the twilight rain    
-Is also changed to another    
-From the kiri tree.    
+Ballet in the air    
+visit the ancestral grave    
+This autumn evening.    
 
