@@ -1,4 +1,4 @@
-Mountain-rose petals    
-these brilliant-hued hibiscus    
-From the kiri tree.    
+Black cloudbank broken    
+Is also changed to another    
+Cold pale eyes pour tears    
 
