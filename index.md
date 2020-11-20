@@ -1,4 +1,4 @@
-Camellia-petal    
-that black crow I hate so much    
-Waterfall music    
+An old pond    
+falling, falling, falling now    
+But he's beautiful!    
 
