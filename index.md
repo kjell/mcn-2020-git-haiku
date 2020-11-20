@@ -1,4 +1,4 @@
-The summer grasses.    
-Line that won't be deleted    
-Of dark loneliness    
+The rains of summer join together.    
+spare my little buzzing friends    
+and gazes at the moon.    
 
