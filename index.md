@@ -1,4 +1,4 @@
-The summer grasses.    
-captains swore grand conquest    
-Basho lines the moon    
+No oil to read by    
+oh voices of the wild ducks    
+How soon it must die.    
 
