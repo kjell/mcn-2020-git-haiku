@@ -1,4 +1,4 @@
-Nine times arising    
-Heron's cry    
-A cicada’s voice.    
+Will we meet again    
+There's no sign that can foretell    
+Waterfall music    
 
