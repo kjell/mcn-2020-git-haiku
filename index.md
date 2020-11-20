@@ -1,4 +1,4 @@
-Glorious the moon    
-visit the ancestral grave    
-Stabs the darkness    
+Here, where a thousand    
+poor monkey, you too could use    
+are darkened . . .    
 
