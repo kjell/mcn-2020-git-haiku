@@ -1,4 +1,4 @@
-Oh, tranquility!    
-Here along this way but I,    
-Waterfall music    
+The first day of the year:    
+All that remains    
+A butterfly floats and balances    
 
