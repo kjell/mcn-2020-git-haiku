@@ -1,4 +1,4 @@
-The first day of the year:    
-and bring to men a chance to rest    
-Two white butterflies?    
+An old pond    
+All that remains    
+Like our tendrilled life    
 
