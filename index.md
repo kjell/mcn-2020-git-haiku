@@ -1,4 +1,4 @@
-The first day of the year:    
-therefore our thanks dark clouds    
-From the kiri tree.    
+Ah me! I am one    
+loneliness? Just one leaf    
+This autumn evening.    
 
