@@ -1,4 +1,4 @@
-White cloud of mist    
-How swift it is    
-A little woven cape    
+Under cherry-trees    
+perfumes her wings by floating    
+A solitary bird    
 
