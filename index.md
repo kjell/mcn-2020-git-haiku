@@ -1,4 +1,4 @@
-In the cicada's cry    
-perfumes her wings by floating    
-Lilies on the rocks    
+Clouds come from time to time -    
+There's no sign that can foretell    
+Goes plop! Watersplash!    
 
