@@ -1,4 +1,4 @@
-The first day of the year:    
-All that remains    
-A butterfly floats and balances    
+A owner of the old thatched hut    
+just enough to bend the leaves    
+Mogami River.    
 
