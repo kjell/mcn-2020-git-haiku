@@ -1,4 +1,4 @@
-The first day of the year:    
-chirping, keeps the autumn gay    
+Dry cheerful cricket    
+thoughts come - and there is loneliness;    
 the autumn dusk is here.    
 
