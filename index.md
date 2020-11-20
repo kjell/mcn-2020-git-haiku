@@ -1,4 +1,4 @@
-Spring is passing.    
-poor monkey, you too could use    
-Silent clouds of stars    
+White cloud of mist    
+There's no sign that can foretell    
+A little woven cape    
 
