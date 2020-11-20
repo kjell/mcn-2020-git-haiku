@@ -1,4 +1,4 @@
-In the sea-surf edge    
-the scent of flowers floating    
-Cherry-blossoms    
+Nine times arising    
+these heavy snow-flakes settling    
+from looking at the moon.    
 
