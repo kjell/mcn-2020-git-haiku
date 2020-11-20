@@ -1,4 +1,4 @@
-Won't you come and see    
+Glorious the moon    
 visit the ancestral grave    
-Waterfall music    
+Stabs the darkness    
 
