@@ -1,4 +1,4 @@
-Won't you come and see    
-April's air stirs in willow-leaves    
-A cicada’s voice.    
+Cold first winter rain    
+Here along this way but I,    
+Of warriors’ dreams.    
 
