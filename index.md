@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-All that remains    
-Over the orchid    
+An old pond    
+perfumes her wings by floating    
+Marks only midnight yet    
 
