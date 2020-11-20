@@ -1,4 +1,4 @@
-The summer grasses.    
-The lips feel cold.    
-Our hungry donkey    
+White cloud of mist    
+as I take my darkening path    
+Morning-glory gazing    
 
