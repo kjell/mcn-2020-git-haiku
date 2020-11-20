@@ -1,4 +1,4 @@
-Won't you come and see    
-Heron's cry    
-Murmuring Mogami    
+Clouds come from time to time -    
+All that remains    
+Over the orchid    
 
