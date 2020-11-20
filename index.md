@@ -1,4 +1,4 @@
-Oh, tranquility!    
-let us to the road again    
-With tears.    
+Clouds come from time to time -    
+these heavy snow-flakes settling    
+Tall grass their monument    
 
