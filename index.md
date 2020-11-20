@@ -1,4 +1,4 @@
-White cloud of mist    
-fell in silent dawn, spilling    
-Ueno? Asakura?    
+Temple bells die out.    
+falling, falling, falling now    
+It’s the Doll’s Festival.    
 
