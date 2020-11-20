@@ -1,4 +1,4 @@
-None is travelling    
-scatters in the night; Now see    
-Seasoned with petals    
+Mountain-rose petals    
+How swift it is    
+Darting dragon-fly!    
 
