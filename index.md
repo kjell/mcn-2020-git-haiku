@@ -1,4 +1,4 @@
-Swallow in the dusk    
-Here along this way but I,    
-This autumn evening.    
+The river gathering may rains    
+There's no sign that can foretell    
+A perfect evening!    
 
