@@ -1,4 +1,4 @@
-Will we meet again    
+This is the new line    
 There's no sign that can foretell    
-are darkened . . .    
+Murmuring Mogami    
 
