@@ -1,4 +1,4 @@
-Must springtime fade?    
-There's no sign that can foretell    
-Crying, whirling, white    
+An old pond    
+scatters in the night; Now see    
+from looking at the moon.    
 
