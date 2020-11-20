@@ -1,4 +1,4 @@
-Under cherry-trees    
-perfumes her wings by floating    
-A solitary bird    
+Lightning -    
+There's no sign that can foretell    
+A cicada’s voice.    
 
