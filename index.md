@@ -1,4 +1,4 @@
-No oil to read by    
-starving for fat fish or mice    
-A perfect evening!    
+Nine times arising    
+is quieted with creepers    
+Murmuring Mogami    
 
