@@ -1,4 +1,4 @@
-Lightning -    
-A frog jumps in -    
-A lovely sunset    
+If there were fragrance    
+perfumes her wings by floating    
+are darkened    
 
