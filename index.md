@@ -1,4 +1,4 @@
-The first day of the year:    
-falling, falling, falling now    
-With tears.    
+An old pond    
+it needs but shiny wings and look    
+Silent clouds of stars    
 
