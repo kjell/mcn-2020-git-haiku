@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-There's no sign that can foretell    
-Goes plop! Watersplash!    
+The sea darkening    
+loneliness? Just one leaf    
+Or backyard love?    
 
