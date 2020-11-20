@@ -1,4 +1,4 @@
-None is travelling    
-A frog jumps in -    
-The Autumn wind.    
+Old dark sleepy pool    
+and bring to men a chance to rest    
+Murmuring Mogami    
 
