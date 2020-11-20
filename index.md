@@ -1,4 +1,4 @@
-Now in sad autumn    
-starving for fat fish or mice    
-Darting dragon-fly!    
+Temple bells die out.    
+falling, falling, falling now    
+My moonlit pillow    
 
