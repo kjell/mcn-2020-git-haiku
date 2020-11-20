@@ -1,4 +1,4 @@
-Black cloudbank broken    
-Is also changed to another    
-Cold pale eyes pour tears    
+Temple bells die out.    
+the scent of flowers floating    
+A lovely sunset    
 
