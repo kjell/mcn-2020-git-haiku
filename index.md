@@ -1,4 +1,4 @@
-If there were fragrance    
-perfumes her wings by floating    
-are darkened    
+The summer grasses.    
+The lips feel cold.    
+Our hungry donkey    
 
