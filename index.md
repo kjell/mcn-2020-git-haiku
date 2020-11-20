@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-quick unexpected frog    
-It’s the Doll’s Festival.    
+Lady butterfly    
+How swift it is    
+My moonlit pillow    
 
