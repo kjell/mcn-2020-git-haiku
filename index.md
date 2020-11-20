@@ -1,4 +1,4 @@
-An old pond    
-perfumes her wings by floating    
-Marks only midnight yet    
+The summer grasses.    
+captains swore grand conquest    
+Basho lines the moon    
 
