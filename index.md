@@ -1,4 +1,4 @@
-Poverty's child -    
-and bring to men a chance to rest    
-Waterfall music    
+White cloud of mist    
+How swift it is    
+A little woven cape    
 
