@@ -1,4 +1,4 @@
-The river gathering may rains    
-There's no sign that can foretell    
-A perfect evening!    
+This snowy morning    
+he starts to grind the rice,    
+Two white butterflies?    
 
