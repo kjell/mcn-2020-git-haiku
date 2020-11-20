@@ -1,4 +1,4 @@
-Spring is passing.    
-thoughts come - and there is loneliness;    
-Mogami River.    
+When you say something,    
+visit the ancestral grave    
+Of warriors’ dreams.    
 
