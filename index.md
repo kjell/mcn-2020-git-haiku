@@ -1,4 +1,4 @@
-White cloud of mist    
-There's no sign that can foretell    
-A little woven cape    
+In the cicada's cry    
+in your brief sweet waters    
+cherry-blossoms . . .    
 
