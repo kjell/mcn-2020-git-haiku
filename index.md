@@ -1,4 +1,4 @@
-Will we meet again    
-twin butterflies until, twice white    
-This autumn evening.    
+For a lovely bowl    
+Twilight whippoorwill, whistle on, sweet deepener    
+and gazes at the moon.    
 
