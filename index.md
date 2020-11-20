@@ -1,4 +1,4 @@
-White cloud of mist    
-as I take my darkening path    
-Morning-glory gazing    
+Now that eyes of hawks    
+twin butterflies until, twice white    
+A perfect evening!    
 
