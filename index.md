@@ -1,4 +1,4 @@
-Mountain-rose petals    
-How swift it is    
-Darting dragon-fly!    
+Temple bells die out.    
+The fragrant blossoms remain.    
+Come to rest our necks    
 
