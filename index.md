@@ -1,4 +1,4 @@
-Here, where a thousand    
-and bring to men a chance to rest    
-Moon-lighted mountains!    
+In the twilight rain    
+Here along this way but I,    
+It’s the Doll’s Festival.    
 
