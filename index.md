@@ -1,4 +1,4 @@
-When you say something,    
-visit the ancestral grave    
-Of warriors’ dreams.    
+The first day of the year:    
+and bring to men a chance to rest    
+Two white butterflies?    
 
