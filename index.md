@@ -1,4 +1,4 @@
-Will we meet again    
-There's no sign that can foretell    
-Waterfall music    
+Oh, tranquility!    
+let us to the road again    
+With tears.    
 
