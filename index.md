@@ -1,4 +1,4 @@
-Temple bells die out.    
-the scent of flowers floating    
-A lovely sunset    
+Must springtime fade?    
+There's no sign that can foretell    
+Crying, whirling, white    
 
