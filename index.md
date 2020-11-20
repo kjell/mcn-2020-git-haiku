@@ -1,4 +1,4 @@
-An old pond    
-falling, falling, falling now    
-But he's beautiful!    
+None is travelling    
+scatters in the night; Now see    
+Seasoned with petals    
 
