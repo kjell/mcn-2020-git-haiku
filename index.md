@@ -1,4 +1,4 @@
-The summer grasses.    
-it needs but shiny wings and look    
-These dark hands of life    
+Temple bells die out.    
+Twilight whippoorwill, whistle on, sweet deepener    
+This autumn evening.    
 
