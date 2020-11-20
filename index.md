@@ -1,4 +1,4 @@
-In the twilight rain    
-Here along this way but I,    
-It’s the Doll’s Festival.    
+Lightning -    
+watching us pass, met death    
+Lilies on the rocks    
 
