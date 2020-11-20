@@ -1,4 +1,4 @@
-Cold first winter rain    
-Here along this way but I,    
-Of warriors’ dreams.    
+None is travelling    
+falling, falling, falling now    
+Mountain-top jewels    
 
