@@ -1,4 +1,4 @@
-This is the new line    
-captains swore grand conquest    
-This autumn evening.    
+In the twilight rain    
+dead leaves alone foregather    
+Come to rest our necks    
 
