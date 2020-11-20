@@ -1,4 +1,4 @@
-Such utter silence!    
-and bring to men a chance to rest    
-From the kiri tree.    
+Spring is passing.    
+thoughts come - and there is loneliness;    
+Mogami River.    
 
