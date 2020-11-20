@@ -1,4 +1,4 @@
-Temple bells die out.    
-it needs but shiny wings and look    
-Companion butterfly!    
+The summer grasses.    
+Line that won't be deleted    
+Of dark loneliness    
 
