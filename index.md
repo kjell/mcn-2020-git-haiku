@@ -1,4 +1,4 @@
-Here, where a thousand    
-poor monkey, you too could use    
-are darkened . . .    
+Now that eyes of hawks    
+let us arrange these flowers    
+the autumn dusk is here.    
 
