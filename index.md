@@ -1,4 +1,4 @@
-For a lovely bowl    
-Twilight whippoorwill, whistle on, sweet deepener    
-and gazes at the moon.    
+Now in sad autumn    
+starving for fat fish or mice    
+Darting dragon-fly!    
 
