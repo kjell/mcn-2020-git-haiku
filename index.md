@@ -1,4 +1,4 @@
-An old pond    
-it needs but shiny wings and look    
-Silent clouds of stars    
+When you say something,    
+starving for fat fish or mice    
+are darkened    
 
