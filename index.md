@@ -1,4 +1,4 @@
-The river gathering may rains    
-There's no sign that can foretell    
-A little woven cape    
+Such utter silence!    
+and bring to men a chance to rest    
+From the kiri tree.    
 
