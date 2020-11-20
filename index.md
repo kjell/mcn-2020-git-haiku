@@ -1,4 +1,4 @@
-Seek on high bare trails    
-that black crow I hate so much    
-Like our tendrilled life    
+Ah me! I am one    
+There's no sign that can foretell    
+Bush-clover petals    
 
