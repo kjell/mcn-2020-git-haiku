@@ -1,4 +1,4 @@
-In the cicada's cry    
-in your brief sweet waters    
-cherry-blossoms . . .    
+In the twilight rain    
+Is also changed to another    
+From the kiri tree.    
 
