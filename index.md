@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-scatters in the night; Now see    
-Cold pale eyes pour tears    
+For a lovely bowl    
+the scent of flowers floating    
+Our hungry donkey    
 
