@@ -1,4 +1,4 @@
-For a lovely bowl    
-it needs but shiny wings and look    
-This autumn evening.    
+Seek on high bare trails    
+that black crow I hate so much    
+Like our tendrilled life    
 
