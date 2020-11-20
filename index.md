@@ -1,4 +1,4 @@
-Here, where a thousand    
-sky-reflecting violets    
-Two white butterflies?    
+No oil to read by    
+stretching over Sado Island    
+Of faded daffodils    
 
