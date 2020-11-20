@@ -1,4 +1,4 @@
-In the twilight rain    
-dead leaves alone foregather    
-Come to rest our necks    
+White cloud of mist    
+fell in silent dawn, spilling    
+Ueno? Asakura?    
 
