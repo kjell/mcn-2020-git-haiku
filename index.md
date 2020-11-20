@@ -1,4 +1,4 @@
-This is the new line    
-There's no sign that can foretell    
-Murmuring Mogami    
+Carven gods long gone    
+Is also changed to another    
+Tall grass their monument    
 
