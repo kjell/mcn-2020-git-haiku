@@ -1,4 +1,4 @@
-Lightning -    
-oh voices of the wild ducks    
-Cherry-blossoms    
+Dawn-shining mountains    
+How swift it is    
+Since there is no rice    
 
