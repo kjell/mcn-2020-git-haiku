@@ -1,4 +1,4 @@
-None is travelling    
-in your brief sweet waters    
-Muffled by hot rocks    
+Lady butterfly    
+he starts to grind the rice,    
+Splash!    
 
