@@ -1,4 +1,4 @@
-Swallow in the dusk    
-dead leaves alone foregather    
-Bush-clover petals    
+Mountain-rose petals    
+these brilliant-hued hibiscus    
+From the kiri tree.    
 
