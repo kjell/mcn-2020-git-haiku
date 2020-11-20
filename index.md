@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-here at your flowering grave    
-Marks only midnight yet    
+Won't you come and see    
+Heron's cry    
+Murmuring Mogami    
 
