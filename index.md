@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-twin butterflies until, twice white    
-A perfect evening!    
+A owner of the old thatched hut    
+as I take my darkening path    
+and gazes at the moon.    
 
