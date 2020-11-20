@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-Here along this way but I,    
-Of dark loneliness    
+The summer grasses.    
+it needs but shiny wings and look    
+These dark hands of life    
 
