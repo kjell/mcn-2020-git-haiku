@@ -1,4 +1,4 @@
-An old pond    
-All that remains    
-Like our tendrilled life    
+The first day of the year:    
+falling, falling, falling now    
+With tears.    
 
