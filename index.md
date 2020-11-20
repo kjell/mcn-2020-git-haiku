@@ -1,4 +1,4 @@
-Black cloudbank broken    
-Is also changed to another    
-Splash!    
+In the sea-surf edge    
+All that remains    
+Bearded, with bent canes    
 
