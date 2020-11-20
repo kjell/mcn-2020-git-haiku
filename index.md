@@ -1,4 +1,4 @@
-This snowy morning    
-he starts to grind the rice,    
-Two white butterflies?    
+None is travelling    
+A frog jumps in -    
+The Autumn wind.    
 
