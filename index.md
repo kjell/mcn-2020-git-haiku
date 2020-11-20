@@ -1,4 +1,4 @@
-For a lovely bowl    
-it needs but shiny wings and look    
-Tall grass their monument    
+The river gathering may rains    
+There's no sign that can foretell    
+A little woven cape    
 
