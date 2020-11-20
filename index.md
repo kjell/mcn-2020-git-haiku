@@ -1,4 +1,4 @@
-In the sea-surf edge    
-All that remains    
-Bearded, with bent canes    
+Clouds come from time to time -    
+Here along this way but I,    
+Of dark loneliness    
 
