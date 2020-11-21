@@ -1,4 +1,4 @@
-None is travelling    
-Penetrating the very rock,    
-Mogami River.    
+For a lovely bowl    
+he starts to grind the rice,    
+With tears.    
 
