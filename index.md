@@ -1,4 +1,4 @@
-Poverty's child -    
-Here along this way but I,    
-Seasoned with petals    
+Cold first winter rain    
+Line that won't be deleted    
+Mogami River.    
 
