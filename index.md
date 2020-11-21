@@ -1,4 +1,4 @@
-Swallow in the dusk    
-A frog jumps in -    
-Cherry-blossoms    
+White cloud of mist    
+spare my little buzzing friends    
+Morning-glory gazing    
 
