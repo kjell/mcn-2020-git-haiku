@@ -1,4 +1,4 @@
 When you say something,    
-then cry all birds and fishes    
-Two white butterflies?    
+loneliness? Just one leaf    
+Our hungry donkey    
 
