@@ -1,4 +1,4 @@
-See: surviving suns    
-Penetrating the very rock,    
-Goes plop! Watersplash!    
+None is travelling    
+chirping, keeps the autumn gay    
+But he's beautiful!    
 
