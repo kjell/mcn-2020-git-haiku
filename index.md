@@ -1,4 +1,4 @@
-Seek on high bare trails    
-poor monkey, you too could use    
-How soon it must die.    
+Dry cheerful cricket    
+mingling with bright small shells    
+It’s the Doll’s Festival.    
 
