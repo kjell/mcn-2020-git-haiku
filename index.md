@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-All that remains    
-Muffled by hot rocks    
+Clouds come from time to time -    
+in your brief sweet waters    
+With tears.    
 
