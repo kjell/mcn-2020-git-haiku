@@ -1,4 +1,4 @@
-No oil to read by    
-The birds cry, and the fishes’ eyes are     
-Our hungry donkey    
+Must springtime fade?    
+thoughts come - and there is loneliness;    
+Companion butterfly!    
 
