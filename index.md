@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-in your brief sweet waters    
-With tears.    
+Now that eyes of hawks    
+Twilight whippoorwill, whistle on, sweet deepener    
+and gazes at the moon.    
 
