@@ -1,4 +1,4 @@
 None is travelling    
-thoughts come - and there is loneliness;    
-A cicada’s voice.    
+perfumes her wings by floating    
+Cherry-blossoms    
 
