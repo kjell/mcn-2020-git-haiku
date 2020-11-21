@@ -1,4 +1,4 @@
-Now in sad autumn    
-sky-reflecting violets    
-But he's beautiful!    
+Lady butterfly    
+Here along this way but I,    
+A little woven cape    
 
