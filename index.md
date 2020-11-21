@@ -1,4 +1,4 @@
-In the cicada's cry    
-visit the ancestral grave    
-Among the flowers    
+Bright red pepper-pod    
+dead leaves alone foregather    
+Stabs the darkness    
 
