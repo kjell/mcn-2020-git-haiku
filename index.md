@@ -1,4 +1,4 @@
-Camellia-petal    
-thoughts come - and there is loneliness;    
-Muffled by hot rocks    
+Now in sad autumn    
+sky-reflecting violets    
+But he's beautiful!    
 
