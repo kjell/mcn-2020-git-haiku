@@ -1,4 +1,4 @@
-When you say something,    
-tolling twilight bell; Temple    
-A cicada’s voice.    
+Spring is passing.    
+stretching over Sado Island    
+Moon-lighted mountains!    
 
