@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-Is also changed to another    
-Muffled by hot rocks    
+Carven gods long gone    
+The fragrant blossoms remain.    
+Murmuring Mogami    
 
