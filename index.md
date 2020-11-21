@@ -1,4 +1,4 @@
-In the twilight rain    
-twin butterflies until, twice white    
-Cherry-blossoms    
+In the sea-surf edge    
+sky-reflecting violets    
+from the kiri tree.    
 
