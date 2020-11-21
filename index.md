@@ -1,4 +1,4 @@
-Glorious the moon    
-A frog jumps in -    
-Among the flowers    
+Spring is passing.    
+How swift it is    
+With tears.    
 
