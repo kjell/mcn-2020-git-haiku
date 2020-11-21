@@ -1,4 +1,4 @@
-The summer grasses.    
-he starts to grind the rice,    
-Stabs the darkness    
+First white snow of fall    
+How swift it is    
+This autumn evening.    
 
