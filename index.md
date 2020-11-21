@@ -1,4 +1,4 @@
-Dry cheerful cricket    
+When you say something,    
 Penetrating the very rock,    
-A perfect evening!    
+the autumn dusk is here.    
 
