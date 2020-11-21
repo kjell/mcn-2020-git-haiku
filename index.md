@@ -1,4 +1,4 @@
-White cloud of mist    
-dead leaves alone foregather    
-Come to rest our necks    
+Dewdrop, let me cleanse    
+is quieted with creepers    
+Stabs the darkness    
 
