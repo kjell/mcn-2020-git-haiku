@@ -1,4 +1,4 @@
-The summer grasses.    
-to see the moon, whose solemn pace    
-Like our tendrilled life    
+Silent the old town    
+There's no sign that can foretell    
+Splash!    
 
