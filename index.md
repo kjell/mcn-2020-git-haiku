@@ -1,4 +1,4 @@
-Spring is passing.    
-watching us pass, met death    
+Bright red pepper-pod    
+falling, falling, falling now    
 Mogami River.    
 
