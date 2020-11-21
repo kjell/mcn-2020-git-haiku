@@ -1,4 +1,4 @@
-When you say something,    
-Penetrating the very rock,    
-the autumn dusk is here.    
+An old pond    
+Here along this way but I,    
+But he's beautiful!    
 
