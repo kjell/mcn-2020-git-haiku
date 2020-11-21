@@ -1,4 +1,4 @@
-Must springtime fade?    
-thoughts come - and there is loneliness;    
-Companion butterfly!    
+Swallow in the dusk    
+A frog jumps in -    
+Cherry-blossoms    
 
