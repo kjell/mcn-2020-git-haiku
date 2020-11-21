@@ -1,4 +1,4 @@
-Spring is passing.    
-How swift it is    
-With tears.    
+Seas are wild tonight    
+above white    
+from looking at the moon.    
 
