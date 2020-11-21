@@ -1,4 +1,4 @@
-The first day of the year:    
-fell in silent dawn, spilling    
-How soon it must die.    
+Under cherry-trees    
+just enough to bend the leaves    
+Ueno? Asakura?    
 
