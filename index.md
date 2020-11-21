@@ -1,4 +1,4 @@
-For a lovely bowl    
-he starts to grind the rice,    
-With tears.    
+None is travelling    
+Heron's cry    
+A cicada’s voice.    
 
