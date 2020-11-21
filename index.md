@@ -1,4 +1,4 @@
-White cloud of mist    
-quick unexpected frog    
-Tall grass their monument    
+Now the swinging bridge    
+these brilliant-hued hibiscus    
+Morning-glory gazing    
 
