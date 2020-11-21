@@ -1,4 +1,4 @@
-None is travelling    
-chirping, keeps the autumn gay    
-But he's beautiful!    
+The first day of the year:    
+perfumes her wings by floating    
+and gazes at the moon.    
 
