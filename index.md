@@ -1,4 +1,4 @@
-First white snow of fall    
-How swift it is    
-This autumn evening.    
+Cloud of cherry-bloom    
+is quieted with creepers    
+Crying, whirling, white    
 
