@@ -1,4 +1,4 @@
-Silent the old town    
-There's no sign that can foretell    
-Splash!    
+In the cicada's cry    
+as I take my darkening path    
+A perfect evening!    
 
