@@ -1,4 +1,4 @@
-Under cherry-trees    
-Penetrating the very rock,    
-Cherry-blossoms    
+This snowy morning    
+Is also changed to another    
+Like our tendrilled life    
 
