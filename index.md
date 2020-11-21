@@ -1,4 +1,4 @@
-An old pond    
-Here along this way but I,    
-But he's beautiful!    
+First white snow of fall    
+captains swore grand conquest    
+Cherry-blossoms    
 
