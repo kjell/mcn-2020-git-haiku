@@ -1,4 +1,4 @@
-Poverty's child -    
-falling, falling, falling now    
-A lovely sunset    
+Glorious the moon    
+quick unexpected frog    
+Crying, whirling, white    
 
