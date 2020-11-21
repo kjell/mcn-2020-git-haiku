@@ -1,4 +1,4 @@
-Poverty's child -    
-is quieted with creepers    
+Dry cheerful cricket    
+who spends his little breakfast    
 Mogami River.    
 
