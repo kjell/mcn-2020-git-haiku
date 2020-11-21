@@ -1,4 +1,4 @@
-Seas are wild tonight    
-above white    
-from looking at the moon.    
+Poverty's child -    
+falling, falling, falling now    
+A lovely sunset    
 
