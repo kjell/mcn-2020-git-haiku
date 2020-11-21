@@ -1,4 +1,4 @@
-Poverty's child -    
-oh voices of the wild ducks    
-are darkened . . .    
+An old pond    
+Here along this way but I,    
+The Autumn wind.    
 
