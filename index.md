@@ -1,4 +1,4 @@
-If there were fragrance    
-from cold streamlets for the sea    
-And evening bell    
+Swallow in the dusk    
+then cry all birds and fishes    
+The Autumn wind.    
 
