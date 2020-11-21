@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-is quieted with creepers    
-Crying, whirling, white    
+Lady butterfly    
+Penetrating the very rock,    
+From the kiri tree.    
 
