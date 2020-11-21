@@ -1,4 +1,4 @@
-Glorious the moon    
-who spends his little breakfast    
-Silent clouds of stars    
+Spring is passing.    
+There's no sign that can foretell    
+It’s the Doll’s Festival.    
 
