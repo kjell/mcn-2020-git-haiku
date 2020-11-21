@@ -1,4 +1,4 @@
-When you say something,    
-the scent of flowers floating    
-Lilies on the rocks    
+Under cherry-trees    
+The birds cry, and the fishes’ eyes are     
+With tears.    
 
