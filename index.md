@@ -1,4 +1,4 @@
-Swallow in the dusk    
-then cry all birds and fishes    
-The Autumn wind.    
+Glorious the moon    
+A frog jumps in -    
+Among the flowers    
 
