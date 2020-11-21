@@ -1,4 +1,4 @@
-Under cherry-trees    
-visit the ancestral grave    
-Over the orchid    
+Cold first winter rain    
+oh voices of the wild ducks    
+Mountain-top jewels    
 
