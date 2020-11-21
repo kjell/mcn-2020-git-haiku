@@ -1,4 +1,4 @@
-An old pond    
-Here along this way but I,    
-The Autumn wind.    
+The summer grasses.    
+he starts to grind the rice,    
+Stabs the darkness    
 
