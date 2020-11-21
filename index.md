@@ -1,4 +1,4 @@
-Temple bells die out.    
-twin butterflies until, twice white    
-With tears.    
+Poverty's child -    
+Heron's cry    
+A water-jewel    
 
