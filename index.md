@@ -1,4 +1,4 @@
-No oil to read by    
-just enough to bend the leaves    
-A cicada’s voice.    
+Dewdrop, let me cleanse    
+perfumes her wings by floating    
+A little woven cape    
 
