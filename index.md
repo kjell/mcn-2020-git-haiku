@@ -1,4 +1,4 @@
-None is travelling    
-Is also changed to another    
-from looking at the moon.    
+Nine times arising    
+A frog jumps in -    
+Of warriors’ dreams.    
 
