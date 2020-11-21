@@ -1,4 +1,4 @@
-White cloud of mist    
-spare my little buzzing friends    
-Morning-glory gazing    
+Chirping of the quails    
+Is also changed to another    
+A cicada’s voice.    
 
