@@ -1,4 +1,4 @@
-Under cherry-trees    
-stretching over Sado Island    
-Murmuring Mogami    
+When you say something,    
+the scent of flowers floating    
+Lilies on the rocks    
 
