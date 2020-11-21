@@ -1,4 +1,4 @@
-The rains of summer join together.    
-There's no sign that can foretell    
-Goes plop! Watersplash!    
+The summer grasses.    
+oh voices of the wild ducks    
+But he's beautiful!    
 
