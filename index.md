@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-above white    
-A perfect evening!    
+In the twilight rain    
+twin butterflies until, twice white    
+Cherry-blossoms    
 
