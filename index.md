@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-who spends his little breakfast    
-Mogami River.    
+Must springtime fade?    
+sky-reflecting violets    
+From the kiri tree.    
 
