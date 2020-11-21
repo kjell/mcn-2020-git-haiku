@@ -1,4 +1,4 @@
-Lady butterfly    
-Penetrating the very rock,    
-From the kiri tree.    
+Under cherry-trees    
+let us arrange these flowers    
+And evening bell    
 
