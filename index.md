@@ -1,4 +1,4 @@
-Lightning -    
-There's no sign that can foretell    
-are darkened    
+When you say something,    
+tolling twilight bell; Temple    
+A cicada’s voice.    
 
