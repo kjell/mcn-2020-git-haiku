@@ -1,4 +1,4 @@
-Ballet in the air    
-loneliness? Just one leaf    
-and gazes at the moon.    
+Oh, tranquility!    
+How swift it is    
+Muffled by hot rocks    
 
