@@ -1,4 +1,4 @@
-Oh, tranquility!    
-How swift it is    
-Muffled by hot rocks    
+Lightning -    
+it needs but shiny wings and look    
+My moonlit pillow    
 
