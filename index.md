@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-thoughts come - and there is loneliness;    
-A cicada’s voice.    
+The summer grasses.    
+to see the moon, whose solemn pace    
+Like our tendrilled life    
 
