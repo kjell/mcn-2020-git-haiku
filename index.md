@@ -1,4 +1,4 @@
-Spring is passing.    
-There's no sign that can foretell    
-It’s the Doll’s Festival.    
+No oil to read by    
+and bring to men a chance to rest    
+A solitary bird    
 
