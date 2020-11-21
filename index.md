@@ -1,4 +1,4 @@
-Under cherry-trees    
-just enough to bend the leaves    
-Ueno? Asakura?    
+Why so scrawny, cat?    
+soup, the salad, fish and all    
+A solitary bird    
 
