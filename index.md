@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-let us arrange these flowers    
+Won't you come and see    
+that black crow I hate so much    
 the autumn dusk is here.    
 
