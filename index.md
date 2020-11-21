@@ -1,4 +1,4 @@
-Carven gods long gone    
-he starts to grind the rice,    
-Stabs the darkness    
+In the cicada's cry    
+visit the ancestral grave    
+Among the flowers    
 
