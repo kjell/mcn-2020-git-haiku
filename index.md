@@ -1,4 +1,4 @@
-The first day of the year:    
-perfumes her wings by floating    
-and gazes at the moon.    
+Ah me! I am one    
+in your brief sweet waters    
+Mogami River.    
 
