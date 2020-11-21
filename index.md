@@ -1,4 +1,4 @@
-Temple bells die out.    
-Penetrating the very rock,    
-And evening bell    
+Will we meet again    
+The fragrant blossoms remain.    
+With tears.    
 
