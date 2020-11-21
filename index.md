@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-mingling with bright small shells    
-It’s the Doll’s Festival.    
+The rains of summer join together.    
+All that remains    
+This autumn evening.    
 
