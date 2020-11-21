@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-Heron's cry    
-Of warriors’ dreams.    
+The first day of the year:    
+these heavy snow-flakes settling    
+The autumn dusk is here.    
 
