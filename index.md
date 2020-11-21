@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-falling, falling, falling now    
-Mogami River.    
+Ballet in the air    
+loneliness? Just one leaf    
+and gazes at the moon.    
 
