@@ -1,4 +1,4 @@
-Ah me! I am one    
-then cry all birds and fishes    
-the autumn dusk is here.    
+White cloud of mist    
+quick unexpected frog    
+Tall grass their monument    
 
