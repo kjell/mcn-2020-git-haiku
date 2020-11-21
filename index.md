@@ -1,4 +1,4 @@
-In the sea-surf edge    
-sky-reflecting violets    
-from the kiri tree.    
+Lightning -    
+There's no sign that can foretell    
+are darkened    
 
