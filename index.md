@@ -1,4 +1,4 @@
 Will we meet again    
-The fragrant blossoms remain.    
-With tears.    
+There's no sign that can foretell    
+It’s the Doll’s Festival.    
 
