@@ -1,4 +1,4 @@
-When you say something,    
-loneliness? Just one leaf    
-Our hungry donkey    
+Poverty's child -    
+Here along this way but I,    
+Seasoned with petals    
 
