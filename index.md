@@ -1,4 +1,4 @@
-This snowy morning    
-Is also changed to another    
-Like our tendrilled life    
+Poverty's child -    
+is quieted with creepers    
+Mogami River.    
 
