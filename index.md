@@ -1,4 +1,4 @@
-First white snow of fall    
-captains swore grand conquest    
-Cherry-blossoms    
+Temple bells die out.    
+twin butterflies until, twice white    
+With tears.    
 
