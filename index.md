@@ -1,4 +1,4 @@
-Poverty's child -    
-Heron's cry    
-A water-jewel    
+When you say something,    
+then cry all birds and fishes    
+Two white butterflies?    
 
