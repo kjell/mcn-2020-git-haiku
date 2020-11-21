@@ -1,4 +1,4 @@
-Cold first winter rain    
-Line that won't be deleted    
-Mogami River.    
+An old pond    
+Here along this way but I,    
+This autumn evening.    
 
