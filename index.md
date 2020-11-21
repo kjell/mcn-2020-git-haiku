@@ -1,4 +1,4 @@
-White cloud of mist    
-scatters in the night; Now see    
-and gazes at the moon.    
+No oil to read by    
+The birds cry, and the fishes’ eyes are     
+Our hungry donkey    
 
