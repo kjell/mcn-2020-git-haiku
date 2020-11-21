@@ -1,4 +1,4 @@
-The summer grasses.    
-oh voices of the wild ducks    
-But he's beautiful!    
+In the cicada's cry    
+starving for fat fish or mice    
+A little woven cape    
 
