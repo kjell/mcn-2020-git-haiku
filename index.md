@@ -1,4 +1,4 @@
-None is travelling    
-falling, falling, falling now    
-are darkened . . .    
+Such utter silence!    
+to see the moon, whose solemn pace    
+Splash!    
 
