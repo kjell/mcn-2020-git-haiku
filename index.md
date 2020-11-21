@@ -1,4 +1,4 @@
-Cold first winter rain    
-oh voices of the wild ducks    
-Mountain-top jewels    
+Clouds come from time to time -    
+above white    
+A perfect evening!    
 
