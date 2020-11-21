@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-The birds cry, and the fishes’ eyes are     
-It’s the Doll’s Festival.    
+Seek on high bare trails    
+poor monkey, you too could use    
+How soon it must die.    
 
