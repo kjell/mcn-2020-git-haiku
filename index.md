@@ -1,4 +1,4 @@
-Ballet in the air    
-in dusky night    
-My moonlit pillow    
+This snowy morning    
+mingling with bright small shells    
+Splash!    
 
