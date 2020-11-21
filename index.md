@@ -1,4 +1,4 @@
-Now in sad autumn    
-in your brief sweet waters    
-With tears.    
+None is travelling    
+let us to the road again    
+Goes plop! Watersplash!    
 
