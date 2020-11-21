@@ -1,4 +1,4 @@
-In the cicada's cry    
-starving for fat fish or mice    
-A little woven cape    
+Under cherry-trees    
+here at your flowering grave    
+On the temple porch    
 
