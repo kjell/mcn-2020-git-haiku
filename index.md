@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-is quieted with creepers    
-Stabs the darkness    
+Glorious the moon    
+who spends his little breakfast    
+Silent clouds of stars    
 
