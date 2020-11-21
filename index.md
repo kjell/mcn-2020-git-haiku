@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-these brilliant-hued hibiscus    
-A water-jewel    
+None is travelling    
+thoughts come - and there is loneliness;    
+A cicada’s voice.    
 
