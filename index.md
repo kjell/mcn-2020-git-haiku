@@ -1,4 +1,4 @@
-Lady butterfly    
-Here along this way but I,    
-A little woven cape    
+Poverty's child -    
+oh voices of the wild ducks    
+are darkened . . .    
 
