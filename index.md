@@ -1,4 +1,4 @@
-Chirping of the quails    
-Is also changed to another    
-A cicada’s voice.    
+The summer grasses.    
+perfumes her wings by floating    
+The autumn dusk is here.    
 
