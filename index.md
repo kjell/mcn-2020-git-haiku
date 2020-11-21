@@ -1,4 +1,4 @@
-The rains of summer join together.    
-All that remains    
-This autumn evening.    
+Camellia-petal    
+thoughts come - and there is loneliness;    
+Muffled by hot rocks    
 
