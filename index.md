@@ -1,4 +1,4 @@
-Temple bells die out.    
-is quieted with creepers    
-and gazes at the moon.    
+White cloud of mist    
+dead leaves alone foregather    
+Come to rest our necks    
 
