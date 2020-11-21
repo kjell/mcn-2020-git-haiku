@@ -1,4 +1,4 @@
-Under cherry-trees    
-here at your flowering grave    
-On the temple porch    
+The first day of the year:    
+fell in silent dawn, spilling    
+How soon it must die.    
 
