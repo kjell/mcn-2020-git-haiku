@@ -1,4 +1,4 @@
-In the cicada's cry    
-as I take my darkening path    
+Dry cheerful cricket    
+Penetrating the very rock,    
 A perfect evening!    
 
