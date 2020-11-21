@@ -1,4 +1,4 @@
-The first day of the year:    
-these heavy snow-flakes settling    
-The autumn dusk is here.    
+Ballet in the air    
+in dusky night    
+My moonlit pillow    
 
