@@ -1,4 +1,4 @@
-None is travelling    
-let us to the road again    
-Goes plop! Watersplash!    
+Now that eyes of hawks    
+There's no sign that can foretell    
+It’s the Doll’s Festival.    
 
