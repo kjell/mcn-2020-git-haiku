@@ -1,4 +1,4 @@
-Under cherry-trees    
-The birds cry, and the fishes’ eyes are     
-With tears.    
+None is travelling    
+falling, falling, falling now    
+are darkened . . .    
 
