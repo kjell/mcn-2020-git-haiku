@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-Twilight whippoorwill, whistle on, sweet deepener    
-and gazes at the moon.    
+Too curious flower    
+perfumes her wings by floating    
+the autumn dusk is here.    
 
