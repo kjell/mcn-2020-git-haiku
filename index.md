@@ -1,4 +1,4 @@
-Ah me! I am one    
-in your brief sweet waters    
-Mogami River.    
+Now that eyes of hawks    
+All that remains    
+Muffled by hot rocks    
 
