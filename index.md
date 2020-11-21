@@ -1,4 +1,4 @@
-None is travelling    
-perfumes her wings by floating    
+Under cherry-trees    
+Penetrating the very rock,    
 Cherry-blossoms    
 
