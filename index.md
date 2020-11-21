@@ -1,4 +1,4 @@
-Now the swinging bridge    
-these brilliant-hued hibiscus    
-Morning-glory gazing    
+No oil to read by    
+just enough to bend the leaves    
+A cicada’s voice.    
 
