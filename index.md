@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-dead leaves alone foregather    
-Stabs the darkness    
+If there were fragrance    
+from cold streamlets for the sea    
+And evening bell    
 
