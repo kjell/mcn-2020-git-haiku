@@ -1,4 +1,4 @@
-Must springtime fade?    
-sky-reflecting violets    
-From the kiri tree.    
+For a lovely bowl    
+The lips feel cold.    
+Two white butterflies?    
 
