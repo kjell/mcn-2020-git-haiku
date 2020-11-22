@@ -1,4 +1,4 @@
-First white snow of fall    
-Twilight whippoorwill, whistle on, sweet deepener    
-from looking at the moon.    
+If there were fragrance    
+who spends his little breakfast    
+are darkened    
 
