@@ -1,4 +1,4 @@
-Seek on high bare trails    
-Line that won't be deleted    
-Seasoned with petals    
+Now the swinging bridge    
+The birds cry, and the fishes’ eyes are     
+How soon it must die.    
 
