@@ -1,4 +1,4 @@
-Ah me! I am one    
-captains swore grand conquest    
-from looking at the moon.    
+Temple bells die out.    
+fell in silent dawn, spilling    
+Morning-glory gazing    
 
