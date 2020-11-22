@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-who spends his little breakfast    
-A lovely sunset    
+Now in sad autumn    
+Line that won't be deleted    
+It’s the Doll’s Festival.    
 
