@@ -1,4 +1,4 @@
-This is the new line    
-Twilight whippoorwill, whistle on, sweet deepener    
-With tears.    
+Ah me! I am one    
+from cold streamlets for the sea    
+Of faded daffodils    
 
