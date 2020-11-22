@@ -1,4 +1,4 @@
-If there were fragrance    
-The lips feel cold.    
-My moonlit pillow    
+None is travelling    
+The fragrant blossoms remain.    
+Marks only midnight yet    
 
