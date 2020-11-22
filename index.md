@@ -1,4 +1,4 @@
-The first day of the year:    
-quick unexpected frog    
-Muffled by hot rocks    
+Won't you come and see    
+How swift it is    
+Stabs the darkness    
 
