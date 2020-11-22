@@ -1,4 +1,4 @@
-In the cicada's cry    
-fell in silent dawn, spilling    
-Cherry-blossoms    
+Too curious flower    
+dead leaves alone foregather    
+Since there is no rice    
 
