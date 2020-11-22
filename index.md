@@ -1,4 +1,4 @@
-In the cicada's cry    
-these heavy snow-flakes settling    
-Murmuring Mogami    
+None is travelling    
+poor monkey, you too could use    
+Ueno? Asakura?    
 
