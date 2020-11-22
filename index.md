@@ -1,4 +1,4 @@
-This is the new line    
-oh voices of the wild ducks    
-A solitary bird    
+None is travelling    
+in dusky night    
+Waterfall music    
 
