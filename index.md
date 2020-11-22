@@ -1,4 +1,4 @@
-Now the swinging bridge    
-oh voices of the wild ducks    
-On the temple porch    
+In the sea-surf edge    
+chirping, keeps the autumn gay    
+Basho lines the moon    
 
