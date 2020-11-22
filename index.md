@@ -1,4 +1,4 @@
-If there were fragrance    
-dead leaves alone foregather    
-Silent clouds of stars    
+Old dark sleepy pool    
+A frog jumps in -    
+Bush-clover petals    
 
