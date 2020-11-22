@@ -1,4 +1,4 @@
-If there were fragrance    
-Is also changed to another    
-A cicada’s voice.    
+This is the new line    
+Twilight whippoorwill, whistle on, sweet deepener    
+With tears.    
 
