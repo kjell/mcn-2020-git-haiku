@@ -1,4 +1,4 @@
-Temple bells die out.    
-mingling with bright small shells    
-Companion butterfly!    
+Nine times arising    
+Here along this way but I,    
+A butterfly floats and balances    
 
