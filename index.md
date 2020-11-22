@@ -1,4 +1,4 @@
-Nine times arising    
-that black crow I hate so much    
-From the kiri tree.    
+None is travelling    
+Here along this way but I,    
+Splash!    
 
