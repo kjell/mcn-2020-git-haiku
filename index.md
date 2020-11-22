@@ -1,4 +1,4 @@
-Won't you come and see    
-How swift it is    
-Stabs the darkness    
+The summer grasses.    
+visit the ancestral grave    
+A solitary bird    
 
