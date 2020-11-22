@@ -1,4 +1,4 @@
-An old pond    
-in dusky night    
-Cherry-blossoms    
+Ah me! I am one    
+captains swore grand conquest    
+from looking at the moon.    
 
