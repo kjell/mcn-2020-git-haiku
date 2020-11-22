@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-scatters in the night; Now see    
-Waterfall music    
+Nine times arising    
+that black crow I hate so much    
+From the kiri tree.    
 
