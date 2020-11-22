@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-Here along this way but I,    
-cherry-blossoms . . .    
+Glorious the moon    
+Heron's cry    
+Bearded, with bent canes    
 
