@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-captains swore grand conquest    
-Cold pale eyes pour tears    
+Will we meet again    
+All that remains    
+are darkened . . .    
 
