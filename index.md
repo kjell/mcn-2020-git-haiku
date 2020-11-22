@@ -1,4 +1,4 @@
-Lightning -    
-There's no sign that can foretell    
-Among the flowers    
+Oh, tranquility!    
+the scent of flowers floating    
+A lovely sunset    
 
