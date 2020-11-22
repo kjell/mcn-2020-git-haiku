@@ -1,4 +1,4 @@
-Swallow in the dusk    
-The fragrant blossoms remain.    
-Mogami River.    
+If there were fragrance    
+Is also changed to another    
+A cicada’s voice.    
 
