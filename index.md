@@ -1,4 +1,4 @@
-In the sea-surf edge    
-chirping, keeps the autumn gay    
-Basho lines the moon    
+Lady butterfly    
+How swift it is    
+from looking at the moon.    
 
