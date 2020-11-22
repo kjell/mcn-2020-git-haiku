@@ -1,4 +1,4 @@
-Now in sad autumn    
-that black crow I hate so much    
-How soon it must die.    
+This is the new line    
+Twilight whippoorwill, whistle on, sweet deepener    
+And evening bell    
 
