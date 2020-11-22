@@ -1,4 +1,4 @@
-Poverty's child -    
-in dusky night    
-Mogami River.    
+Carven gods long gone    
+oh voices of the wild ducks    
+Moon-lighted mountains!    
 
