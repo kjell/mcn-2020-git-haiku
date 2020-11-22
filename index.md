@@ -1,4 +1,4 @@
-Lady butterfly    
-How swift it is    
-from looking at the moon.    
+Oh, tranquility!    
+he starts to grind the rice,    
+A cicada’s voice.    
 
