@@ -1,4 +1,4 @@
-The sea darkening    
-twin butterflies until, twice white    
-A perfect evening!    
+Temple bells die out.    
+mingling with bright small shells    
+Companion butterfly!    
 
