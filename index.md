@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-Is also changed to another    
+Spring is passing.    
+loneliness? Just one leaf    
 A perfect evening!    
 
