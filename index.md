@@ -1,4 +1,4 @@
-Spring is passing.    
-Here along this way but I,    
-Over the orchid    
+Won't you come and see    
+to see the moon, whose solemn pace    
+Stabs the darkness    
 
