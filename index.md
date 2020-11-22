@@ -1,4 +1,4 @@
-Will we meet again    
-All that remains    
-are darkened . . .    
+The first day of the year:    
+How swift it is    
+Or backyard love?    
 
