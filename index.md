@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-thoughts come - and there is loneliness;    
-Silent clouds of stars    
+Oh, tranquility!    
+Here along this way but I,    
+Cold pale eyes pour tears    
 
