@@ -1,4 +1,4 @@
-Temple bells die out.    
-to see the moon, whose solemn pace    
-cherry-blossoms . . .    
+Spring is passing.    
+as I take my darkening path    
+The Autumn wind.    
 
