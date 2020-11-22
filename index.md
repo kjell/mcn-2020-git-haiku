@@ -1,4 +1,4 @@
-First white snow of fall    
-The birds cry, and the fishes’ eyes are     
-The Autumn wind.    
+Temple bells die out.    
+to see the moon, whose solemn pace    
+cherry-blossoms . . .    
 
