@@ -1,4 +1,4 @@
-Seas are wild tonight    
-Penetrating the very rock,    
-Splash!    
+None is travelling    
+sky-reflecting violets    
+A butterfly floats and balances    
 
