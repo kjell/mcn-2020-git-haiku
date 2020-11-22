@@ -1,4 +1,4 @@
-Won't you come and see    
-to see the moon, whose solemn pace    
-Stabs the darkness    
+The river gathering may rains    
+dead leaves alone foregather    
+Contemptuous of frost    
 
