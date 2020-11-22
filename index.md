@@ -1,4 +1,4 @@
-Poverty's child -    
-he starts to grind the rice,    
-Of dark loneliness    
+None is travelling    
+Penetrating the very rock,    
+Moon-lighted mountains!    
 
