@@ -1,4 +1,4 @@
-Lady butterfly    
-fell in silent dawn, spilling    
-A lovely sunset    
+A owner of the old thatched hut    
+Is also changed to another    
+from the kiri tree.    
 
