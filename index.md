@@ -1,4 +1,4 @@
-Cold first winter rain    
-loneliness? Just one leaf    
-And evening bell    
+Swallow in the dusk    
+as I take my darkening path    
+This autumn evening.    
 
