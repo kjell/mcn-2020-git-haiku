@@ -1,4 +1,4 @@
-Spring is passing.    
-these brilliant-hued hibiscus    
-A cicada’s voice.    
+In the cicada's cry    
+these heavy snow-flakes settling    
+Murmuring Mogami    
 
