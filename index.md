@@ -1,4 +1,4 @@
-The first day of the year:    
-Is also changed to another    
-A cicada’s voice.    
+This is the new line    
+chirping, keeps the autumn gay    
+Our hungry donkey    
 
