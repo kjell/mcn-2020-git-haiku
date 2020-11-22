@@ -1,4 +1,4 @@
-None is travelling    
-Here along this way but I,    
-Splash!    
+The summer grasses.    
+here at your flowering grave    
+A perfect evening!    
 
