@@ -1,4 +1,4 @@
-Lady butterfly    
-here at your flowering grave    
-A lovely sunset    
+Spring is passing.    
+thoughts come - and there is loneliness;    
+Muffled by hot rocks    
 
