@@ -1,4 +1,4 @@
-Spring is passing.    
-as I take my darkening path    
-The Autumn wind.    
+Seek on high bare trails    
+soup, the salad, fish and all    
+Of warriors’ dreams.    
 
