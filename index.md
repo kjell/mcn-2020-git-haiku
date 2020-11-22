@@ -1,4 +1,4 @@
-Seek on high bare trails    
-Heron's cry    
-Contemptuous of frost    
+In the sea-surf edge    
+in your brief sweet waters    
+And evening bell    
 
