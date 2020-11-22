@@ -1,4 +1,4 @@
-If there were fragrance    
-who spends his little breakfast    
-are darkened    
+Must springtime fade?    
+The fragrant blossoms remain.    
+Ueno? Asakura?    
 
