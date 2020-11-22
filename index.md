@@ -1,4 +1,4 @@
-None is travelling    
-A frog jumps in -    
-And evening bell    
+Temple bells die out.    
+it needs but shiny wings and look    
+from the kiri tree.    
 
