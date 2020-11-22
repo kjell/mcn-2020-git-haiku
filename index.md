@@ -1,4 +1,4 @@
-If there were fragrance    
-The birds cry, and the fishes’ eyes are     
-But he's beautiful!    
+Lady butterfly    
+here at your flowering grave    
+A lovely sunset    
 
