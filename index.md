@@ -1,4 +1,4 @@
-Nine times arising    
-Here along this way but I,    
-A butterfly floats and balances    
+Wake! The sky is light!    
+it needs but shiny wings and look    
+Marks only midnight yet    
 
