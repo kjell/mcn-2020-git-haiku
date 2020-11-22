@@ -1,4 +1,4 @@
-This is the new line    
-Twilight whippoorwill, whistle on, sweet deepener    
-And evening bell    
+In the twilight rain    
+and bring to men a chance to rest    
+Goes plop! Watersplash!    
 
