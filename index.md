@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-Is also changed to another    
-Two white butterflies?    
+Spring is passing.    
+these brilliant-hued hibiscus    
+A cicada’s voice.    
 
