@@ -1,4 +1,4 @@
-This snowy morning    
-visit the ancestral grave    
-Silent clouds of stars    
+Lightning -    
+Is also changed to another    
+A perfect evening!    
 
