@@ -1,4 +1,4 @@
-Lightning -    
-Is also changed to another    
-A perfect evening!    
+The first day of the year:    
+quick unexpected frog    
+Muffled by hot rocks    
 
