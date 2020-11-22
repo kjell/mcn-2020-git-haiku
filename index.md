@@ -1,4 +1,4 @@
-Spring is passing.    
-loneliness? Just one leaf    
-A perfect evening!    
+Now in sad autumn    
+that black crow I hate so much    
+How soon it must die.    
 
