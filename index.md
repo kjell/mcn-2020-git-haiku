@@ -1,4 +1,4 @@
-For a lovely bowl    
-therefore our thanks dark clouds    
-Of dark loneliness    
+The first day of the year:    
+The fragrant blossoms remain.    
+A solitary bird    
 
