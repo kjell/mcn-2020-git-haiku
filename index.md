@@ -1,4 +1,4 @@
-The summer grasses.    
-watching us pass, met death    
-On the temple porch    
+An old pond    
+and bring to men a chance to rest    
+And evening bell    
 
