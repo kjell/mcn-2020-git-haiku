@@ -1,4 +1,4 @@
-Oh, tranquility!    
-he starts to grind the rice,    
-A cicada’s voice.    
+An old pond    
+in dusky night    
+Cherry-blossoms    
 
