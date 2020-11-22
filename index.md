@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-who spends his little breakfast    
-A butterfly floats and balances    
+The rains of summer join together.    
+sky-reflecting violets    
+How soon it must die.    
 
