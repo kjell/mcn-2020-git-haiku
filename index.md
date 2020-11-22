@@ -1,4 +1,4 @@
-Oh, tranquility!    
-oh voices of the wild ducks    
-Waterfall music    
+Seek on high bare trails    
+Heron's cry    
+Contemptuous of frost    
 
