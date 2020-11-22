@@ -1,4 +1,4 @@
-None is travelling    
-in dusky night    
-Waterfall music    
+In the cicada's cry    
+fell in silent dawn, spilling    
+Cherry-blossoms    
 
