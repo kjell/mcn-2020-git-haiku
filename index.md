@@ -1,4 +1,4 @@
-Nine times arising    
-Line that won't be deleted    
-How soon it must die.    
+Won't you come and see    
+he starts to grind the rice,    
+From the kiri tree.    
 
