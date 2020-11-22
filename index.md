@@ -1,4 +1,4 @@
-This is the new line    
-chirping, keeps the autumn gay    
-Our hungry donkey    
+Now that eyes of hawks    
+Here along this way but I,    
+cherry-blossoms . . .    
 
