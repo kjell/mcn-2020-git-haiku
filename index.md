@@ -1,4 +1,4 @@
-Mountain-rose petals    
-therefore our thanks dark clouds    
-Mountain-top jewels    
+Will we meet again    
+Penetrating the very rock,    
+Our hungry donkey    
 
