@@ -1,4 +1,4 @@
-None is travelling    
-sky-reflecting violets    
-A butterfly floats and balances    
+Spring is passing.    
+loneliness? Just one leaf    
+This autumn evening.    
 
