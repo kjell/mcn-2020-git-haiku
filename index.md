@@ -1,4 +1,4 @@
-Seek on high bare trails    
-Here along this way but I,    
-from looking at the moon.    
+Here, where a thousand    
+fell in silent dawn, spilling    
+Basho lines the moon    
 
