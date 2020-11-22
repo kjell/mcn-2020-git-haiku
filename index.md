@@ -1,4 +1,4 @@
-In the sea-surf edge    
-in your brief sweet waters    
-And evening bell    
+Now that eyes of hawks    
+Is also changed to another    
+A perfect evening!    
 
