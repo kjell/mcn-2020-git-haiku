@@ -1,4 +1,4 @@
-Spring is passing.    
-loneliness? Just one leaf    
-This autumn evening.    
+Wake! The sky is light!    
+scatters in the night; Now see    
+Waterfall music    
 
