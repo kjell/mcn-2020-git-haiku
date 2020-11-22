@@ -1,4 +1,4 @@
-The first day of the year:    
-The fragrant blossoms remain.    
-A solitary bird    
+Seek on high bare trails    
+Line that won't be deleted    
+Seasoned with petals    
 
