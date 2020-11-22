@@ -1,4 +1,4 @@
-Glorious the moon    
-Heron's cry    
-Bearded, with bent canes    
+Poverty's child -    
+in dusky night    
+Mogami River.    
 
