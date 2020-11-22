@@ -1,4 +1,4 @@
-Spring is passing.    
-thoughts come - and there is loneliness;    
-Muffled by hot rocks    
+Will we meet again    
+How swift it is    
+A perfect evening!    
 
