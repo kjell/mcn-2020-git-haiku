@@ -1,4 +1,4 @@
-Poverty's child -    
-the scent of flowers floating    
-My moonlit pillow    
+The sea darkening    
+twin butterflies until, twice white    
+A perfect evening!    
 
