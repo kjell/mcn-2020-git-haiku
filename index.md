@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-Is also changed to another    
-from the kiri tree.    
+In the cicada's cry    
+fell in silent dawn, spilling    
+Of dark loneliness    
 
