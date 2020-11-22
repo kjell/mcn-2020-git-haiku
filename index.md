@@ -1,4 +1,4 @@
-Will we meet again    
-Penetrating the very rock,    
-Our hungry donkey    
+Lady butterfly    
+the scent of flowers floating    
+Lilies on the rocks    
 
