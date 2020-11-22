@@ -1,4 +1,4 @@
-Swallow in the dusk    
-as I take my darkening path    
-This autumn evening.    
+Mountain-rose petals    
+therefore our thanks dark clouds    
+Mountain-top jewels    
 
