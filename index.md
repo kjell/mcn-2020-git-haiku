@@ -1,4 +1,4 @@
-First white snow of fall    
-he starts to grind the rice,    
-With tears.    
+The summer grasses.    
+watching us pass, met death    
+On the temple porch    
 
