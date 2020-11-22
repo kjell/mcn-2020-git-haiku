@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-A frog jumps in -    
-Bush-clover petals    
+Now the swinging bridge    
+oh voices of the wild ducks    
+On the temple porch    
 
