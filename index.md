@@ -1,4 +1,4 @@
-Lady butterfly    
-the scent of flowers floating    
-Lilies on the rocks    
+See: surviving suns    
+thoughts come - and there is loneliness;    
+Stabs the darkness    
 
