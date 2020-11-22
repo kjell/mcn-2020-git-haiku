@@ -1,4 +1,4 @@
-Cold first winter rain    
-Penetrating the very rock,    
-Mogami River.    
+White cloud of mist    
+All that remains    
+It’s the Doll’s Festival.    
 
