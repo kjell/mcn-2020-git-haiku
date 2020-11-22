@@ -1,4 +1,4 @@
-Black cloudbank broken    
-April's air stirs in willow-leaves    
-It’s the Doll’s Festival.    
+If there were fragrance    
+The lips feel cold.    
+My moonlit pillow    
 
