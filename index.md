@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-it needs but shiny wings and look    
-Marks only midnight yet    
+Dawn-shining mountains    
+captains swore grand conquest    
+Cold pale eyes pour tears    
 
