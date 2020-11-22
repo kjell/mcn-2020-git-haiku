@@ -1,4 +1,4 @@
-Here, where a thousand    
-fell in silent dawn, spilling    
-Basho lines the moon    
+An old pond    
+is quieted with creepers    
+A perfect evening!    
 
