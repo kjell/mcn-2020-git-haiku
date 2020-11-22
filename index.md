@@ -1,4 +1,4 @@
-The summer grasses.    
-visit the ancestral grave    
-A solitary bird    
+Chirping of the quails    
+loneliness? Just one leaf    
+Goes plop! Watersplash!    
 
