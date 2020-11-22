@@ -1,4 +1,4 @@
-Carven gods long gone    
-oh voices of the wild ducks    
-Moon-lighted mountains!    
+Seek on high bare trails    
+Here along this way but I,    
+from looking at the moon.    
 
