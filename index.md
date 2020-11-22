@@ -1,4 +1,4 @@
-Here, where a thousand    
-twin butterflies until, twice white    
-A cicada’s voice.    
+If there were fragrance    
+The birds cry, and the fishes’ eyes are     
+But he's beautiful!    
 
