@@ -1,4 +1,4 @@
-The rains of summer join together.    
-sky-reflecting violets    
-How soon it must die.    
+Spring is passing.    
+Here along this way but I,    
+Over the orchid    
 
