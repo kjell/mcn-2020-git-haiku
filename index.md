@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-mingling with bright small shells    
-Over the orchid    
+Nine times arising    
+Line that won't be deleted    
+How soon it must die.    
 
