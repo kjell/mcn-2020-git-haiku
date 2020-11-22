@@ -1,4 +1,4 @@
-In the twilight rain    
-and bring to men a chance to rest    
-Goes plop! Watersplash!    
+If there were fragrance    
+dead leaves alone foregather    
+Silent clouds of stars    
 
