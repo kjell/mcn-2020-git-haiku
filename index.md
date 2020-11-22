@@ -1,4 +1,4 @@
-See: surviving suns    
-thoughts come - and there is loneliness;    
-Stabs the darkness    
+This snowy morning    
+visit the ancestral grave    
+Silent clouds of stars    
 
