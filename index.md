@@ -1,4 +1,4 @@
-Temple bells die out.    
-it needs but shiny wings and look    
-from the kiri tree.    
+Now the swinging bridge    
+that black crow I hate so much    
+Since there is no rice    
 
