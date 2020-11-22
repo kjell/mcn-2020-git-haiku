@@ -1,4 +1,4 @@
-Oh, tranquility!    
-the scent of flowers floating    
-A lovely sunset    
+A owner of the old thatched hut    
+Is also changed to another    
+Two white butterflies?    
 
