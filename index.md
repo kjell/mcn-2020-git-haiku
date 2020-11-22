@@ -1,4 +1,4 @@
-The summer grasses.    
-perfumes her wings by floating    
-The autumn dusk is here.    
+The first day of the year:    
+Is also changed to another    
+A cicada’s voice.    
 
