@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-loneliness? Just one leaf    
-Stabs the darkness    
+Poverty's child -    
+he starts to grind the rice,    
+Of dark loneliness    
 
