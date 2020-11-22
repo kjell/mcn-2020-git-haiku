@@ -1,4 +1,4 @@
-Oh, tranquility!    
-Here along this way but I,    
-Cold pale eyes pour tears    
+For a lovely bowl    
+therefore our thanks dark clouds    
+Of dark loneliness    
 
