@@ -1,4 +1,4 @@
-In the twilight rain    
-Heron's cry    
-Over the orchid    
+Dewdrop, let me cleanse    
+loneliness? Just one leaf    
+Stabs the darkness    
 
