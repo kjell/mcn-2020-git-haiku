@@ -1,4 +1,4 @@
-Lightning -    
-dead leaves alone foregather    
-But he's beautiful!    
+A owner of the old thatched hut    
+thoughts come - and there is loneliness;    
+Silent clouds of stars    
 
