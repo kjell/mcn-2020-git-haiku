@@ -1,4 +1,4 @@
-The first day of the year:    
-How swift it is    
-Or backyard love?    
+Swallow in the dusk    
+The fragrant blossoms remain.    
+Mogami River.    
 
