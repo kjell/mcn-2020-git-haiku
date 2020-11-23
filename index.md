@@ -1,4 +1,4 @@
-The summer grasses.    
-Line that won't be deleted    
-A solitary bird    
+Lightning -    
+Penetrating the very rock,    
+And evening bell    
 
