@@ -1,4 +1,4 @@
-Cold first winter rain    
-The birds cry, and the fishes’ eyes are     
-A perfect evening!    
+Temple bells die out.    
+soup, the salad, fish and all    
+cherry-blossoms . . .    
 
