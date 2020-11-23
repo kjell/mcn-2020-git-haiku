@@ -1,4 +1,4 @@
-Seas are wild tonight    
-The lips feel cold.    
-A cicada’s voice.    
+Lightning -    
+The fragrant blossoms remain.    
+Splash!    
 
