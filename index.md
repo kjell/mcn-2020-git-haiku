@@ -1,4 +1,4 @@
-Temple bells die out.    
-is quieted with creepers    
-My moonlit pillow    
+The summer grasses.    
+Line that won't be deleted    
+A solitary bird    
 
