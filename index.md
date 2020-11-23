@@ -1,4 +1,4 @@
-Temple bells die out.    
-chirping, keeps the autumn gay    
-These dark hands of life    
+Won't you come and see    
+just enough to bend the leaves    
+Splash!    
 
