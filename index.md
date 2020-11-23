@@ -1,4 +1,4 @@
-In the cicada's cry    
-quick unexpected frog    
-Muffled by hot rocks    
+In the sea-surf edge    
+in your brief sweet waters    
+A perfect evening!    
 
