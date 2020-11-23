@@ -1,4 +1,4 @@
-When you say something,    
-mingling with bright small shells    
-Bearded, with bent canes    
+Now the swinging bridge    
+tolling twilight bell; Temple    
+Moon-lighted mountains!    
 
