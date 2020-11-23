@@ -1,4 +1,4 @@
-The rains of summer join together.    
-falling, falling, falling now    
-Over the orchid    
+Now that eyes of hawks    
+starving for fat fish or mice    
+Moon-lighted mountains!    
 
