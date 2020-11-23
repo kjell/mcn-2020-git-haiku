@@ -1,4 +1,4 @@
-An old pond    
-tolling twilight bell; Temple    
-Mogami River.    
+No oil to read by    
+let us arrange these flowers    
+The autumn dusk is here.    
 
