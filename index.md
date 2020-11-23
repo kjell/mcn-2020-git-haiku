@@ -1,4 +1,4 @@
 Poverty's child -    
-The birds cry, and the fishes’ eyes are     
-are darkened . . .    
+in your brief sweet waters    
+Since there is no rice    
 
