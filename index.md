@@ -1,4 +1,4 @@
-None is travelling    
-quick unexpected frog    
-How soon it must die.    
+Won't you come and see    
+There's no sign that can foretell    
+Muffled by hot rocks    
 
