@@ -1,4 +1,4 @@
-Won't you come and see    
-There's no sign that can foretell    
-Muffled by hot rocks    
+Poverty's child -    
+The birds cry, and the fishes’ eyes are     
+are darkened . . .    
 
