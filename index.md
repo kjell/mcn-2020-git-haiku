@@ -1,4 +1,4 @@
-The rains of summer join together.    
-There's no sign that can foretell    
-Muffled by hot rocks    
+Now in sad autumn    
+let us arrange these flowers    
+Silent clouds of stars    
 
