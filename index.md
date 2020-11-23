@@ -1,4 +1,4 @@
 Old dark sleepy pool    
-above white    
-It’s the Doll’s Festival.    
+the scent of flowers floating    
+from looking at the moon.    
 
