@@ -1,4 +1,4 @@
-White cloud of mist    
-who spends his little breakfast    
-A little woven cape    
+In the cicada's cry    
+Is also changed to another    
+Of warriors’ dreams.    
 
