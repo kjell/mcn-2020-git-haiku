@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-Is also changed to another    
-The autumn dusk is here.    
+Too curious flower    
+The lips feel cold.    
+Of warriors’ dreams.    
 
