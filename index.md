@@ -1,4 +1,4 @@
-In the sea-surf edge    
-There's no sign that can foretell    
-A solitary bird    
+The rains of summer join together.    
+even the crickets' singing    
+Lilies on the rocks    
 
