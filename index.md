@@ -1,4 +1,4 @@
-This is the new line    
-The birds cry, and the fishes’ eyes are     
-Mogami River.    
+In the sea-surf edge    
+perfumes her wings by floating    
+A little woven cape    
 
