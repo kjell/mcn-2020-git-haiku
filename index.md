@@ -1,4 +1,4 @@
-In the sea-surf edge    
-in your brief sweet waters    
-A perfect evening!    
+Lightning -    
+is quieted with creepers    
+Tall grass their monument    
 
