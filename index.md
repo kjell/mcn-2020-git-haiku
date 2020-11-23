@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-therefore our thanks dark clouds    
-A perfect evening!    
+In the sea-surf edge    
+There's no sign that can foretell    
+A solitary bird    
 
