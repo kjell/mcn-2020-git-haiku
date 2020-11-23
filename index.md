@@ -1,4 +1,4 @@
-Now the swinging bridge    
-starving for fat fish or mice    
-Cold pale eyes pour tears    
+Swallow in the dusk    
+Is also changed to another    
+and gazes at the moon.    
 
