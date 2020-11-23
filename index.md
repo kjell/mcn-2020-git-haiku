@@ -1,4 +1,4 @@
-Carven gods long gone    
-The birds cry, and the fishes’ eyes are     
-and gazes at the moon.    
+When you say something,    
+as I take my darkening path    
+Mountain-top jewels    
 
