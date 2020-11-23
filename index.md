@@ -1,4 +1,4 @@
-In the cicada's cry    
-visit the ancestral grave    
-Stabs the darkness    
+Carven gods long gone    
+The birds cry, and the fishes’ eyes are     
+and gazes at the moon.    
 
