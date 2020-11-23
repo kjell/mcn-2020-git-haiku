@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-spare my little buzzing friends    
-and gazes at the moon.    
+The summer grasses.    
+The lips feel cold.    
+Seasoned with petals    
 
