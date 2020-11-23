@@ -1,4 +1,4 @@
-In the twilight rain    
-soup, the salad, fish and all    
-Mogami River.    
+Under cherry-trees    
+All that remains    
+Or backyard love?    
 
