@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-Here along this way but I,    
-Splash!    
+Dawn-shining mountains    
+above white    
+Morning-glory gazing    
 
