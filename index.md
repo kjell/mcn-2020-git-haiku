@@ -1,4 +1,4 @@
-Won't you come and see    
-just enough to bend the leaves    
-Splash!    
+Must springtime fade?    
+twin butterflies until, twice white    
+Of warriors’ dreams.    
 
