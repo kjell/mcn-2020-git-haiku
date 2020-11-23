@@ -1,4 +1,4 @@
-Carven gods long gone    
-The fragrant blossoms remain.    
-The autumn dusk is here.    
+Won't you come and see    
+in dusky night    
+Cold pale eyes pour tears    
 
