@@ -1,4 +1,4 @@
-None is travelling    
-Is also changed to another    
-Two white butterflies?    
+Oh, tranquility!    
+The birds cry, and the fishes’ eyes are     
+from looking at the moon.    
 
