@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-just enough to bend the leaves    
-Cherry-blossoms    
+See: surviving suns    
+scatters in the night; Now see    
+Cold pale eyes pour tears    
 
