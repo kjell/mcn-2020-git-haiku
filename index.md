@@ -1,4 +1,4 @@
-White cloud of mist    
-and bring to men a chance to rest    
-Mountain-top jewels    
+An old pond    
+tolling twilight bell; Temple    
+Mogami River.    
 
