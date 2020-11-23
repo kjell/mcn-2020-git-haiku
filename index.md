@@ -1,4 +1,4 @@
-The summer grasses.    
-The lips feel cold.    
-Seasoned with petals    
+White cloud of mist    
+and bring to men a chance to rest    
+Mountain-top jewels    
 
