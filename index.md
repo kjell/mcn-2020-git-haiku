@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-stretching over Sado Island    
-are darkened . . .    
+Lightning -    
+How swift it is    
+Morning-glory gazing    
 
