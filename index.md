@@ -1,4 +1,4 @@
-Temple bells die out.    
-soup, the salad, fish and all    
-cherry-blossoms . . .    
+Must springtime fade?    
+scatters in the night; Now see    
+A butterfly floats and balances    
 
