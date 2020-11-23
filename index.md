@@ -1,4 +1,4 @@
-This snowy morning    
-Twilight whippoorwill, whistle on, sweet deepener    
-Since there is no rice    
+None is travelling    
+just enough to bend the leaves    
+Like our tendrilled life    
 
