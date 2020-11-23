@@ -1,4 +1,4 @@
-Won't you come and see    
-that black crow I hate so much    
-Darting dragon-fly!    
+None is travelling    
+quick unexpected frog    
+How soon it must die.    
 
