@@ -1,4 +1,4 @@
-Lightning -    
-Penetrating the very rock,    
-And evening bell    
+Dawn-shining mountains    
+Heron's cry    
+are darkened . . .    
 
