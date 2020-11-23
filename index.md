@@ -1,4 +1,4 @@
-Lightning -    
-How swift it is    
-Morning-glory gazing    
+Dewdrop, let me cleanse    
+let us arrange these flowers    
+Ueno? Asakura?    
 
