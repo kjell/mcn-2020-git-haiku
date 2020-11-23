@@ -1,4 +1,4 @@
-Lightning -    
-that black crow I hate so much    
-are darkened . . .    
+When you say something,    
+mingling with bright small shells    
+Bearded, with bent canes    
 
