@@ -1,4 +1,4 @@
-Spring is passing.    
-soup, the salad, fish and all    
-Bearded, with bent canes    
+Seek on high bare trails    
+thoughts come - and there is loneliness;    
+A lovely sunset    
 
