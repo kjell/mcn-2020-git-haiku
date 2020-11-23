@@ -1,4 +1,4 @@
-When you say something,    
-The fragrant blossoms remain.    
-Murmuring Mogami    
+White cloud of mist    
+who spends his little breakfast    
+A little woven cape    
 
