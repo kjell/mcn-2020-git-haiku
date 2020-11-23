@@ -1,4 +1,4 @@
-Must springtime fade?    
-scatters in the night; Now see    
-Marks only midnight yet    
+Seek on high bare trails    
+How swift it is    
+Silent clouds of stars    
 
