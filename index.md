@@ -1,4 +1,4 @@
-Seas are wild tonight    
+The first day of the year:    
 then cry all birds and fishes    
-Splash!    
+Murmuring Mogami    
 
