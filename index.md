@@ -1,4 +1,4 @@
-Lightning -    
-and bring to men a chance to rest    
-On the temple porch    
+This is the new line    
+The birds cry, and the fishes’ eyes are     
+The autumn dusk is here.    
 
