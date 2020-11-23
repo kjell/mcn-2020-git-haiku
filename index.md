@@ -1,4 +1,4 @@
-See: surviving suns    
-and bring to men a chance to rest    
-This autumn evening.    
+When you say something,    
+The fragrant blossoms remain.    
+Murmuring Mogami    
 
