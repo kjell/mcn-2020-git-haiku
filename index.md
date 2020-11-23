@@ -1,4 +1,4 @@
 Won't you come and see    
-perfumes her wings by floating    
-This autumn evening.    
+dead leaves alone foregather    
+It’s the Doll’s Festival.    
 
