@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-How swift it is    
-from the kiri tree.    
+Dewdrop, let me cleanse    
+stretching over Sado Island    
+are darkened . . .    
 
