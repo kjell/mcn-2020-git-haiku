@@ -1,4 +1,4 @@
-Must springtime fade?    
-twin butterflies until, twice white    
-Of warriors’ dreams.    
+Temple bells die out.    
+captains swore grand conquest    
+Stabs the darkness    
 
