@@ -1,4 +1,4 @@
-None is travelling    
-just enough to bend the leaves    
-Like our tendrilled life    
+This is the new line    
+even the crickets' singing    
+A little woven cape    
 
