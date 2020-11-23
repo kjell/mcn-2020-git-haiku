@@ -1,4 +1,4 @@
-Carven gods long gone    
-starving for fat fish or mice    
-Come to rest our necks    
+In the twilight rain    
+soup, the salad, fish and all    
+Mogami River.    
 
