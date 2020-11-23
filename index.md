@@ -1,4 +1,4 @@
-For a lovely bowl    
-falling, falling, falling now    
-Murmuring Mogami    
+Carven gods long gone    
+starving for fat fish or mice    
+Come to rest our necks    
 
