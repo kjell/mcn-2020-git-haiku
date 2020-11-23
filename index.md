@@ -1,4 +1,4 @@
-Now the swinging bridge    
-tolling twilight bell; Temple    
-Moon-lighted mountains!    
+Why so scrawny, cat?    
+therefore our thanks dark clouds    
+A perfect evening!    
 
