@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-starving for fat fish or mice    
-Moon-lighted mountains!    
+Carven gods long gone    
+captains swore grand conquest    
+Basho lines the moon    
 
