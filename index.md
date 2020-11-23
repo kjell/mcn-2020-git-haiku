@@ -1,4 +1,4 @@
-Oh, tranquility!    
-Is also changed to another    
-Seasoned with petals    
+Lightning -    
+and bring to men a chance to rest    
+Companion butterfly!    
 
