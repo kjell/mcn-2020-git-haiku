@@ -1,4 +1,4 @@
-Under cherry-trees    
-All that remains    
-Or backyard love?    
+If there were fragrance    
+The lips feel cold.    
+A little woven cape    
 
