@@ -1,4 +1,4 @@
-Won't you come and see    
-dead leaves alone foregather    
-It’s the Doll’s Festival.    
+The rains of summer join together.    
+There's no sign that can foretell    
+Muffled by hot rocks    
 
