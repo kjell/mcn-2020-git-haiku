@@ -1,4 +1,4 @@
-Temple bells die out.    
-captains swore grand conquest    
-Stabs the darkness    
+Dry cheerful cricket    
+How swift it is    
+from the kiri tree.    
 
