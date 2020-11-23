@@ -1,4 +1,4 @@
-Ballet in the air    
-starving for fat fish or mice    
-The autumn dusk is here.    
+Oh, tranquility!    
+Is also changed to another    
+Seasoned with petals    
 
