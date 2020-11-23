@@ -1,4 +1,4 @@
-Now in sad autumn    
-let us arrange these flowers    
-Silent clouds of stars    
+Bright red pepper-pod    
+who spends his little breakfast    
+Our hungry donkey    
 
