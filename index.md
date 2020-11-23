@@ -1,4 +1,4 @@
-Lightning -    
-is quieted with creepers    
-Tall grass their monument    
+This is the new line    
+The birds cry, and the fishes’ eyes are     
+Mogami River.    
 
