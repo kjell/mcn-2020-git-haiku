@@ -1,4 +1,4 @@
-The river gathering may rains    
-thoughts come - and there is loneliness;    
-The Autumn wind.    
+None is travelling    
+Penetrating the very rock,    
+Like our tendrilled life    
 
