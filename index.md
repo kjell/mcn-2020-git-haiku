@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-Heron's cry    
-are darkened . . .    
+Black cloudbank broken    
+oh voices of the wild ducks    
+Of warriors’ dreams.    
 
