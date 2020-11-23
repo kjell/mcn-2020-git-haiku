@@ -1,4 +1,4 @@
-Ballet in the air    
-let us arrange these flowers    
-Companion butterfly!    
+In the cicada's cry    
+starving for fat fish or mice    
+These dark hands of life    
 
