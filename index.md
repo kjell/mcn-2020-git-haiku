@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-from cold streamlets for the sea    
-A cicada’s voice.    
+In the cicada's cry    
+visit the ancestral grave    
+Stabs the darkness    
 
