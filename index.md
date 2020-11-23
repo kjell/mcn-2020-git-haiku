@@ -1,4 +1,4 @@
-In the sea-surf edge    
-Here along this way but I,    
-Tall grass their monument    
+This snowy morning    
+Twilight whippoorwill, whistle on, sweet deepener    
+Since there is no rice    
 
