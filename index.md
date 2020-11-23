@@ -1,4 +1,4 @@
-An old pond    
-above white    
-A cicada’s voice.    
+In the cicada's cry    
+quick unexpected frog    
+Muffled by hot rocks    
 
