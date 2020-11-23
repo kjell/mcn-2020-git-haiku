@@ -1,4 +1,4 @@
-Such utter silence!    
-April's air stirs in willow-leaves    
-Since there is no rice    
+Ah me! I am one    
+here at your flowering grave    
+How soon it must die.    
 
