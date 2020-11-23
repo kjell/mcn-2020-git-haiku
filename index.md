@@ -1,4 +1,4 @@
-In the sea-surf edge    
-perfumes her wings by floating    
-A little woven cape    
+Clouds come from time to time -    
+Here along this way but I,    
+Splash!    
 
