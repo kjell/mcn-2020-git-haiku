@@ -1,4 +1,4 @@
-Spring is passing.    
-I am off to bed - but ah!    
-This autumn evening.    
+Lady butterfly    
+and bring to men a chance to rest    
+Stabs the darkness    
 
