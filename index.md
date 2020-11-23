@@ -1,4 +1,4 @@
-If there were fragrance    
-The lips feel cold.    
-A little woven cape    
+Temple bells die out.    
+How swift it is    
+On the temple porch    
 
