@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-above white    
-Morning-glory gazing    
+Cold first winter rain    
+loneliness? Just one leaf    
+A perfect evening!    
 
