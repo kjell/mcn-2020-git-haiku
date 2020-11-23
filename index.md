@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-the scent of flowers floating    
-from looking at the moon.    
+Won't you come and see    
+Here along this way but I,    
+Morning-glory gazing    
 
