@@ -1,4 +1,4 @@
-Lightning -    
-and bring to men a chance to rest    
-Companion butterfly!    
+For a lovely bowl    
+falling, falling, falling now    
+Murmuring Mogami    
 
