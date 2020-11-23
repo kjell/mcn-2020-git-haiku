@@ -1,4 +1,4 @@
-Won't you come and see    
-There's no sign that can foretell    
-Splash!    
+Now that eyes of hawks    
+from cold streamlets for the sea    
+A cicada’s voice.    
 
