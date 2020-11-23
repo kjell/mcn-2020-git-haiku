@@ -1,4 +1,4 @@
-When you say something,    
-as I take my darkening path    
-Mountain-top jewels    
+Dewdrop, let me cleanse    
+Penetrating the very rock,    
+Murmuring Mogami    
 
