@@ -1,4 +1,4 @@
-Poverty's child -    
-in your brief sweet waters    
-Since there is no rice    
+Now that eyes of hawks    
+twin butterflies until, twice white    
+This autumn evening.    
 
