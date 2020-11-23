@@ -1,4 +1,4 @@
-Too curious flower    
-The lips feel cold.    
-Of warriors’ dreams.    
+The rains of summer join together.    
+falling, falling, falling now    
+Over the orchid    
 
