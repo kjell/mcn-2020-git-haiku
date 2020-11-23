@@ -1,4 +1,4 @@
-The first day of the year:    
-then cry all birds and fishes    
-Murmuring Mogami    
+Temple bells die out.    
+is quieted with creepers    
+My moonlit pillow    
 
