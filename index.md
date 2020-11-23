@@ -1,4 +1,4 @@
-In the cicada's cry    
-starving for fat fish or mice    
-These dark hands of life    
+Lightning -    
+that black crow I hate so much    
+are darkened . . .    
 
