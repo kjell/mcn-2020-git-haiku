@@ -1,4 +1,4 @@
-Carven gods long gone    
-April's air stirs in willow-leaves    
-A solitary bird    
+The sea darkening    
+Penetrating the very rock,    
+Companion butterfly!    
 
