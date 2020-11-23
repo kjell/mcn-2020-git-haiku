@@ -1,4 +1,4 @@
-Cold first winter rain    
-loneliness? Just one leaf    
-A perfect evening!    
+Carven gods long gone    
+April's air stirs in willow-leaves    
+A solitary bird    
 
