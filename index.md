@@ -1,4 +1,4 @@
-The first day of the year:    
-oh voices of the wild ducks    
-Splash!    
+None is travelling    
+Is also changed to another    
+Two white butterflies?    
 
