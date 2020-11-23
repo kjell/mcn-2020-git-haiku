@@ -1,4 +1,4 @@
-See: surviving suns    
+Must springtime fade?    
 scatters in the night; Now see    
-Cold pale eyes pour tears    
+Marks only midnight yet    
 
