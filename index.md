@@ -1,4 +1,4 @@
-In the cicada's cry    
-Is also changed to another    
-Of warriors’ dreams.    
+Carven gods long gone    
+let us arrange these flowers    
+Darting dragon-fly!    
 
