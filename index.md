@@ -1,4 +1,4 @@
-The rains of summer join together.    
-even the crickets' singing    
-Lilies on the rocks    
+Won't you come and see    
+There's no sign that can foretell    
+Splash!    
 
