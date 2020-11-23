@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-who spends his little breakfast    
-Our hungry donkey    
+Won't you come and see    
+that black crow I hate so much    
+Darting dragon-fly!    
 
