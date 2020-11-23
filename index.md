@@ -1,4 +1,4 @@
-Spring is passing.    
-spare my little buzzing friends    
-Splash!    
+The river gathering may rains    
+thoughts come - and there is loneliness;    
+The Autumn wind.    
 
