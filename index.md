@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-let us arrange these flowers    
-Ueno? Asakura?    
+Lightning -    
+and bring to men a chance to rest    
+On the temple porch    
 
