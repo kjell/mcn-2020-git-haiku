@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-Penetrating the very rock,    
-Murmuring Mogami    
+See: surviving suns    
+and bring to men a chance to rest    
+This autumn evening.    
 
