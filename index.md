@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-stretching over Sado Island    
-Mountain-top jewels    
+Swallow in the dusk    
+in dusky night    
+These dark hands of life    
 
