@@ -1,4 +1,4 @@
-Lightning -    
-and bring to men a chance to rest    
-from the kiri tree.    
+Swallow in the dusk    
+All that remains    
+Our hungry donkey    
 
