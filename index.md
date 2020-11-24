@@ -1,4 +1,4 @@
-Ah me! I am one    
-April's air stirs in willow-leaves    
-Since there is no rice    
+Poverty's child -    
+just enough to bend the leaves    
+On the temple porch    
 
