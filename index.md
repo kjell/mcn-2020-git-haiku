@@ -1,4 +1,4 @@
-Swallow in the dusk    
-All that remains    
-Our hungry donkey    
+Won't you come and see    
+twin butterflies until, twice white    
+Or backyard love?    
 
