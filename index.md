@@ -1,4 +1,4 @@
-In the cicada's cry    
-starving for fat fish or mice    
-Companion butterfly!    
+White cloud of mist    
+There's no sign that can foretell    
+With tears.    
 
