@@ -1,4 +1,4 @@
-In the cicada's cry    
-Is also changed to another    
-Cherry-blossoms    
+The summer grasses.    
+chirping, keeps the autumn gay    
+Like our tendrilled life    
 
