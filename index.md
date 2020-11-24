@@ -1,4 +1,4 @@
-Poverty's child -    
-stretching over Sado Island    
-Mogami River.    
+Why so scrawny, cat?    
+even the crickets' singing    
+It’s the Doll’s Festival.    
 
