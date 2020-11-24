@@ -1,4 +1,4 @@
-Ballet in the air    
-How swift it is    
-With tears.    
+Poverty's child -    
+thoughts come - and there is loneliness;    
+Morning-glory gazing    
 
