@@ -1,4 +1,4 @@
-Oh, tranquility!    
-How swift it is    
-A water-jewel    
+Camellia-petal    
+soup, the salad, fish and all    
+Moon-lighted mountains!    
 
