@@ -1,4 +1,4 @@
-In the cicada's cry    
-the scent of flowers floating    
-Like our tendrilled life    
+Now that eyes of hawks    
+perfumes her wings by floating    
+Mogami River.    
 
