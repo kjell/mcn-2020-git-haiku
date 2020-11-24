@@ -1,4 +1,4 @@
-Cold first winter rain    
-Twilight whippoorwill, whistle on, sweet deepener    
-Bearded, with bent canes    
+Dry cheerful cricket    
+falling, falling, falling now    
+My moonlit pillow    
 
