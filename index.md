@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-perfumes her wings by floating    
-Mogami River.    
+The sea darkening    
+chirping, keeps the autumn gay    
+Over the orchid    
 
