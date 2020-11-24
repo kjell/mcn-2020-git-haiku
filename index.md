@@ -1,4 +1,4 @@
-Lightning -    
-Here along this way but I,    
-are darkened . . .    
+A owner of the old thatched hut    
+let us arrange these flowers    
+A cicada’s voice.    
 
