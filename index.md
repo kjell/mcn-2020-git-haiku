@@ -1,4 +1,4 @@
-For a lovely bowl    
-oh voices of the wild ducks    
-are darkened    
+This snowy morning    
+he starts to grind the rice,    
+Come to rest our necks    
 
