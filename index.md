@@ -1,4 +1,4 @@
-In the sea-surf edge    
-Heron's cry    
-This autumn evening.    
+No oil to read by    
+above white    
+How soon it must die.    
 
