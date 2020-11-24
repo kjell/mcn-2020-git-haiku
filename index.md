@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-even the crickets' singing    
-It’s the Doll’s Festival.    
+Wake! The sky is light!    
+that black crow I hate so much    
+Darting dragon-fly!    
 
