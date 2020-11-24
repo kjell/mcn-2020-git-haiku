@@ -1,4 +1,4 @@
-None is travelling    
-even the crickets' singing    
-Bush-clover petals    
+Oh, tranquility!    
+and bring to men a chance to rest    
+A solitary bird    
 
