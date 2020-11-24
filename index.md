@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-that black crow I hate so much    
-Darting dragon-fly!    
+An old pond    
+he starts to grind the rice,    
+cherry-blossoms . . .    
 
