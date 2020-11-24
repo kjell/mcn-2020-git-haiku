@@ -1,4 +1,4 @@
-The first day of the year:    
-soup, the salad, fish and all    
-A water-jewel    
+Ballet in the air    
+How swift it is    
+With tears.    
 
