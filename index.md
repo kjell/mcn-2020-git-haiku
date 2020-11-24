@@ -1,4 +1,4 @@
-White cloud of mist    
-he starts to grind the rice,    
-cherry-blossoms . . .    
+Oh, tranquility!    
+How swift it is    
+A water-jewel    
 
