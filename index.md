@@ -1,4 +1,4 @@
-An old pond    
-Here along this way but I,    
-Two white butterflies?    
+In the twilight rain    
+perfumes her wings by floating    
+Or backyard love?    
 
