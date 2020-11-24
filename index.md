@@ -1,4 +1,4 @@
-Won't you come and see    
-mingling with bright small shells    
-Lilies on the rocks    
+For a lovely bowl    
+he starts to grind the rice,    
+Marks only midnight yet    
 
