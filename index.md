@@ -1,4 +1,4 @@
 In the cicada's cry    
-How swift it is    
-With tears.    
+starving for fat fish or mice    
+Companion butterfly!    
 
