@@ -1,4 +1,4 @@
-This snowy morning    
-he starts to grind the rice,    
-Come to rest our necks    
+None is travelling    
+The fragrant blossoms remain.    
+Among the flowers    
 
