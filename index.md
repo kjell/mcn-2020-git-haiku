@@ -1,4 +1,4 @@
-In the twilight rain    
-perfumes her wings by floating    
-Or backyard love?    
+Why so scrawny, cat?    
+it needs but shiny wings and look    
+Cherry-blossoms    
 
