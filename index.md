@@ -1,4 +1,4 @@
 In the twilight rain    
-There's no sign that can foretell    
-and gazes at the moon.    
+to see the moon, whose solemn pace    
+Muffled by hot rocks    
 
