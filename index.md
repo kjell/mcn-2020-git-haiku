@@ -1,4 +1,4 @@
-For a lovely bowl    
-these brilliant-hued hibiscus    
-A butterfly floats and balances    
+Won't you come and see    
+visit the ancestral grave    
+Contemptuous of frost    
 
