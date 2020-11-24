@@ -1,4 +1,4 @@
-Poverty's child -    
-thoughts come - and there is loneliness;    
-Morning-glory gazing    
+An old pond    
+the scent of flowers floating    
+On the temple porch    
 
