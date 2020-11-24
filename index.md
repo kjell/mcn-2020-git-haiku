@@ -1,4 +1,4 @@
-Poverty's child -    
-just enough to bend the leaves    
-On the temple porch    
+Temple bells die out.    
+There's no sign that can foretell    
+With tears.    
 
