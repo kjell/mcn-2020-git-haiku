@@ -1,4 +1,4 @@
-If there were fragrance    
-dead leaves alone foregather    
-Come to rest our necks    
+A owner of the old thatched hut    
+Here along this way but I,    
+Lilies on the rocks    
 
