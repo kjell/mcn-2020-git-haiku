@@ -1,4 +1,4 @@
-Poverty's child -    
-I am off to bed - but ah!    
-A cicada’s voice.    
+In the cicada's cry    
+watching us pass, met death    
+Companion butterfly!    
 
