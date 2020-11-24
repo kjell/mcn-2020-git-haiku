@@ -1,4 +1,4 @@
-The rains of summer join together.    
-falling, falling, falling now    
-The autumn dusk is here.    
+Nine times arising    
+he starts to grind the rice,    
+Mogami River.    
 
