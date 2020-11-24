@@ -1,4 +1,4 @@
-Camellia-petal    
-and bring to men a chance to rest    
-Muffled by hot rocks    
+In the sea-surf edge    
+Is also changed to another    
+Darting dragon-fly!    
 
