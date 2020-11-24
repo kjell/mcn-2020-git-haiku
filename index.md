@@ -1,4 +1,4 @@
-Carven gods long gone    
-he starts to grind the rice,    
-The autumn dusk is here.    
+Cold first winter rain    
+Twilight whippoorwill, whistle on, sweet deepener    
+Bearded, with bent canes    
 
