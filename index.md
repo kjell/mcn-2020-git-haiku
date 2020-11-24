@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-it needs but shiny wings and look    
-Cherry-blossoms    
+None is travelling    
+A frog jumps in -    
+It’s the Doll’s Festival.    
 
