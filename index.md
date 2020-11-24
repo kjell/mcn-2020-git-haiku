@@ -1,4 +1,4 @@
-For a lovely bowl    
-he starts to grind the rice,    
-Marks only midnight yet    
+Such utter silence!    
+The fragrant blossoms remain.    
+With tears.    
 
