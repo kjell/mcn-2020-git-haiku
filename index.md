@@ -1,4 +1,4 @@
-Temple bells die out.    
-There's no sign that can foretell    
-With tears.    
+Dawn-shining mountains    
+and bring to men a chance to rest    
+They meet, they mate    
 
