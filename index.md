@@ -1,4 +1,4 @@
-In the cicada's cry    
+An old pond    
 Here along this way but I,    
-Of warriors’ dreams.    
+Two white butterflies?    
 
