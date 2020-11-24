@@ -1,4 +1,4 @@
-In the cicada's cry    
-watching us pass, met death    
-Companion butterfly!    
+Lightning -    
+and bring to men a chance to rest    
+from the kiri tree.    
 
