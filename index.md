@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-falling, falling, falling now    
-My moonlit pillow    
+Mountain-rose petals    
+visit the ancestral grave    
+A water-jewel    
 
