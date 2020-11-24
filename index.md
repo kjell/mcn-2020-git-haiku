@@ -1,4 +1,4 @@
-Chirping of the quails    
-let us arrange these flowers    
-Of warriors’ dreams.    
+The summer grasses.    
+Heron's cry    
+Ueno? Asakura?    
 
