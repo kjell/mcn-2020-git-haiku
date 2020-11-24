@@ -1,4 +1,4 @@
-Swallow in the dusk    
-in dusky night    
-These dark hands of life    
+Carven gods long gone    
+quick unexpected frog    
+Over the orchid    
 
