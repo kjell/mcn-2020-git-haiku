@@ -1,4 +1,4 @@
-None is travelling    
-is quieted with creepers    
-cherry-blossoms . . .    
+Dewdrop, let me cleanse    
+let us to the road again    
+How soon it must die.    
 
