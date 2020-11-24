@@ -1,4 +1,4 @@
-Nine times arising    
-The birds cry, and the fishes’ eyes are     
-Our hungry donkey    
+Why so scrawny, cat?    
+stretching over Sado Island    
+Mountain-top jewels    
 
