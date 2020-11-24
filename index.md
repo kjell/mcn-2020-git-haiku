@@ -1,4 +1,4 @@
-See: surviving suns    
-captains swore grand conquest    
-A butterfly floats and balances    
+Clouds come from time to time -    
+How swift it is    
+Mountain-top jewels    
 
