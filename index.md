@@ -1,4 +1,4 @@
-See: surviving suns    
-How swift it is    
-This autumn evening.    
+Why so scrawny, cat?    
+watching us pass, met death    
+Mogami River.    
 
