@@ -1,4 +1,4 @@
-Won't you come and see    
-these heavy snow-flakes settling    
-A perfect evening!    
+Now that eyes of hawks    
+I am off to bed - but ah!    
+Over the orchid    
 
