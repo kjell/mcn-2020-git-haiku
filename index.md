@@ -1,4 +1,4 @@
-Such utter silence!    
-Penetrating the very rock,    
-Lilies on the rocks    
+Poverty's child -    
+I am off to bed - but ah!    
+A cicada’s voice.    
 
