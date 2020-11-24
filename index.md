@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-Heron's cry    
-Moon-lighted mountains!    
+No oil to read by    
+watching us pass, met death    
+Darting dragon-fly!    
 
