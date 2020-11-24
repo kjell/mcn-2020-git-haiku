@@ -1,4 +1,4 @@
-This snowy morning    
-The fragrant blossoms remain.    
-Come to rest our necks    
+The first day of the year:    
+soup, the salad, fish and all    
+A water-jewel    
 
