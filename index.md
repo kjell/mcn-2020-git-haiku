@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-let us to the road again    
-How soon it must die.    
+Won't you come and see    
+these heavy snow-flakes settling    
+A perfect evening!    
 
