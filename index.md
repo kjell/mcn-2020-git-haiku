@@ -1,4 +1,4 @@
-See: surviving suns    
-chirping, keeps the autumn gay    
-They meet, they mate    
+Temple bells die out.    
+Is also changed to another    
+Splash!    
 
