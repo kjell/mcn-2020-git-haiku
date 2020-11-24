@@ -1,4 +1,4 @@
-This is the new line    
-even the crickets' singing    
-A little woven cape    
+None is travelling    
+in your brief sweet waters    
+Basho lines the moon    
 
