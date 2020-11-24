@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-just enough to bend the leaves    
-On the temple porch    
+Lightning -    
+Here along this way but I,    
+are darkened . . .    
 
