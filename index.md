@@ -1,4 +1,4 @@
-An old pond    
-the scent of flowers floating    
-On the temple porch    
+None is travelling    
+is quieted with creepers    
+cherry-blossoms . . .    
 
