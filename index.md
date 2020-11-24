@@ -1,4 +1,4 @@
-No oil to read by    
-above white    
-How soon it must die.    
+Chirping of the quails    
+in your brief sweet waters    
+They meet, they mate    
 
