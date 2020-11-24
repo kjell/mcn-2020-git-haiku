@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-thoughts come - and there is loneliness;    
-With tears.    
+Camellia-petal    
+and bring to men a chance to rest    
+Muffled by hot rocks    
 
