@@ -1,4 +1,4 @@
-In the twilight rain    
-to see the moon, whose solemn pace    
-Muffled by hot rocks    
+The summer grasses.    
+Heron's cry    
+Cold pale eyes pour tears    
 
