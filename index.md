@@ -1,4 +1,4 @@
-Temple bells die out.    
-Is also changed to another    
-Splash!    
+Here, where a thousand    
+starving for fat fish or mice    
+Murmuring Mogami    
 
