@@ -1,4 +1,4 @@
-In the cicada's cry    
-Heron's cry    
-But he's beautiful!    
+Chirping of the quails    
+let us arrange these flowers    
+Of warriors’ dreams.    
 
