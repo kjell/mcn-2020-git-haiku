@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-How swift it is    
-Mountain-top jewels    
+Carven gods long gone    
+here at your flowering grave    
+Marks only midnight yet    
 
