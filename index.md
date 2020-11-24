@@ -1,4 +1,4 @@
-Here, where a thousand    
-these brilliant-hued hibiscus    
-Murmuring Mogami    
+Bright red pepper-pod    
+is quieted with creepers    
+and gazes at the moon.    
 
