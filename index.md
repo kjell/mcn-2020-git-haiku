@@ -1,4 +1,4 @@
-Nine times arising    
-he starts to grind the rice,    
-A perfect evening!    
+Spring is passing.    
+stretching over Sado Island    
+Over the orchid    
 
