@@ -1,4 +1,4 @@
-Here, where a thousand    
-The birds cry, and the fishes’ eyes are     
-Bush-clover petals    
+In the cicada's cry    
+Here along this way but I,    
+Of warriors’ dreams.    
 
