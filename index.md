@@ -1,4 +1,4 @@
-None is travelling    
-There's no sign that can foretell    
-from looking at the moon.    
+In the cicada's cry    
+Heron's cry    
+But he's beautiful!    
 
