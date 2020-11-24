@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Penetrating the very rock,    
-are darkened    
+In the sea-surf edge    
+Heron's cry    
+This autumn evening.    
 
