@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-watching us pass, met death    
-Mogami River.    
+None is travelling    
+There's no sign that can foretell    
+from looking at the moon.    
 
