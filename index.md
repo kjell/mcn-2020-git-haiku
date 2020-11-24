@@ -1,4 +1,4 @@
-Spring is passing.    
-loneliness? Just one leaf    
-Come to rest our necks    
+Clouds come from time to time -    
+just enough to bend the leaves    
+On the temple porch    
 
