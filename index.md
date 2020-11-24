@@ -1,4 +1,4 @@
-No oil to read by    
-watching us pass, met death    
-Darting dragon-fly!    
+Nine times arising    
+The birds cry, and the fishes’ eyes are     
+Our hungry donkey    
 
