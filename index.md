@@ -1,4 +1,4 @@
-The first day of the year:    
-All that remains    
-Cold pale eyes pour tears    
+In the cicada's cry    
+Here along this way but I,    
+Tall grass their monument    
 
