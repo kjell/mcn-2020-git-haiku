@@ -1,4 +1,4 @@
-Camellia-petal    
-soup, the salad, fish and all    
-Moon-lighted mountains!    
+First white snow of fall    
+he starts to grind the rice,    
+Or backyard love?    
 
