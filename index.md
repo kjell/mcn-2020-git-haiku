@@ -1,4 +1,4 @@
-Nine times arising    
-he starts to grind the rice,    
-Mogami River.    
+Old dark sleepy pool    
+A frog jumps in -    
+With tears.    
 
