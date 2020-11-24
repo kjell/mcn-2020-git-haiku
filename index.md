@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-Heron's cry    
-from looking at the moon.    
+An old pond    
+mingling with bright small shells    
+It’s the Doll’s Festival.    
 
