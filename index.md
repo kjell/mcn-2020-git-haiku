@@ -1,4 +1,4 @@
-When you say something,    
-to see the moon, whose solemn pace    
-Of warriors’ dreams.    
+See: surviving suns    
+captains swore grand conquest    
+A butterfly floats and balances    
 
