@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-is quieted with creepers    
-and gazes at the moon.    
+Here, where a thousand    
+The birds cry, and the fishes’ eyes are     
+Bush-clover petals    
 
