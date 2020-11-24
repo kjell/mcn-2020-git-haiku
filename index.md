@@ -1,4 +1,4 @@
-First white snow of fall    
-he starts to grind the rice,    
-Or backyard love?    
+The first day of the year:    
+let us arrange these flowers    
+The autumn dusk is here.    
 
