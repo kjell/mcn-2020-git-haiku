@@ -1,4 +1,4 @@
-Must springtime fade?    
-fell in silent dawn, spilling    
-A cicada’s voice.    
+The rains of summer join together.    
+Penetrating the very rock,    
+are darkened    
 
