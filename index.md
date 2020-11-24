@@ -1,4 +1,4 @@
-Mountain-rose petals    
-visit the ancestral grave    
-A water-jewel    
+The first day of the year:    
+All that remains    
+Cold pale eyes pour tears    
 
