@@ -1,4 +1,4 @@
-The sea darkening    
-The fragrant blossoms remain.    
-Moon-lighted mountains!    
+Nine times arising    
+he starts to grind the rice,    
+A perfect evening!    
 
