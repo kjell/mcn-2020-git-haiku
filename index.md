@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-he starts to grind the rice,    
-My moonlit pillow    
+Must springtime fade?    
+fell in silent dawn, spilling    
+A cicada’s voice.    
 
