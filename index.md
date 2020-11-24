@@ -1,4 +1,4 @@
-Poverty's child -    
-these heavy snow-flakes settling    
-A little woven cape    
+In the cicada's cry    
+Is also changed to another    
+Cherry-blossoms    
 
