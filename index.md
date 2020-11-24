@@ -1,4 +1,4 @@
-Carven gods long gone    
-here at your flowering grave    
-Marks only midnight yet    
+Here, where a thousand    
+these brilliant-hued hibiscus    
+Murmuring Mogami    
 
