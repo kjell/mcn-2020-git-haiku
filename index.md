@@ -1,4 +1,4 @@
-An old pond    
-mingling with bright small shells    
-It’s the Doll’s Festival.    
+Dawn-shining mountains    
+he starts to grind the rice,    
+My moonlit pillow    
 
