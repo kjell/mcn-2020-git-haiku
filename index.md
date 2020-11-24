@@ -1,4 +1,4 @@
-In the cicada's cry    
-Here along this way but I,    
-Tall grass their monument    
+Such utter silence!    
+The fragrant blossoms remain.    
+the autumn dusk is here.    
 
