@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-I am off to bed - but ah!    
-Over the orchid    
+White cloud of mist    
+he starts to grind the rice,    
+cherry-blossoms . . .    
 
