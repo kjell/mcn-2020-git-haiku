@@ -1,4 +1,4 @@
 Carven gods long gone    
-quick unexpected frog    
-Over the orchid    
+he starts to grind the rice,    
+The autumn dusk is here.    
 
