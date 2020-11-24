@@ -1,4 +1,4 @@
-The summer grasses.    
-Heron's cry    
-Cold pale eyes pour tears    
+This snowy morning    
+The fragrant blossoms remain.    
+Come to rest our necks    
 
