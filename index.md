@@ -1,4 +1,4 @@
-Silent the old town    
-perfumes her wings by floating    
-Moon-lighted mountains!    
+Mountain-rose petals    
+chirping, keeps the autumn gay    
+It’s the Doll’s Festival.    
 
