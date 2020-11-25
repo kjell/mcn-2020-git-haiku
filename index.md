@@ -1,4 +1,4 @@
-Chirping of the quails    
-is quieted with creepers    
-Goes plop! Watersplash!    
+Temple bells die out.    
+as I take my darkening path    
+Among the flowers    
 
