@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-stretching over Sado Island    
-are darkened    
+Dawn-shining mountains    
+just enough to bend the leaves    
+Darting dragon-fly!    
 
