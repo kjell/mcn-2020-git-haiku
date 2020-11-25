@@ -1,4 +1,4 @@
-Lady butterfly    
-watching us pass, met death    
-Of faded daffodils    
+Nine times arising    
+here at your flowering grave    
+And evening bell    
 
