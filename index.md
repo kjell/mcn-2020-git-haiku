@@ -1,4 +1,4 @@
-Spring is passing.    
-as I take my darkening path    
-My moonlit pillow    
+The first day of the year:    
+sky-reflecting violets    
+Goes plop! Watersplash!    
 
