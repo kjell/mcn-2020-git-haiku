@@ -1,4 +1,4 @@
-The summer grasses.    
-just enough to bend the leaves    
-A cicada’s voice.    
+Why so scrawny, cat?    
+soup, the salad, fish and all    
+Among the flowers    
 
