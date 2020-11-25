@@ -1,4 +1,4 @@
-White cloud of mist    
-dead leaves alone foregather    
-Cold pale eyes pour tears    
+Will we meet again    
+A frog jumps in -    
+Goes plop! Watersplash!    
 
