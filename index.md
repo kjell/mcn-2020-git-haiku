@@ -1,4 +1,4 @@
-Lady butterfly    
-sky-reflecting violets    
-are darkened    
+Dry cheerful cricket    
+then cry all birds and fishes    
+from the kiri tree.    
 
