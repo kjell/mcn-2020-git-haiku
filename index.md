@@ -1,4 +1,4 @@
-The first day of the year:    
-then cry all birds and fishes    
-The autumn dusk is here.    
+An old pond    
+here at your flowering grave    
+Of warriors’ dreams.    
 
