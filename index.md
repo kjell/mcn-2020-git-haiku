@@ -1,4 +1,4 @@
-Swallow in the dusk    
-starving for fat fish or mice    
-the autumn dusk is here.    
+The first day of the year:    
+in dusky night    
+Mogami River.    
 
