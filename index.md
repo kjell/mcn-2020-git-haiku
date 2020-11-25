@@ -1,4 +1,4 @@
-The first day of the year:    
-in dusky night    
-Mogami River.    
+Cold first winter rain    
+to see the moon, whose solemn pace    
+My moonlit pillow    
 
