@@ -1,4 +1,4 @@
 In the cicada's cry    
-I am off to bed - but ah!    
-from looking at the moon.    
+let us to the road again    
+Splash!    
 
