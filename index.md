@@ -1,4 +1,4 @@
-Under cherry-trees    
-therefore our thanks dark clouds    
-from looking at the moon.    
+None is travelling    
+that black crow I hate so much    
+Or backyard love?    
 
