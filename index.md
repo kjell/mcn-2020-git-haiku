@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-oh voices of the wild ducks    
-from looking at the moon.    
+Spring is passing.    
+twin butterflies until, twice white    
+Morning-glory gazing    
 
