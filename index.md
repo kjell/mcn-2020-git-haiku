@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-loneliness? Just one leaf    
-A cicada’s voice.    
+White cloud of mist    
+let us arrange these flowers    
+A little woven cape    
 
