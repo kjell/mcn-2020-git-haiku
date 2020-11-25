@@ -1,4 +1,4 @@
-Lady butterfly    
-falling, falling, falling now    
-Come to rest our necks    
+Seek on high bare trails    
+chirping, keeps the autumn gay    
+Waterfall music    
 
