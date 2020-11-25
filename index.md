@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-in your brief sweet waters    
-It’s the Doll’s Festival.    
+In the cicada's cry    
+twin butterflies until, twice white    
+And evening bell    
 
