@@ -1,4 +1,4 @@
-For a lovely bowl    
-in dusky night    
-Of faded daffodils    
+Lightning -    
+let us arrange these flowers    
+Mogami River.    
 
