@@ -1,4 +1,4 @@
-The first day of the year:    
-in dusky night    
-Over the orchid    
+Lady butterfly    
+twin butterflies until, twice white    
+It’s the Doll’s Festival.    
 
