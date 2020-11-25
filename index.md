@@ -1,4 +1,4 @@
-Nine times arising    
-he starts to grind the rice,    
-With tears.    
+Lightning -    
+All that remains    
+Cherry-blossoms    
 
