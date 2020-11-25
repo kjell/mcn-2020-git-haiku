@@ -1,4 +1,4 @@
-In the cicada's cry    
-he starts to grind the rice,    
-Crying, whirling, white    
+Under cherry-trees    
+therefore our thanks dark clouds    
+from looking at the moon.    
 
