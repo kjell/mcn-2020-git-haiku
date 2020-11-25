@@ -1,4 +1,4 @@
-Too curious flower    
-these heavy snow-flakes settling    
-Cherry-blossoms    
+Now the swinging bridge    
+spare my little buzzing friends    
+Marks only midnight yet    
 
