@@ -1,4 +1,4 @@
-Carven gods long gone    
-in dusky night    
-Cold pale eyes pour tears    
+Now that eyes of hawks    
+in your brief sweet waters    
+It’s the Doll’s Festival.    
 
