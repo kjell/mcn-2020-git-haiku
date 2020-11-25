@@ -1,4 +1,4 @@
-Will we meet again    
-A frog jumps in -    
-Goes plop! Watersplash!    
+Such utter silence!    
+soup, the salad, fish and all    
+Tall grass their monument    
 
