@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-The birds cry, and the fishes’ eyes are     
-This autumn evening.    
+Nine times arising    
+he starts to grind the rice,    
+With tears.    
 
