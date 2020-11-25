@@ -1,4 +1,4 @@
-Lightning -    
-stretching over Sado Island    
-Marks only midnight yet    
+The rains of summer join together.    
+loneliness? Just one leaf    
+Companion butterfly!    
 
