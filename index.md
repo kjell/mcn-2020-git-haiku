@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-sky-reflecting violets    
-Stabs the darkness    
+This snowy morning    
+captains swore grand conquest    
+How soon it must die.    
 
