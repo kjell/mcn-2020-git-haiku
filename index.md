@@ -1,4 +1,4 @@
-Won't you come and see    
-stretching over Sado Island    
-How soon it must die.    
+Now that eyes of hawks    
+that black crow I hate so much    
+Splash!    
 
