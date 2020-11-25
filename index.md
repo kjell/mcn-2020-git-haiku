@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-let us arrange these flowers    
+The summer grasses.    
+just enough to bend the leaves    
 A cicada’s voice.    
 
