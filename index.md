@@ -1,4 +1,4 @@
-White cloud of mist    
-sky-reflecting violets    
-Silent clouds of stars    
+Wake! The sky is light!    
+these brilliant-hued hibiscus    
+This autumn evening.    
 
