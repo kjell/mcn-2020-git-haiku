@@ -1,4 +1,4 @@
-Swallow in the dusk    
-chirping, keeps the autumn gay    
-are darkened . . .    
+Lady butterfly    
+Penetrating the very rock,    
+But he's beautiful!    
 
