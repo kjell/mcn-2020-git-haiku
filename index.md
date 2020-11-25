@@ -1,4 +1,4 @@
-Nine times arising    
-here at your flowering grave    
-And evening bell    
+The sea darkening    
+starving for fat fish or mice    
+Silent clouds of stars    
 
