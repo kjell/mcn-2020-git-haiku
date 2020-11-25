@@ -1,4 +1,4 @@
-The first day of the year:    
-it needs but shiny wings and look    
-How soon it must die.    
+Why so scrawny, cat?    
+Is also changed to another    
+Bush-clover petals    
 
