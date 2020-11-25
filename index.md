@@ -1,4 +1,4 @@
-Seek on high bare trails    
-Here along this way but I,    
-are darkened . . .    
+In the twilight rain    
+even the crickets' singing    
+Stabs the darkness    
 
