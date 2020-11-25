@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-let us to the road again    
-Of dark loneliness    
+The first day of the year:    
+in dusky night    
+Over the orchid    
 
