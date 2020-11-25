@@ -1,4 +1,4 @@
-Lady butterfly    
-let us arrange these flowers    
-Mogami River.    
+Cloud of cherry-bloom    
+stretching over Sado Island    
+are darkened    
 
