@@ -1,4 +1,4 @@
-Oh, tranquility!    
-twin butterflies until, twice white    
-With tears.    
+Carven gods long gone    
+in dusky night    
+Cold pale eyes pour tears    
 
