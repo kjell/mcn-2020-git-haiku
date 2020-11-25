@@ -1,4 +1,4 @@
-For a lovely bowl    
-All that remains    
-the autumn dusk is here.    
+Lady butterfly    
+in dusky night    
+Bush-clover petals    
 
