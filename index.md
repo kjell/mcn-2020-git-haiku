@@ -1,4 +1,4 @@
-In the twilight rain    
-How swift it is    
-With tears.    
+Chirping of the quails    
+is quieted with creepers    
+Goes plop! Watersplash!    
 
