@@ -1,4 +1,4 @@
-This snowy morning    
-captains swore grand conquest    
-How soon it must die.    
+In the cicada's cry    
+A frog jumps in -    
+are darkened . . .    
 
