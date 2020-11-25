@@ -1,4 +1,4 @@
-Here, where a thousand    
-who spends his little breakfast    
-Of warriors’ dreams.    
+Cloud of cherry-bloom    
+just enough to bend the leaves    
+Two white butterflies?    
 
