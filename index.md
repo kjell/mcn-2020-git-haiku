@@ -1,4 +1,4 @@
 For a lovely bowl    
-in dusky night    
-Moon-lighted mountains!    
+All that remains    
+the autumn dusk is here.    
 
