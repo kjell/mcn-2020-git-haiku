@@ -1,4 +1,4 @@
-The summer grasses.    
-let us arrange these flowers    
-Mountain-top jewels    
+The rains of summer join together.    
+captains swore grand conquest    
+These dark hands of life    
 
