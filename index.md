@@ -1,4 +1,4 @@
-Such utter silence!    
-in your brief sweet waters    
-How soon it must die.    
+Dewdrop, let me cleanse    
+here at your flowering grave    
+Goes plop! Watersplash!    
 
