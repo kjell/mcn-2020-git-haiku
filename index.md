@@ -1,4 +1,4 @@
-Lightning -    
-April's air stirs in willow-leaves    
-Moon-lighted mountains!    
+Under cherry-trees    
+these brilliant-hued hibiscus    
+It’s the Doll’s Festival.    
 
