@@ -1,4 +1,4 @@
-The sea darkening    
-starving for fat fish or mice    
+White cloud of mist    
+sky-reflecting violets    
 Silent clouds of stars    
 
