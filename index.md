@@ -1,4 +1,4 @@
-Now the swinging bridge    
-Here along this way but I,    
-Our hungry donkey    
+Clouds come from time to time -    
+I am off to bed - but ah!    
+Silent clouds of stars    
 
