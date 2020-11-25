@@ -1,4 +1,4 @@
-Here, where a thousand    
-that black crow I hate so much    
-Morning-glory gazing    
+The first day of the year:    
+Twilight whippoorwill, whistle on, sweet deepener    
+Cherry-blossoms    
 
