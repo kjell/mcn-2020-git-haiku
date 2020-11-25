@@ -1,4 +1,4 @@
-Chirping of the quails    
+Won't you come and see    
 stretching over Sado Island    
-Tall grass their monument    
+How soon it must die.    
 
