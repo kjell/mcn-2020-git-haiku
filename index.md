@@ -1,4 +1,4 @@
-Lightning -    
+The summer grasses.    
 let us arrange these flowers    
-Mogami River.    
+Mountain-top jewels    
 
