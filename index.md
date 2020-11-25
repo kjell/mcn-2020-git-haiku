@@ -1,4 +1,4 @@
-Oh, tranquility!    
-The birds cry, and the fishes’ eyes are     
-With tears.    
+Cold first winter rain    
+A frog jumps in -    
+These dark hands of life    
 
