@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-Is also changed to another    
-Bush-clover petals    
+Lady butterfly    
+then cry all birds and fishes    
+A butterfly floats and balances    
 
