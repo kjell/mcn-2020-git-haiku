@@ -1,4 +1,4 @@
-Now in sad autumn    
-How swift it is    
-It’s the Doll’s Festival.    
+Bright red pepper-pod    
+just enough to bend the leaves    
+Tall grass their monument    
 
