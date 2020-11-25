@@ -1,4 +1,4 @@
-The sea darkening    
-Is also changed to another    
-Come to rest our necks    
+Such utter silence!    
+There's no sign that can foretell    
+Mogami River.    
 
