@@ -1,4 +1,4 @@
-Carven gods long gone    
-April's air stirs in willow-leaves    
-Tall grass their monument    
+Here, where a thousand    
+that black crow I hate so much    
+Morning-glory gazing    
 
