@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-just enough to bend the leaves    
-Darting dragon-fly!    
+This is the new line    
+even the crickets' singing    
+A cicada’s voice.    
 
