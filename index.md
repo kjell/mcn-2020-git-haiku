@@ -1,4 +1,4 @@
-Cold first winter rain    
-let us to the road again    
-Bearded, with bent canes    
+Spring is passing.    
+There's no sign that can foretell    
+Of warriors’ dreams.    
 
