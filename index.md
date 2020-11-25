@@ -1,4 +1,4 @@
-Cold first winter rain    
-to see the moon, whose solemn pace    
-My moonlit pillow    
+For a lovely bowl    
+in dusky night    
+Of faded daffodils    
 
