@@ -1,4 +1,4 @@
-In the cicada's cry    
-let us to the road again    
-Splash!    
+The sea darkening    
+Is also changed to another    
+Come to rest our necks    
 
