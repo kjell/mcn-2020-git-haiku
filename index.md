@@ -1,4 +1,4 @@
-Lady butterfly    
-then cry all birds and fishes    
-A butterfly floats and balances    
+Won't you come and see    
+above white    
+Mountain-top jewels    
 
