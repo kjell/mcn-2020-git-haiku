@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-here at your flowering grave    
-Goes plop! Watersplash!    
+Too curious flower    
+these heavy snow-flakes settling    
+Cherry-blossoms    
 
