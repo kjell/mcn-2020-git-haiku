@@ -1,4 +1,4 @@
-The rains of summer join together.    
-loneliness? Just one leaf    
-Companion butterfly!    
+Lightning -    
+tolling twilight bell; Temple    
+This autumn evening.    
 
