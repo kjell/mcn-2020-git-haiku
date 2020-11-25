@@ -1,4 +1,4 @@
-Won't you come and see    
-above white    
-Mountain-top jewels    
+Now that eyes of hawks    
+The birds cry, and the fishes’ eyes are     
+This autumn evening.    
 
