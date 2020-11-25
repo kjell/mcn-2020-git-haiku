@@ -1,4 +1,4 @@
-Now the swinging bridge    
-spare my little buzzing friends    
-Marks only midnight yet    
+A owner of the old thatched hut    
+sky-reflecting violets    
+Stabs the darkness    
 
