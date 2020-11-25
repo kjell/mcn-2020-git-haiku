@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-soup, the salad, fish and all    
-Among the flowers    
+None is travelling    
+even the crickets' singing    
+Mountain-top jewels    
 
