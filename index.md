@@ -1,4 +1,4 @@
-Lightning -    
-here at your flowering grave    
-A solitary bird    
+Oh, tranquility!    
+The birds cry, and the fishes’ eyes are     
+With tears.    
 
