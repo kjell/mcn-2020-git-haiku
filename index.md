@@ -1,4 +1,4 @@
-Spring is passing.    
-twin butterflies until, twice white    
-Morning-glory gazing    
+Camellia-petal    
+and bring to men a chance to rest    
+Of warriors’ dreams.    
 
