@@ -1,4 +1,4 @@
-Seas are wild tonight    
-he starts to grind the rice,    
-How soon it must die.    
+In the cicada's cry    
+I am off to bed - but ah!    
+from looking at the moon.    
 
