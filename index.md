@@ -1,4 +1,4 @@
-Now the swinging bridge    
-Twilight whippoorwill, whistle on, sweet deepener    
-It’s the Doll’s Festival.    
+Oh, tranquility!    
+twin butterflies until, twice white    
+With tears.    
 
