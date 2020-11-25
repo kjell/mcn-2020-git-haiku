@@ -1,4 +1,4 @@
-In the cicada's cry    
-A frog jumps in -    
-are darkened . . .    
+Temple bells die out.    
+soup, the salad, fish and all    
+Two white butterflies?    
 
