@@ -1,4 +1,4 @@
-The first day of the year:    
-Twilight whippoorwill, whistle on, sweet deepener    
-Cherry-blossoms    
+In the cicada's cry    
+he starts to grind the rice,    
+Crying, whirling, white    
 
