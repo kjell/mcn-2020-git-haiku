@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-just enough to bend the leaves    
-Two white butterflies?    
+Lightning -    
+here at your flowering grave    
+A solitary bird    
 
