@@ -1,4 +1,4 @@
-None is travelling    
-even the crickets' singing    
-Mountain-top jewels    
+Such utter silence!    
+visit the ancestral grave    
+Like our tendrilled life    
 
