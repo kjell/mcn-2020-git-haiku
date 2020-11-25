@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-these brilliant-hued hibiscus    
-This autumn evening.    
+Cold first winter rain    
+Penetrating the very rock,    
+A lovely sunset    
 
