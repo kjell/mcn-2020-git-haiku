@@ -1,4 +1,4 @@
-Such utter silence!    
-There's no sign that can foretell    
+Lady butterfly    
+let us arrange these flowers    
 Mogami River.    
 
