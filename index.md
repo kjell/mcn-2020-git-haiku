@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-I am off to bed - but ah!    
-Silent clouds of stars    
+Swallow in the dusk    
+starving for fat fish or mice    
+the autumn dusk is here.    
 
