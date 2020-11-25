@@ -1,4 +1,4 @@
-Cold first winter rain    
-Penetrating the very rock,    
-A lovely sunset    
+Carven gods long gone    
+April's air stirs in willow-leaves    
+Tall grass their monument    
 
