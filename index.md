@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-from cold streamlets for the sea    
+Now in sad autumn    
+How swift it is    
 It’s the Doll’s Festival.    
 
