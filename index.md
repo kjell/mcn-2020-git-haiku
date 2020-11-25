@@ -1,4 +1,4 @@
-Cold first winter rain    
-A frog jumps in -    
-These dark hands of life    
+Seek on high bare trails    
+Here along this way but I,    
+are darkened . . .    
 
