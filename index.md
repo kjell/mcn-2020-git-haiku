@@ -1,4 +1,4 @@
-The first day of the year:    
-oh voices of the wild ducks    
-Our hungry donkey    
+Swallow in the dusk    
+chirping, keeps the autumn gay    
+are darkened . . .    
 
