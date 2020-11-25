@@ -1,4 +1,4 @@
-Such utter silence!    
-visit the ancestral grave    
-Like our tendrilled life    
+Dry cheerful cricket    
+let us to the road again    
+Of dark loneliness    
 
