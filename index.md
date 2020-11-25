@@ -1,4 +1,4 @@
-Lady butterfly    
-these brilliant-hued hibiscus    
-Goes plop! Watersplash!    
+Here, where a thousand    
+who spends his little breakfast    
+Of warriors’ dreams.    
 
