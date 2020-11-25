@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-just enough to bend the leaves    
-Tall grass their monument    
+First white snow of fall    
+The birds cry, and the fishes’ eyes are     
+Like our tendrilled life    
 
