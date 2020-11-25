@@ -1,4 +1,4 @@
-Spring is passing.    
-There's no sign that can foretell    
-Of warriors’ dreams.    
+Now the swinging bridge    
+Twilight whippoorwill, whistle on, sweet deepener    
+It’s the Doll’s Festival.    
 
