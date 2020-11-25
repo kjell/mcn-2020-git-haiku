@@ -1,4 +1,4 @@
-Under cherry-trees    
-these brilliant-hued hibiscus    
-It’s the Doll’s Festival.    
+Won't you come and see    
+and bring to men a chance to rest    
+from looking at the moon.    
 
