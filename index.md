@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-The fragrant blossoms remain.    
-Like our tendrilled life    
+Lady butterfly    
+watching us pass, met death    
+Of faded daffodils    
 
