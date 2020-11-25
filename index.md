@@ -1,4 +1,4 @@
-None is travelling    
-that black crow I hate so much    
-Or backyard love?    
+Spring is passing.    
+as I take my darkening path    
+My moonlit pillow    
 
