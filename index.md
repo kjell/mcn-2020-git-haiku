@@ -1,4 +1,4 @@
-Lightning -    
-from cold streamlets for the sea    
-Contemptuous of frost    
+White cloud of mist    
+dead leaves alone foregather    
+Cold pale eyes pour tears    
 
