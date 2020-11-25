@@ -1,4 +1,4 @@
-Lightning -    
-he starts to grind the rice,    
-Waterfall music    
+Such utter silence!    
+in your brief sweet waters    
+How soon it must die.    
 
