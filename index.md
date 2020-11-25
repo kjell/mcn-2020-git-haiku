@@ -1,4 +1,4 @@
-Temple bells die out.    
-perfumes her wings by floating    
-Muffled by hot rocks    
+Now the swinging bridge    
+Here along this way but I,    
+Our hungry donkey    
 
