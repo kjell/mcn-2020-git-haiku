@@ -1,4 +1,4 @@
-This is the new line    
-even the crickets' singing    
-A cicada’s voice.    
+The first day of the year:    
+oh voices of the wild ducks    
+Our hungry donkey    
 
