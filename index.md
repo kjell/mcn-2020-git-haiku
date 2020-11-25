@@ -1,4 +1,4 @@
-Lightning -    
-tolling twilight bell; Temple    
-This autumn evening.    
+Cold first winter rain    
+let us to the road again    
+Bearded, with bent canes    
 
