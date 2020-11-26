@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-Line that won't be deleted    
-Silent clouds of stars    
+If there were fragrance    
+Heron's cry    
+Tall grass their monument    
 
