@@ -1,4 +1,4 @@
-In the cicada's cry    
-starving for fat fish or mice    
-Contemptuous of frost    
+Spring is passing.    
+thoughts come - and there is loneliness;    
+Marks only midnight yet    
 
