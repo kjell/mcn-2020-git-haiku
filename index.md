@@ -1,4 +1,4 @@
-Camellia-petal    
-Here along this way but I,    
-They meet, they mate    
+Bright red pepper-pod    
+poor monkey, you too could use    
+Lilies on the rocks    
 
