@@ -1,4 +1,4 @@
-Temple bells die out.    
-these heavy snow-flakes settling    
-A butterfly floats and balances    
+The sea darkening    
+dead leaves alone foregather    
+Ueno? Asakura?    
 
