@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
+Spring is passing.    
 that black crow I hate so much    
-With tears.    
+A solitary bird    
 
