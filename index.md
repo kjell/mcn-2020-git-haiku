@@ -1,4 +1,4 @@
-This snowy morning    
-visit the ancestral grave    
-A cicada’s voice.    
+A owner of the old thatched hut    
+Penetrating the very rock,    
+Darting dragon-fly!    
 
