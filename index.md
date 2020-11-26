@@ -1,4 +1,4 @@
-In the cicada's cry    
+Temple bells die out.    
 Heron's cry    
-Silent clouds of stars    
+and gazes at the moon.    
 
