@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-here at your flowering grave    
-Splash!    
+Cloud of cherry-bloom    
+thoughts come - and there is loneliness;    
+the autumn dusk is here.    
 
