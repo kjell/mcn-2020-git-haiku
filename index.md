@@ -1,4 +1,4 @@
-Spring is passing.    
-How swift it is    
-But he's beautiful!    
+Now in sad autumn    
+in dusky night    
+A water-jewel    
 
