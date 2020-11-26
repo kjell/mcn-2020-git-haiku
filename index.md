@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-poor monkey, you too could use    
-Lilies on the rocks    
+An old pond    
+let us to the road again    
+But he's beautiful!    
 
