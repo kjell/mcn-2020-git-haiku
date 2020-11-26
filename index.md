@@ -1,4 +1,4 @@
-Will we meet again    
+Lady butterfly    
 Penetrating the very rock,    
-Bearded, with bent canes    
+Tall grass their monument    
 
