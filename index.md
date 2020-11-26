@@ -1,4 +1,4 @@
-Oh, tranquility!    
-therefore our thanks dark clouds    
-are darkened . . .    
+The sea darkening    
+A frog jumps in -    
+This autumn evening.    
 
