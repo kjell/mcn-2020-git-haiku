@@ -1,4 +1,4 @@
-The sea darkening    
-above white    
+Dawn-shining mountains    
+starving for fat fish or mice    
 With tears.    
 
