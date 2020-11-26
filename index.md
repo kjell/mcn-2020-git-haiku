@@ -1,4 +1,4 @@
-The river gathering may rains    
-in your brief sweet waters    
-How soon it must die.    
+Under cherry-trees    
+here at your flowering grave    
+Moon-lighted mountains!    
 
