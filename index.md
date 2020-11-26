@@ -1,4 +1,4 @@
-If there were fragrance    
-soup, the salad, fish and all    
-But he's beautiful!    
+White cloud of mist    
+I am off to bed - but ah!    
+Waterfall music    
 
