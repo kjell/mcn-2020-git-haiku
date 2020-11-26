@@ -1,4 +1,4 @@
-Temple bells die out.    
-twin butterflies until, twice white    
-Ueno? Asakura?    
+Here, where a thousand    
+starving for fat fish or mice    
+These dark hands of life    
 
