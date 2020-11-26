@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-therefore our thanks dark clouds    
-Since there is no rice    
+Silent the old town    
+in dusky night    
+Morning-glory gazing    
 
