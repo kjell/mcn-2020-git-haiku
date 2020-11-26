@@ -1,4 +1,4 @@
-White cloud of mist    
-I am off to bed - but ah!    
-Waterfall music    
+Ah me! I am one    
+Penetrating the very rock,    
+Marks only midnight yet    
 
