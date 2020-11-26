@@ -1,4 +1,4 @@
-Cold first winter rain    
-The lips feel cold.    
-the autumn dusk is here.    
+For a lovely bowl    
+who spends his little breakfast    
+A perfect evening!    
 
