@@ -1,4 +1,4 @@
-Camellia-petal    
-he starts to grind the rice,    
-Cherry-blossoms    
+Old dark sleepy pool    
+then cry all birds and fishes    
+Crying, whirling, white    
 
