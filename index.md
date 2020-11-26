@@ -1,4 +1,4 @@
-Carven gods long gone    
-Here along this way but I,    
-Tall grass their monument    
+An old pond    
+dead leaves alone foregather    
+But he's beautiful!    
 
