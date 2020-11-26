@@ -1,4 +1,4 @@
-For a lovely bowl    
-The birds cry, and the fishes’ eyes are     
-Lilies on the rocks    
+First white snow of fall    
+then cry all birds and fishes    
+are darkened . . .    
 
