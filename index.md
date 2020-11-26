@@ -1,4 +1,4 @@
-The first day of the year:    
-let us arrange these flowers    
-Stabs the darkness    
+This is the new line    
+poor monkey, you too could use    
+Ueno? Asakura?    
 
