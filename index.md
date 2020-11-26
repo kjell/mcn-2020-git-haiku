@@ -1,4 +1,4 @@
-Oh, tranquility!    
-is quieted with creepers    
-From the kiri tree.    
+Poverty's child -    
+starving for fat fish or mice    
+They meet, they mate    
 
