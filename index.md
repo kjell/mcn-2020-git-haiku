@@ -1,4 +1,4 @@
-Seek on high bare trails    
-the scent of flowers floating    
-Stabs the darkness    
+Will we meet again    
+Penetrating the very rock,    
+Bearded, with bent canes    
 
