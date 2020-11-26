@@ -1,4 +1,4 @@
-Ballet in the air    
-he starts to grind the rice,    
-Darting dragon-fly!    
+Dewdrop, let me cleanse    
+spare my little buzzing friends    
+But he's beautiful!    
 
