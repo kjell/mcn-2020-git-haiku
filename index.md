@@ -1,4 +1,4 @@
-The summer grasses.    
-oh voices of the wild ducks    
-It’s the Doll’s Festival.    
+A owner of the old thatched hut    
+perfumes her wings by floating    
+Of warriors’ dreams.    
 
