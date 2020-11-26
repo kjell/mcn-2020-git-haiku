@@ -1,4 +1,4 @@
-When you say something,    
-dead leaves alone foregather    
-Of faded daffodils    
+This snowy morning    
+visit the ancestral grave    
+A cicada’s voice.    
 
