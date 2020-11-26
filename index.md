@@ -1,4 +1,4 @@
-No oil to read by    
-loneliness? Just one leaf    
+Such utter silence!    
+these brilliant-hued hibiscus    
 Mogami River.    
 
