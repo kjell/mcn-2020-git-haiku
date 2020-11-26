@@ -1,4 +1,4 @@
-An old pond    
-dead leaves alone foregather    
-But he's beautiful!    
+Now the swinging bridge    
+How swift it is    
+from the kiri tree.    
 
