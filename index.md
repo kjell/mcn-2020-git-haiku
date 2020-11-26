@@ -1,4 +1,4 @@
 Ah me! I am one    
-Penetrating the very rock,    
-Marks only midnight yet    
+fell in silent dawn, spilling    
+Muffled by hot rocks    
 
