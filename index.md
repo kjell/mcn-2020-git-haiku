@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-above white    
-Of faded daffodils    
+A owner of the old thatched hut    
+The fragrant blossoms remain.    
+from the kiri tree.    
 
