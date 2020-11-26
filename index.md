@@ -1,4 +1,4 @@
-In the cicada's cry    
-thoughts come - and there is loneliness;    
-Murmuring Mogami    
+When you say something,    
+stretching over Sado Island    
+How soon it must die.    
 
