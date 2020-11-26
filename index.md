@@ -1,4 +1,4 @@
-Chirping of the quails    
-watching us pass, met death    
-This autumn evening.    
+For a lovely bowl    
+The birds cry, and the fishes’ eyes are     
+Lilies on the rocks    
 
