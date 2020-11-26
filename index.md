@@ -1,4 +1,4 @@
-Must springtime fade?    
-spare my little buzzing friends    
-Stabs the darkness    
+Spring is passing.    
+starving for fat fish or mice    
+My moonlit pillow    
 
