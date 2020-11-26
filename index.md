@@ -1,4 +1,4 @@
-In the cicada's cry    
-dead leaves alone foregather    
-Or backyard love?    
+If there were fragrance    
+soup, the salad, fish and all    
+But he's beautiful!    
 
