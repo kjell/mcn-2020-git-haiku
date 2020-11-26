@@ -1,4 +1,4 @@
-Lightning -    
-soup, the salad, fish and all    
-With tears.    
+Now that eyes of hawks    
+here at your flowering grave    
+Splash!    
 
