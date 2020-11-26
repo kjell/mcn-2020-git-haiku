@@ -1,4 +1,4 @@
-The rains of summer join together.    
-The lips feel cold.    
-Of dark loneliness    
+The sea darkening    
+above white    
+With tears.    
 
