@@ -1,4 +1,4 @@
-Glorious the moon    
-All that remains    
-Tall grass their monument    
+In the cicada's cry    
+starving for fat fish or mice    
+Contemptuous of frost    
 
