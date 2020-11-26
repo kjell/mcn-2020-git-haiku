@@ -1,4 +1,4 @@
-White cloud of mist    
-as I take my darkening path    
-How soon it must die.    
+Spring is passing.    
+How swift it is    
+But he's beautiful!    
 
