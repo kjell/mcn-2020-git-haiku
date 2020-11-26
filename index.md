@@ -1,4 +1,4 @@
-Under cherry-trees    
-here at your flowering grave    
-Moon-lighted mountains!    
+Seas are wild tonight    
+spare my little buzzing friends    
+Bush-clover petals    
 
