@@ -1,4 +1,4 @@
-Nine times arising    
-that black crow I hate so much    
-cherry-blossoms . . .    
+An old pond    
+just enough to bend the leaves    
+Splash!    
 
