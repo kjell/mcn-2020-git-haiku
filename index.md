@@ -1,4 +1,4 @@
-Lady butterfly    
-Penetrating the very rock,    
-Tall grass their monument    
+Cold first winter rain    
+The lips feel cold.    
+the autumn dusk is here.    
 
