@@ -1,4 +1,4 @@
-Temple bells die out.    
-Heron's cry    
-and gazes at the moon.    
+Cloud of cherry-bloom    
+let us arrange these flowers    
+Of dark loneliness    
 
