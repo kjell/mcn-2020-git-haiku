@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-it needs but shiny wings and look    
-Bush-clover petals    
+A owner of the old thatched hut    
+that black crow I hate so much    
+With tears.    
 
