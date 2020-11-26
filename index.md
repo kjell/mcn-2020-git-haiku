@@ -1,4 +1,4 @@
-Spring is passing.    
+None is travelling    
 that black crow I hate so much    
-A solitary bird    
+the autumn dusk is here.    
 
