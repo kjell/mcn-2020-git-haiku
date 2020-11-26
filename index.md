@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-spare my little buzzing friends    
-But he's beautiful!    
+This snowy morning    
+visit the ancestral grave    
+A perfect evening!    
 
