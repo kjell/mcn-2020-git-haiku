@@ -1,4 +1,4 @@
-For a lovely bowl    
-who spends his little breakfast    
-A perfect evening!    
+In the cicada's cry    
+thoughts come - and there is loneliness;    
+Murmuring Mogami    
 
