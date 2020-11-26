@@ -1,4 +1,4 @@
-In the cicada's cry    
-dead leaves alone foregather    
-Bush-clover petals    
+Must springtime fade?    
+spare my little buzzing friends    
+Stabs the darkness    
 
