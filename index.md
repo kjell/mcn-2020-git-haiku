@@ -1,4 +1,4 @@
-Temple bells die out.    
-loneliness? Just one leaf    
-Or backyard love?    
+The summer grasses.    
+oh voices of the wild ducks    
+It’s the Doll’s Festival.    
 
