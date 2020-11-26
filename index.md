@@ -1,4 +1,4 @@
-Will we meet again    
-April's air stirs in willow-leaves    
-Of faded daffodils    
+The first day of the year:    
+the scent of flowers floating    
+Mountain-top jewels    
 
