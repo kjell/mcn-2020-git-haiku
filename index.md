@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-Twilight whippoorwill, whistle on, sweet deepener    
-Goes plop! Watersplash!    
+Mountain-rose petals    
+and bring to men a chance to rest    
+from looking at the moon.    
 
