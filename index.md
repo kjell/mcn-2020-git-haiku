@@ -1,4 +1,4 @@
-Glorious the moon    
-these heavy snow-flakes settling    
-from looking at the moon.    
+An old pond    
+is quieted with creepers    
+How soon it must die.    
 
