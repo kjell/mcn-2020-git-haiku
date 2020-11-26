@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-then cry all birds and fishes    
-Crying, whirling, white    
+Chirping of the quails    
+watching us pass, met death    
+This autumn evening.    
 
