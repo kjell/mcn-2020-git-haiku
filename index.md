@@ -1,4 +1,4 @@
-Too curious flower    
-Penetrating the very rock,    
-A cicada’s voice.    
+The rains of summer join together.    
+The lips feel cold.    
+Of dark loneliness    
 
