@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-thoughts come - and there is loneliness;    
-the autumn dusk is here.    
+In the cicada's cry    
+the scent of flowers floating    
+Of warriors’ dreams.    
 
