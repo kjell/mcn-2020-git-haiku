@@ -1,4 +1,4 @@
-Spring is passing.    
+Temple bells die out.    
 thoughts come - and there is loneliness;    
-Marks only midnight yet    
+Tall grass their monument    
 
