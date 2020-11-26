@@ -1,4 +1,4 @@
-In the sea-surf edge    
-these heavy snow-flakes settling    
-But he's beautiful!    
+None is travelling    
+as I take my darkening path    
+Muffled by hot rocks    
 
