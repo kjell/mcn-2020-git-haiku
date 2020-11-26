@@ -1,4 +1,4 @@
-Ah me! I am one    
-fell in silent dawn, spilling    
-Muffled by hot rocks    
+Camellia-petal    
+Here along this way but I,    
+They meet, they mate    
 
