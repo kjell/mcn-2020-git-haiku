@@ -1,4 +1,4 @@
-The rains of summer join together.    
-soup, the salad, fish and all    
-are darkened . . .    
+In the cicada's cry    
+dead leaves alone foregather    
+Bush-clover petals    
 
