@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-The fragrant blossoms remain.    
-from the kiri tree.    
+In the sea-surf edge    
+these heavy snow-flakes settling    
+But he's beautiful!    
 
