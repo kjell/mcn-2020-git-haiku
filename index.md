@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-starving for fat fish or mice    
-With tears.    
+Temple bells die out.    
+these heavy snow-flakes settling    
+A butterfly floats and balances    
 
