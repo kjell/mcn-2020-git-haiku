@@ -1,4 +1,4 @@
-The rains of summer join together.    
-he starts to grind the rice,    
-from looking at the moon.    
+Poverty's child -    
+these brilliant-hued hibiscus    
+A little woven cape    
 
