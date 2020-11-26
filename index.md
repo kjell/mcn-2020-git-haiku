@@ -1,4 +1,4 @@
-Too curious flower    
-All that remains    
-the autumn dusk is here.    
+Must springtime fade?    
+visit the ancestral grave    
+Mogami River.    
 
