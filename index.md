@@ -1,4 +1,4 @@
-Spring is passing.    
-starving for fat fish or mice    
-My moonlit pillow    
+No oil to read by    
+loneliness? Just one leaf    
+Mogami River.    
 
