@@ -1,4 +1,4 @@
-This is the new line    
-poor monkey, you too could use    
-Ueno? Asakura?    
+Too curious flower    
+All that remains    
+the autumn dusk is here.    
 
