@@ -1,4 +1,4 @@
-An old pond    
-is quieted with creepers    
-How soon it must die.    
+Now that eyes of hawks    
+Line that won't be deleted    
+Silent clouds of stars    
 
