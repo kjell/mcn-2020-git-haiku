@@ -1,4 +1,4 @@
-Such utter silence!    
-these brilliant-hued hibiscus    
-Mogami River.    
+Old dark sleepy pool    
+it needs but shiny wings and look    
+Bush-clover petals    
 
