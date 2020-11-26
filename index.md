@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-perfumes her wings by floating    
-Of warriors’ dreams.    
+An old pond    
+in dusky night    
+From the kiri tree.    
 
