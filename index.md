@@ -1,4 +1,4 @@
-Temple bells die out.    
-A frog jumps in -    
-This autumn evening.    
+Too curious flower    
+Penetrating the very rock,    
+A cicada’s voice.    
 
