@@ -1,4 +1,4 @@
-Here, where a thousand    
-starving for fat fish or mice    
-These dark hands of life    
+Carven gods long gone    
+these brilliant-hued hibiscus    
+A cicada’s voice.    
 
