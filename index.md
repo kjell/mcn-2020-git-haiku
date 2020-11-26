@@ -1,4 +1,4 @@
-None is travelling    
-as I take my darkening path    
-Muffled by hot rocks    
+Temple bells die out.    
+A frog jumps in -    
+This autumn evening.    
 
