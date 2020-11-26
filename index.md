@@ -1,4 +1,4 @@
-An old pond    
-in dusky night    
-From the kiri tree.    
+The rains of summer join together.    
+soup, the salad, fish and all    
+are darkened . . .    
 
