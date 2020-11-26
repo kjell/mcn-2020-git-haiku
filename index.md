@@ -1,4 +1,4 @@
-If there were fragrance    
-Heron's cry    
-Tall grass their monument    
+In the cicada's cry    
+thoughts come - and there is loneliness;    
+This autumn evening.    
 
