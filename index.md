@@ -1,4 +1,4 @@
-An old pond    
-let us to the road again    
-But he's beautiful!    
+First white snow of fall    
+I am off to bed - but ah!    
+A little woven cape    
 
