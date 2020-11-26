@@ -1,4 +1,4 @@
-First white snow of fall    
-The birds cry, and the fishes’ eyes are     
-Like our tendrilled life    
+Oh, tranquility!    
+is quieted with creepers    
+From the kiri tree.    
 
