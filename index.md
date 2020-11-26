@@ -1,4 +1,4 @@
-None is travelling    
-that black crow I hate so much    
-the autumn dusk is here.    
+Must springtime fade?    
+sky-reflecting violets    
+Two white butterflies?    
 
