@@ -1,4 +1,4 @@
-Silent the old town    
-in dusky night    
-Morning-glory gazing    
+Old dark sleepy pool    
+above white    
+Of faded daffodils    
 
