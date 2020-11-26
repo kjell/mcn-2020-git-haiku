@@ -1,4 +1,4 @@
-Mountain-rose petals    
-and bring to men a chance to rest    
+Glorious the moon    
+these heavy snow-flakes settling    
 from looking at the moon.    
 
