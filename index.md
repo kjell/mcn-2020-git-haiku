@@ -1,4 +1,4 @@
-This is the new line    
-perfumes her wings by floating    
-from looking at the moon.    
+In the cicada's cry    
+Heron's cry    
+Silent clouds of stars    
 
