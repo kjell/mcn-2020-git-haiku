@@ -1,4 +1,4 @@
-Silent the old town    
-April's air stirs in willow-leaves    
-Splash!    
+In the cicada's cry    
+dead leaves alone foregather    
+Or backyard love?    
 
