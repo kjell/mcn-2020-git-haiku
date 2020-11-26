@@ -1,4 +1,4 @@
-First white snow of fall    
-I am off to bed - but ah!    
-A little woven cape    
+Silent the old town    
+here at your flowering grave    
+from looking at the moon.    
 
