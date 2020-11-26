@@ -1,4 +1,4 @@
-Carven gods long gone    
-these brilliant-hued hibiscus    
-A cicada’s voice.    
+Must springtime fade?    
+There's no sign that can foretell    
+The Autumn wind.    
 
