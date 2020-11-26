@@ -1,4 +1,4 @@
-The sea darkening    
-dead leaves alone foregather    
-Ueno? Asakura?    
+Lightning -    
+Is also changed to another    
+Mountain-top jewels    
 
