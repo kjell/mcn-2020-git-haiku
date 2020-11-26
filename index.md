@@ -1,4 +1,4 @@
-Seas are wild tonight    
-spare my little buzzing friends    
-Bush-clover petals    
+Seek on high bare trails    
+the scent of flowers floating    
+Stabs the darkness    
 
