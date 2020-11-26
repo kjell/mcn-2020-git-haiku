@@ -1,4 +1,4 @@
 Temple bells die out.    
-stretching over Sado Island    
-With tears.    
+loneliness? Just one leaf    
+Or backyard love?    
 
