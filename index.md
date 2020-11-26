@@ -1,4 +1,4 @@
-When you say something,    
-stretching over Sado Island    
-How soon it must die.    
+Glorious the moon    
+All that remains    
+Tall grass their monument    
 
