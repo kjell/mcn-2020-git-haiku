@@ -1,4 +1,4 @@
-Now in sad autumn    
-in dusky night    
-A water-jewel    
+Carven gods long gone    
+Here along this way but I,    
+Tall grass their monument    
 
