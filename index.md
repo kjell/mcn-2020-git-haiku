@@ -1,4 +1,4 @@
-Now the swinging bridge    
+Chirping of the quails    
 How swift it is    
-from the kiri tree.    
+the autumn dusk is here.    
 
