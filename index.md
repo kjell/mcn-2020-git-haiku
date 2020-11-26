@@ -1,4 +1,4 @@
-Poverty's child -    
-these brilliant-hued hibiscus    
-A little woven cape    
+When you say something,    
+dead leaves alone foregather    
+Of faded daffodils    
 
