@@ -1,4 +1,4 @@
-First white snow of fall    
-then cry all birds and fishes    
-are darkened . . .    
+Black cloudbank broken    
+even the crickets' singing    
+A solitary bird    
 
