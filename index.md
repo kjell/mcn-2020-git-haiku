@@ -1,4 +1,4 @@
-Poverty's child -    
-starving for fat fish or mice    
-They meet, they mate    
+None is travelling    
+he starts to grind the rice,    
+My moonlit pillow    
 
