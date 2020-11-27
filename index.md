@@ -1,4 +1,4 @@
-Glorious the moon    
-captains swore grand conquest    
-Of dark loneliness    
+Dewdrop, let me cleanse    
+above white    
+It’s the Doll’s Festival.    
 
