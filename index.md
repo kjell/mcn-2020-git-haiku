@@ -1,4 +1,4 @@
-The first day of the year:    
-I am off to bed - but ah!    
-Cherry-blossoms    
+Dewdrop, let me cleanse    
+he starts to grind the rice,    
+And evening bell    
 
