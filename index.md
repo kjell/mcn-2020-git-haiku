@@ -1,4 +1,4 @@
-Spring is passing.    
-thoughts come - and there is loneliness;    
-Goes plop! Watersplash!    
+The first day of the year:    
+these heavy snow-flakes settling    
+Two white butterflies?    
 
