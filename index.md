@@ -1,4 +1,4 @@
-Mountain-rose petals    
-There's no sign that can foretell    
-Like our tendrilled life    
+Carven gods long gone    
+he starts to grind the rice,    
+A cicada’s voice.    
 
