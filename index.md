@@ -1,4 +1,4 @@
-Oh, tranquility!    
-The fragrant blossoms remain.    
-Of dark loneliness    
+Mountain-rose petals    
+from cold streamlets for the sea    
+This autumn evening.    
 
