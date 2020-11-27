@@ -1,4 +1,4 @@
-Spring is passing.    
+See: surviving suns    
 and bring to men a chance to rest    
-Goes plop! Watersplash!    
+are darkened . . .    
 
