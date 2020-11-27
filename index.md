@@ -1,4 +1,4 @@
-See: surviving suns    
-and bring to men a chance to rest    
-are darkened . . .    
+Nine times arising    
+twin butterflies until, twice white    
+Companion butterfly!    
 
