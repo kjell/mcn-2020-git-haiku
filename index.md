@@ -1,4 +1,4 @@
-An old pond    
-loneliness? Just one leaf    
-The Autumn wind.    
+Oh, tranquility!    
+How swift it is    
+Splash!    
 
