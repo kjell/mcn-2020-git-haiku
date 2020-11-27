@@ -1,4 +1,4 @@
-Glorious the moon    
-visit the ancestral grave    
-A lovely sunset    
+Lightning -    
+above white    
+are darkened    
 
