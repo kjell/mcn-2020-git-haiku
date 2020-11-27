@@ -1,4 +1,4 @@
-Temple bells die out.    
-The birds cry, and the fishes’ eyes are     
-Seasoned with petals    
+Now the swinging bridge    
+in dusky night    
+Moon-lighted mountains!    
 
