@@ -1,4 +1,4 @@
-The first day of the year:    
-There's no sign that can foretell    
-Stabs the darkness    
+The summer grasses.    
+above white    
+The Autumn wind.    
 
