@@ -1,4 +1,4 @@
-If there were fragrance    
-tolling twilight bell; Temple    
-Two white butterflies?    
+This snowy morning    
+There's no sign that can foretell    
+the autumn dusk is here.    
 
