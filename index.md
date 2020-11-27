@@ -1,4 +1,4 @@
-Temple bells die out.    
-in dusky night    
-Muffled by hot rocks    
+The first day of the year:    
+Penetrating the very rock,    
+Come to rest our necks    
 
