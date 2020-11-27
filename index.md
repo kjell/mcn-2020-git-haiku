@@ -1,4 +1,4 @@
-White cloud of mist    
-and bring to men a chance to rest    
-Mogami River.    
+When you say something,    
+even the crickets' singing    
+Or backyard love?    
 
