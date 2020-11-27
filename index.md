@@ -1,4 +1,4 @@
-The first day of the year:    
-these heavy snow-flakes settling    
-Two white butterflies?    
+Temple bells die out.    
+The birds cry, and the fishes’ eyes are     
+Seasoned with petals    
 
