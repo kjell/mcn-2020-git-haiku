@@ -1,4 +1,4 @@
-Seek on high bare trails    
-Penetrating the very rock,    
-Mogami River.    
+Spring is passing.    
+spare my little buzzing friends    
+Stabs the darkness    
 
