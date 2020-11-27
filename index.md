@@ -1,4 +1,4 @@
-Oh, tranquility!    
-How swift it is    
-Splash!    
+Here, where a thousand    
+I am off to bed - but ah!    
+and gazes at the moon.    
 
