@@ -1,4 +1,4 @@
-Nine times arising    
-The birds cry, and the fishes’ eyes are     
-A water-jewel    
+Now the swinging bridge    
+All that remains    
+It’s the Doll’s Festival.    
 
