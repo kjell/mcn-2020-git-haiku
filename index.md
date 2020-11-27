@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-scatters in the night; Now see    
-Of faded daffodils    
+Seek on high bare trails    
+stretching over Sado Island    
+Muffled by hot rocks    
 
