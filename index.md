@@ -1,4 +1,4 @@
-In the twilight rain    
-tolling twilight bell; Temple    
-Companion butterfly!    
+A owner of the old thatched hut    
+The fragrant blossoms remain.    
+Splash!    
 
