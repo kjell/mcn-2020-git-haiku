@@ -1,4 +1,4 @@
-None is travelling    
+Won't you come and see    
 Heron's cry    
-Two white butterflies?    
+Over the orchid    
 
