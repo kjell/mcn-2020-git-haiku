@@ -1,4 +1,4 @@
-The sea darkening    
-tolling twilight bell; Temple    
-Murmuring Mogami    
+Won't you come and see    
+falling, falling, falling now    
+Among the flowers    
 
