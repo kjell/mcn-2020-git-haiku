@@ -1,4 +1,4 @@
-Lady butterfly    
-The fragrant blossoms remain.    
-Seasoned with petals    
+Cloud of cherry-bloom    
+from cold streamlets for the sea    
+Bush-clover petals    
 
