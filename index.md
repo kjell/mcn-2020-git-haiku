@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-from cold streamlets for the sea    
-Bush-clover petals    
+Too curious flower    
+A frog jumps in -    
+Tall grass their monument    
 
