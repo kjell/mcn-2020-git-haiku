@@ -1,4 +1,4 @@
-Lightning -    
-captains swore grand conquest    
-It’s the Doll’s Festival.    
+White cloud of mist    
+and bring to men a chance to rest    
+Mogami River.    
 
