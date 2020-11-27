@@ -1,4 +1,4 @@
-Lightning -    
-The fragrant blossoms remain.    
-Stabs the darkness    
+Now the swinging bridge    
+There's no sign that can foretell    
+Mogami River.    
 
