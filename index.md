@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-it needs but shiny wings and look    
-Mogami River.    
+Oh, tranquility!    
+he starts to grind the rice,    
+This autumn evening.    
 
