@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-even the crickets' singing    
-Our hungry donkey    
+Chirping of the quails    
+How swift it is    
+Mogami River.    
 
