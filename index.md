@@ -1,4 +1,4 @@
-White cloud of mist    
-here at your flowering grave    
-How soon it must die.    
+The rains of summer join together.    
+these heavy snow-flakes settling    
+Stabs the darkness    
 
