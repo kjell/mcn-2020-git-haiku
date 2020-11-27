@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-The fragrant blossoms remain.    
-Splash!    
+If there were fragrance    
+tolling twilight bell; Temple    
+Two white butterflies?    
 
