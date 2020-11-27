@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-soup, the salad, fish and all    
-Since there is no rice    
+Won't you come and see    
+The fragrant blossoms remain.    
+Marks only midnight yet    
 
