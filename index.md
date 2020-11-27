@@ -1,4 +1,4 @@
-Seek on high bare trails    
-stretching over Sado Island    
-Muffled by hot rocks    
+Dawn-shining mountains    
+thoughts come - and there is loneliness;    
+from the kiri tree.    
 
