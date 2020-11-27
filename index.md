@@ -1,4 +1,4 @@
-Black cloudbank broken    
-let us arrange these flowers    
-Bush-clover petals    
+In the cicada's cry    
+Heron's cry    
+This autumn evening.    
 
