@@ -1,4 +1,4 @@
-Seas are wild tonight    
-soup, the salad, fish and all    
-are darkened    
+If there were fragrance    
+even the crickets' singing    
+Splash!    
 
