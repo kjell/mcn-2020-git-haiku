@@ -1,4 +1,4 @@
-An old pond    
-spare my little buzzing friends    
-Stabs the darkness    
+Poverty's child -    
+in dusky night    
+Tall grass their monument    
 
