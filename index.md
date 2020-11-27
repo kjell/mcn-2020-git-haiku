@@ -1,4 +1,4 @@
-Chirping of the quails    
-How swift it is    
-Mogami River.    
+The summer grasses.    
+Heron's cry    
+They meet, they mate    
 
