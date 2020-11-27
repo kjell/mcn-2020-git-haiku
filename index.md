@@ -1,4 +1,4 @@
-The summer grasses.    
-Heron's cry    
-They meet, they mate    
+Black cloudbank broken    
+The birds cry, and the fishes’ eyes are     
+A lovely sunset    
 
