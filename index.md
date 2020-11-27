@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-soup, the salad, fish and all    
-Our hungry donkey    
+Spring is passing.    
+and bring to men a chance to rest    
+Goes plop! Watersplash!    
 
