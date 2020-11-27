@@ -1,4 +1,4 @@
-Poverty's child -    
-perfumes her wings by floating    
-Of warriors’ dreams.    
+Dawn-shining mountains    
+here at your flowering grave    
+Among the flowers    
 
