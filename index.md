@@ -1,4 +1,4 @@
-In the cicada's cry    
-let us arrange these flowers    
-But he's beautiful!    
+An old pond    
+just enough to bend the leaves    
+are darkened    
 
