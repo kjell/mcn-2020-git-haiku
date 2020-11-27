@@ -1,4 +1,4 @@
-If there were fragrance    
-even the crickets' singing    
-Splash!    
+An old pond    
+loneliness? Just one leaf    
+The Autumn wind.    
 
