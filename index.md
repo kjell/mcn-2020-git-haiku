@@ -1,4 +1,4 @@
-Here, where a thousand    
-I am off to bed - but ah!    
-and gazes at the moon.    
+None is travelling    
+Heron's cry    
+Two white butterflies?    
 
