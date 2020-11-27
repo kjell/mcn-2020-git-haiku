@@ -1,4 +1,4 @@
-Won't you come and see    
-The fragrant blossoms remain.    
-Marks only midnight yet    
+This snowy morning    
+fell in silent dawn, spilling    
+Of faded daffodils    
 
