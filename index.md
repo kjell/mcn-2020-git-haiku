@@ -1,4 +1,4 @@
-An old pond    
-Is also changed to another    
-A lovely sunset    
+Dawn-shining mountains    
+sky-reflecting violets    
+Waterfall music    
 
