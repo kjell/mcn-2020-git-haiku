@@ -1,4 +1,4 @@
-Swallow in the dusk    
-oh voices of the wild ducks    
-On the temple porch    
+Glorious the moon    
+visit the ancestral grave    
+A lovely sunset    
 
