@@ -1,4 +1,4 @@
-Won't you come and see    
-falling, falling, falling now    
-Among the flowers    
+Seas are wild tonight    
+and bring to men a chance to rest    
+With tears.    
 
