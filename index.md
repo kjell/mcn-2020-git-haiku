@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-here at your flowering grave    
-Among the flowers    
+Cloud of cherry-bloom    
+There's no sign that can foretell    
+cherry-blossoms . . .    
 
