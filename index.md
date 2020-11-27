@@ -1,4 +1,4 @@
-This snowy morning    
-There's no sign that can foretell    
-the autumn dusk is here.    
+Poverty's child -    
+perfumes her wings by floating    
+Of warriors’ dreams.    
 
