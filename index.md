@@ -1,4 +1,4 @@
-Lightning -    
-above white    
-are darkened    
+Seas are wild tonight    
+How swift it is    
+Cherry-blossoms    
 
