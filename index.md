@@ -1,4 +1,4 @@
-Poverty's child -    
-Twilight whippoorwill, whistle on, sweet deepener    
-Cold pale eyes pour tears    
+In the twilight rain    
+tolling twilight bell; Temple    
+Companion butterfly!    
 
