@@ -1,4 +1,4 @@
-The summer grasses.    
-as I take my darkening path    
-A perfect evening!    
+Poverty's child -    
+There's no sign that can foretell    
+A cicada’s voice.    
 
