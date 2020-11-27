@@ -1,4 +1,4 @@
-This snowy morning    
-There's no sign that can foretell    
-the autumn dusk is here.    
+Must springtime fade?    
+and bring to men a chance to rest    
+Murmuring Mogami    
 
