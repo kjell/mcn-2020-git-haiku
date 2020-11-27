@@ -1,4 +1,4 @@
-White cloud of mist    
-watching us pass, met death    
-A cicada’s voice.    
+Clouds come from time to time -    
+Penetrating the very rock,    
+Seasoned with petals    
 
