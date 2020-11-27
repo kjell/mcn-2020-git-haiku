@@ -1,4 +1,4 @@
-Seas are wild tonight    
-and bring to men a chance to rest    
-With tears.    
+Poverty's child -    
+twin butterflies until, twice white    
+and gazes at the moon.    
 
