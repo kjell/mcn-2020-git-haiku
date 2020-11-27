@@ -1,4 +1,4 @@
-Carven gods long gone    
-he starts to grind the rice,    
-A cicada’s voice.    
+Lightning -    
+mingling with bright small shells    
+Murmuring Mogami    
 
