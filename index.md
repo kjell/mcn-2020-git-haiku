@@ -1,4 +1,4 @@
-The river gathering may rains    
-these heavy snow-flakes settling    
-A perfect evening!    
+Under cherry-trees    
+Heron's cry    
+Murmuring Mogami    
 
