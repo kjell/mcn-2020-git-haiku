@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-thoughts come - and there is loneliness;    
-from the kiri tree.    
+Now that eyes of hawks    
+soup, the salad, fish and all    
+Since there is no rice    
 
