@@ -1,4 +1,4 @@
-Temple bells die out.    
-Line that won't be deleted    
-Bearded, with bent canes    
+Nine times arising    
+The birds cry, and the fishes’ eyes are     
+A water-jewel    
 
