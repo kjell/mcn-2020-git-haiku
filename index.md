@@ -1,4 +1,4 @@
-Now the swinging bridge    
-There's no sign that can foretell    
-Mogami River.    
+Glorious the moon    
+captains swore grand conquest    
+Of dark loneliness    
 
