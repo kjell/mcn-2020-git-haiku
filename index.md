@@ -1,4 +1,4 @@
-Under cherry-trees    
-Twilight whippoorwill, whistle on, sweet deepener    
-and gazes at the moon.    
+Glorious the moon    
+The birds cry, and the fishes’ eyes are     
+Bearded, with bent canes    
 
