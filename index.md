@@ -1,4 +1,4 @@
-The summer grasses.    
-chirping, keeps the autumn gay    
-and gazes at the moon.    
+The first day of the year:    
+There's no sign that can foretell    
+Stabs the darkness    
 
