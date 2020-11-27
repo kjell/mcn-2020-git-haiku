@@ -1,4 +1,4 @@
-Swallow in the dusk    
-I am off to bed - but ah!    
-A cicada’s voice.    
+The summer grasses.    
+chirping, keeps the autumn gay    
+and gazes at the moon.    
 
