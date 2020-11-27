@@ -1,4 +1,4 @@
-Won't you come and see    
-Heron's cry    
-Over the orchid    
+The first day of the year:    
+I am off to bed - but ah!    
+Cherry-blossoms    
 
