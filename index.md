@@ -1,4 +1,4 @@
-Now the swinging bridge    
-in dusky night    
-Moon-lighted mountains!    
+In the cicada's cry    
+let us arrange these flowers    
+But he's beautiful!    
 
