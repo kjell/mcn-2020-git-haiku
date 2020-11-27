@@ -1,4 +1,4 @@
-Glorious the moon    
-The birds cry, and the fishes’ eyes are     
-Bearded, with bent canes    
+Clouds come from time to time -    
+even the crickets' singing    
+Our hungry donkey    
 
