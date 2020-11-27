@@ -1,4 +1,4 @@
-When you say something,    
-even the crickets' singing    
-Or backyard love?    
+The summer grasses.    
+as I take my darkening path    
+A perfect evening!    
 
