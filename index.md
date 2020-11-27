@@ -1,4 +1,4 @@
-The first day of the year:    
-that black crow I hate so much    
-Mountain-top jewels    
+Why so scrawny, cat?    
+in dusky night    
+How soon it must die.    
 
