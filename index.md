@@ -1,4 +1,4 @@
-None is travelling    
-the scent of flowers floating    
+Temple bells die out.    
+in dusky night    
 Muffled by hot rocks    
 
