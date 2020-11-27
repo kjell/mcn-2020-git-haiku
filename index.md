@@ -1,4 +1,4 @@
-None is travelling    
-Is also changed to another    
-are darkened    
+Black cloudbank broken    
+let us arrange these flowers    
+Bush-clover petals    
 
