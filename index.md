@@ -1,4 +1,4 @@
 This snowy morning    
-fell in silent dawn, spilling    
-Of faded daffodils    
+spare my little buzzing friends    
+The autumn dusk is here.    
 
