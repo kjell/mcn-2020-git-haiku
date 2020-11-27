@@ -1,4 +1,4 @@
-None is travelling    
-All that remains    
-Mogami River.    
+Ballet in the air    
+Is also changed to another    
+Of warriors’ dreams.    
 
