@@ -1,4 +1,4 @@
-This snowy morning    
-spare my little buzzing friends    
-The autumn dusk is here.    
+Swallow in the dusk    
+oh voices of the wild ducks    
+On the temple porch    
 
