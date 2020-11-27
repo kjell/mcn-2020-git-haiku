@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-chirping, keeps the autumn gay    
-Bearded, with bent canes    
+Now in sad autumn    
+just enough to bend the leaves    
+Or backyard love?    
 
