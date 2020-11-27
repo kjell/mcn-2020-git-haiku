@@ -1,4 +1,4 @@
-Spring is passing.    
-spare my little buzzing friends    
-Stabs the darkness    
+The sea darkening    
+tolling twilight bell; Temple    
+Murmuring Mogami    
 
