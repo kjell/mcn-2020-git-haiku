@@ -1,4 +1,4 @@
-White cloud of mist    
-and bring to men a chance to rest    
-and gazes at the moon.    
+Old dark sleepy pool    
+it needs but shiny wings and look    
+Mogami River.    
 
