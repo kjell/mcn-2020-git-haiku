@@ -1,4 +1,4 @@
-Seas are wild tonight    
-How swift it is    
-Cherry-blossoms    
+Nine times arising    
+therefore our thanks dark clouds    
+It’s the Doll’s Festival.    
 
