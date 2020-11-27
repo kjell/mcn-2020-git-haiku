@@ -1,4 +1,4 @@
-Lady butterfly    
-above white    
-A little woven cape    
+Under cherry-trees    
+Twilight whippoorwill, whistle on, sweet deepener    
+and gazes at the moon.    
 
