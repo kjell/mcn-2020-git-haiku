@@ -1,4 +1,4 @@
-Mountain-rose petals    
-from cold streamlets for the sea    
-This autumn evening.    
+Why so scrawny, cat?    
+chirping, keeps the autumn gay    
+Bearded, with bent canes    
 
