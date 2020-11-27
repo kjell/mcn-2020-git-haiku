@@ -1,4 +1,4 @@
-The first day of the year:    
-Penetrating the very rock,    
-Come to rest our necks    
+Lightning -    
+quick unexpected frog    
+Silent clouds of stars    
 
