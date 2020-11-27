@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-sky-reflecting violets    
-Our hungry donkey    
+Why so scrawny, cat?    
+Here along this way but I,    
+It’s the Doll’s Festival.    
 
