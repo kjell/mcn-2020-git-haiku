@@ -1,4 +1,4 @@
-An old pond    
-therefore our thanks dark clouds    
-and gazes at the moon.    
+Lightning -    
+these brilliant-hued hibiscus    
+Stabs the darkness    
 
