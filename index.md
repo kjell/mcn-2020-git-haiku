@@ -1,4 +1,4 @@
-Black cloudbank broken    
-The birds cry, and the fishes’ eyes are     
-A lovely sunset    
+The river gathering may rains    
+these heavy snow-flakes settling    
+A perfect evening!    
 
