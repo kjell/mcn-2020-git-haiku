@@ -1,4 +1,4 @@
-Spring is passing.    
-oh voices of the wild ducks    
-Two white butterflies?    
+Lightning -    
+captains swore grand conquest    
+It’s the Doll’s Festival.    
 
