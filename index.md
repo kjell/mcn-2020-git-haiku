@@ -1,4 +1,4 @@
-Lightning -    
-mingling with bright small shells    
-Murmuring Mogami    
+Seas are wild tonight    
+soup, the salad, fish and all    
+are darkened    
 
