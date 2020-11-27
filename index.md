@@ -1,4 +1,4 @@
-Oh, tranquility!    
-he starts to grind the rice,    
-This autumn evening.    
+Poverty's child -    
+Twilight whippoorwill, whistle on, sweet deepener    
+Cold pale eyes pour tears    
 
