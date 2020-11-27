@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-There's no sign that can foretell    
-cherry-blossoms . . .    
+Spring is passing.    
+thoughts come - and there is loneliness;    
+Goes plop! Watersplash!    
 
