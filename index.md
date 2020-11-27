@@ -1,4 +1,4 @@
-Will we meet again    
-above white    
-Mountain-top jewels    
+A owner of the old thatched hut    
+sky-reflecting violets    
+Our hungry donkey    
 
