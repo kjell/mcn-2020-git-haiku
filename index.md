@@ -1,4 +1,4 @@
-The rains of summer join together.    
-these heavy snow-flakes settling    
-Stabs the darkness    
+Seek on high bare trails    
+Penetrating the very rock,    
+Mogami River.    
 
