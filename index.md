@@ -1,4 +1,4 @@
-Now the swinging bridge    
-All that remains    
-It’s the Doll’s Festival.    
+None is travelling    
+Is also changed to another    
+are darkened    
 
