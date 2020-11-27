@@ -1,4 +1,4 @@
-Poverty's child -    
-twin butterflies until, twice white    
-and gazes at the moon.    
+The first day of the year:    
+that black crow I hate so much    
+Mountain-top jewels    
 
