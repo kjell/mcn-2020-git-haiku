@@ -1,4 +1,4 @@
-The summer grasses.    
-above white    
-The Autumn wind.    
+White cloud of mist    
+watching us pass, met death    
+A cicada’s voice.    
 
