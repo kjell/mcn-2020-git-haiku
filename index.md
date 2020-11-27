@@ -1,4 +1,4 @@
-An old pond    
-just enough to bend the leaves    
-are darkened    
+Lightning -    
+The fragrant blossoms remain.    
+Stabs the darkness    
 
