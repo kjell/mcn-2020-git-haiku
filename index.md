@@ -1,4 +1,4 @@
-Ballet in the air    
-watching us pass, met death    
-Bearded, with bent canes    
+When you say something,    
+sky-reflecting violets    
+Seasoned with petals    
 
