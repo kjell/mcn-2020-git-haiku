@@ -1,4 +1,4 @@
-For a lovely bowl    
-twin butterflies until, twice white    
-Lilies on the rocks    
+Dry cheerful cricket    
+he starts to grind the rice,    
+With tears.    
 
