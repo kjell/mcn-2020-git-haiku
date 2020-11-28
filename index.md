@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-he starts to grind the rice,    
-With tears.    
+Camellia-petal    
+tolling twilight bell; Temple    
+the autumn dusk is here.    
 
