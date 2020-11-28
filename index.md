@@ -1,4 +1,4 @@
-Seek on high bare trails    
-therefore our thanks dark clouds    
-Marks only midnight yet    
+Seas are wild tonight    
+let us arrange these flowers    
+The Autumn wind.    
 
