@@ -1,4 +1,4 @@
-The first day of the year:    
-All that remains    
-Seasoned with petals    
+Lightning -    
+Here along this way but I,    
+Silent clouds of stars    
 
