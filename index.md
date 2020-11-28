@@ -1,4 +1,4 @@
-Temple bells die out.    
-from cold streamlets for the sea    
-Of dark loneliness    
+Oh, tranquility!    
+and bring to men a chance to rest    
+Mogami River.    
 
