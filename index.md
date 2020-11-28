@@ -1,4 +1,4 @@
-Nine times arising    
-The birds cry, and the fishes’ eyes are     
-Bush-clover petals    
+Oh, tranquility!    
+falling, falling, falling now    
+Over the orchid    
 
