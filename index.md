@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-he starts to grind the rice,    
-Cold pale eyes pour tears    
+Lady butterfly    
+fell in silent dawn, spilling    
+Two white butterflies?    
 
