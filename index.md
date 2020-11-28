@@ -1,4 +1,4 @@
-Such utter silence!    
-All that remains    
-Murmuring Mogami    
+For a lovely bowl    
+twin butterflies until, twice white    
+Lilies on the rocks    
 
