@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-stretching over Sado Island    
-Lilies on the rocks    
+Clouds come from time to time -    
+oh voices of the wild ducks    
+And evening bell    
 
