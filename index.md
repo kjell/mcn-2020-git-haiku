@@ -1,4 +1,4 @@
-Spring is passing.    
-Penetrating the very rock,    
-Darting dragon-fly!    
+Oh, tranquility!    
+as I take my darkening path    
+cherry-blossoms . . .    
 
