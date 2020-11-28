@@ -1,4 +1,4 @@
-In the cicada's cry    
-falling, falling, falling now    
-Splash!    
+An old pond    
+loneliness? Just one leaf    
+Our hungry donkey    
 
