@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-Heron's cry    
-Mountain-top jewels    
+Cloud of cherry-bloom    
+that black crow I hate so much    
+cherry-blossoms . . .    
 
