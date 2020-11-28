@@ -1,4 +1,4 @@
-Oh, tranquility!    
-falling, falling, falling now    
-Over the orchid    
+The first day of the year:    
+All that remains    
+Silent clouds of stars    
 
