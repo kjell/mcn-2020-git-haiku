@@ -1,4 +1,4 @@
-When you say something,    
-let us to the road again    
-Ueno? Asakura?    
+Such utter silence!    
+quick unexpected frog    
+Come to rest our necks    
 
