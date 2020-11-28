@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-quick unexpected frog    
-This autumn evening.    
+The first day of the year:    
+loneliness? Just one leaf    
+Among the flowers    
 
