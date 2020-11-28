@@ -1,4 +1,4 @@
-See: surviving suns    
-then cry all birds and fishes    
-How soon it must die.    
+When you say something,    
+let us to the road again    
+Ueno? Asakura?    
 
