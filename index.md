@@ -1,4 +1,4 @@
-Chirping of the quails    
-let us arrange these flowers    
-Stabs the darkness    
+Swallow in the dusk    
+these brilliant-hued hibiscus    
+Splash!    
 
