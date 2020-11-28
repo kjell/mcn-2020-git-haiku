@@ -1,4 +1,4 @@
-Mountain-rose petals    
-let us arrange these flowers    
-Stabs the darkness    
+In the sea-surf edge    
+above white    
+Silent clouds of stars    
 
