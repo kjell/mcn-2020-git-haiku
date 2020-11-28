@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-he starts to grind the rice,    
-And evening bell    
+Won't you come and see    
+There's no sign that can foretell    
+the autumn dusk is here.    
 
