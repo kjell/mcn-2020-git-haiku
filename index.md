@@ -1,4 +1,4 @@
-Too curious flower    
-Twilight whippoorwill, whistle on, sweet deepener    
-from looking at the moon.    
+In the sea-surf edge    
+it needs but shiny wings and look    
+Moon-lighted mountains!    
 
