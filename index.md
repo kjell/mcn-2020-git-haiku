@@ -1,4 +1,4 @@
-The first day of the year:    
-All that remains    
-Silent clouds of stars    
+Lightning -    
+A frog jumps in -    
+A cicada’s voice.    
 
