@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-visit the ancestral grave    
-With tears.    
+Mountain-rose petals    
+let us arrange these flowers    
+Stabs the darkness    
 
