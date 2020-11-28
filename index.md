@@ -1,4 +1,4 @@
-Such utter silence!    
-quick unexpected frog    
-Come to rest our necks    
+A owner of the old thatched hut    
+as I take my darkening path    
+They meet, they mate    
 
