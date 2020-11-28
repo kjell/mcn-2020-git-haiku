@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-the scent of flowers floating    
-But he's beautiful!    
+No oil to read by    
+let us arrange these flowers    
+A water-jewel    
 
