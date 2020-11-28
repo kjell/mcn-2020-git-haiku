@@ -1,4 +1,4 @@
-For a lovely bowl    
-and bring to men a chance to rest    
-Bush-clover petals    
+Spring is passing.    
+tolling twilight bell; Temple    
+It’s the Doll’s Festival.    
 
