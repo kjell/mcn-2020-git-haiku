@@ -1,4 +1,4 @@
-The rains of summer join together.    
-then cry all birds and fishes    
-Mogami River.    
+Now that eyes of hawks    
+starving for fat fish or mice    
+It’s the Doll’s Festival.    
 
