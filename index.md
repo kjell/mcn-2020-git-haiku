@@ -1,4 +1,4 @@
-In the cicada's cry    
-Here along this way but I,    
-Mountain-top jewels    
+Mountain-rose petals    
+oh voices of the wild ducks    
+From the kiri tree.    
 
