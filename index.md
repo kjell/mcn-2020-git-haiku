@@ -1,4 +1,4 @@
-Ah me! I am one    
-loneliness? Just one leaf    
-Of warriors’ dreams.    
+Dewdrop, let me cleanse    
+he starts to grind the rice,    
+Cold pale eyes pour tears    
 
