@@ -1,4 +1,4 @@
-The sea darkening    
-The lips feel cold.    
-Mogami River.    
+Why so scrawny, cat?    
+let us to the road again    
+Mountain-top jewels    
 
