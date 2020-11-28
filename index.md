@@ -1,4 +1,4 @@
-Now the swinging bridge    
-sky-reflecting violets    
-Come to rest our necks    
+Temple bells die out.    
+he starts to grind the rice,    
+Of dark loneliness    
 
