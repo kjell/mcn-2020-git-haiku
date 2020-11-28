@@ -1,4 +1,4 @@
-Won't you come and see    
-All that remains    
-Stabs the darkness    
+Lightning -    
+from cold streamlets for the sea    
+The autumn dusk is here.    
 
