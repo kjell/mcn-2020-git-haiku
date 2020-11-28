@@ -1,4 +1,4 @@
-Won't you come and see    
-soup, the salad, fish and all    
-Mountain-top jewels    
+Will we meet again    
+How swift it is    
+and gazes at the moon.    
 
