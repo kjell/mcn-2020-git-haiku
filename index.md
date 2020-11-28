@@ -1,4 +1,4 @@
-Poverty's child -    
-The fragrant blossoms remain.    
-My moonlit pillow    
+None is travelling    
+perfumes her wings by floating    
+These dark hands of life    
 
