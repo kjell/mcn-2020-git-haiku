@@ -1,4 +1,4 @@
-An old pond    
-these heavy snow-flakes settling    
-Of dark loneliness    
+The sea darkening    
+let us arrange these flowers    
+A perfect evening!    
 
