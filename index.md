@@ -1,4 +1,4 @@
-Seas are wild tonight    
-let us arrange these flowers    
-The Autumn wind.    
+Dawn-shining mountains    
+captains swore grand conquest    
+My moonlit pillow    
 
