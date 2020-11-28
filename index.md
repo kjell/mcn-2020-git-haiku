@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-that black crow I hate so much    
-cherry-blossoms . . .    
+The rains of summer join together.    
+Is also changed to another    
+The Autumn wind.    
 
