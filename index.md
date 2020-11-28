@@ -1,4 +1,4 @@
-Silent the old town    
-from cold streamlets for the sea    
-Two white butterflies?    
+Wake! The sky is light!    
+visit the ancestral grave    
+Mogami River.    
 
