@@ -1,4 +1,4 @@
-Now in sad autumn    
-soup, the salad, fish and all    
-Of dark loneliness    
+Wake! The sky is light!    
+Heron's cry    
+Mountain-top jewels    
 
