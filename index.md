@@ -1,4 +1,4 @@
-Mountain-rose petals    
-oh voices of the wild ducks    
-From the kiri tree.    
+Poverty's child -    
+fell in silent dawn, spilling    
+Of dark loneliness    
 
