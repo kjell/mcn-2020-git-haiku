@@ -1,4 +1,4 @@
-In the sea-surf edge    
-above white    
-Silent clouds of stars    
+Seek on high bare trails    
+twin butterflies until, twice white    
+With tears.    
 
