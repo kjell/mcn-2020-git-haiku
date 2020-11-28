@@ -1,4 +1,4 @@
-The first day of the year:    
-How swift it is    
-The autumn dusk is here.    
+Mountain-rose petals    
+above white    
+Muffled by hot rocks    
 
