@@ -1,4 +1,4 @@
-The sea darkening    
-let us arrange these flowers    
-A perfect evening!    
+Bright red pepper-pod    
+quick unexpected frog    
+This autumn evening.    
 
