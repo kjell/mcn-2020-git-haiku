@@ -1,4 +1,4 @@
-The first day of the year:    
-he starts to grind the rice,    
-Morning-glory gazing    
+Won't you come and see    
+All that remains    
+Stabs the darkness    
 
