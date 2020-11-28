@@ -1,4 +1,4 @@
-Poverty's child -    
-as I take my darkening path    
-Mogami River.    
+Cold first winter rain    
+it needs but shiny wings and look    
+Bearded, with bent canes    
 
