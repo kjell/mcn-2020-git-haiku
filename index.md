@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-let us to the road again    
-cherry-blossoms . . .    
+The summer grasses.    
+The fragrant blossoms remain.    
+Stabs the darkness    
 
