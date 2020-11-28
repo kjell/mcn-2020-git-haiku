@@ -1,4 +1,4 @@
-Oh, tranquility!    
-as I take my darkening path    
-cherry-blossoms . . .    
+In the cicada's cry    
+falling, falling, falling now    
+Splash!    
 
