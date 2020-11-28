@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-who spends his little breakfast    
-Murmuring Mogami    
+Temple bells die out.    
+watching us pass, met death    
+How soon it must die.    
 
