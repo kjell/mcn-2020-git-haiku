@@ -1,4 +1,4 @@
-The summer grasses.    
-The fragrant blossoms remain.    
-Stabs the darkness    
+Temple bells die out.    
+from cold streamlets for the sea    
+Of dark loneliness    
 
