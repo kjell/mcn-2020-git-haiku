@@ -1,4 +1,4 @@
-Black cloudbank broken    
-spare my little buzzing friends    
-from looking at the moon.    
+Bright red pepper-pod    
+who spends his little breakfast    
+Murmuring Mogami    
 
