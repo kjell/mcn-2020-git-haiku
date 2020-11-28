@@ -1,4 +1,4 @@
-Won't you come and see    
-There's no sign that can foretell    
-the autumn dusk is here.    
+Clouds come from time to time -    
+visit the ancestral grave    
+With tears.    
 
