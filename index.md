@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-visit the ancestral grave    
-Mogami River.    
+Chirping of the quails    
+let us arrange these flowers    
+Stabs the darkness    
 
