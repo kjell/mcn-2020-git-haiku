@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-There's no sign that can foretell    
-How soon it must die.    
+Won't you come and see    
+soup, the salad, fish and all    
+Mountain-top jewels    
 
