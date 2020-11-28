@@ -1,4 +1,4 @@
 Camellia-petal    
-chirping, keeps the autumn gay    
-Stabs the darkness    
+scatters in the night; Now see    
+Since there is no rice    
 
