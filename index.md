@@ -1,4 +1,4 @@
-None is travelling    
-mingling with bright small shells    
-Mogami River.    
+The sea darkening    
+Penetrating the very rock,    
+from the kiri tree.    
 
