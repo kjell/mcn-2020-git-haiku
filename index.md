@@ -1,4 +1,4 @@
-Camellia-petal    
-tolling twilight bell; Temple    
-the autumn dusk is here.    
+Ballet in the air    
+watching us pass, met death    
+Bearded, with bent canes    
 
