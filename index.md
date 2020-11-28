@@ -1,4 +1,4 @@
-Lightning -    
-All that remains    
-On the temple porch    
+The sea darkening    
+is quieted with creepers    
+This autumn evening.    
 
