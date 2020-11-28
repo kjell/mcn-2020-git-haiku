@@ -1,4 +1,4 @@
-Lightning -    
-A frog jumps in -    
-A cicada’s voice.    
+Glorious the moon    
+as I take my darkening path    
+Like our tendrilled life    
 
