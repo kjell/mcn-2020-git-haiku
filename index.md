@@ -1,4 +1,4 @@
-The sea darkening    
-is quieted with creepers    
-This autumn evening.    
+Nine times arising    
+The birds cry, and the fishes’ eyes are     
+Bush-clover petals    
 
