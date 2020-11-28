@@ -1,4 +1,4 @@
-Poverty's child -    
-let us to the road again    
-Of faded daffodils    
+Ah me! I am one    
+watching us pass, met death    
+Companion butterfly!    
 
