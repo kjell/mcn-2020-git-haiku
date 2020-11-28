@@ -1,4 +1,4 @@
-Mountain-rose petals    
-above white    
-Muffled by hot rocks    
+First white snow of fall    
+The fragrant blossoms remain.    
+My moonlit pillow    
 
