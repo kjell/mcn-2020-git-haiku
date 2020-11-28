@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Is also changed to another    
+Lady butterfly    
+that black crow I hate so much    
 The Autumn wind.    
 
