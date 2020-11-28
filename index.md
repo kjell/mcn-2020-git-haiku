@@ -1,4 +1,4 @@
-This is the new line    
-in dusky night    
-These dark hands of life    
+Chirping of the quails    
+above white    
+Stabs the darkness    
 
