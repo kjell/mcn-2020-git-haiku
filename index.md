@@ -1,4 +1,4 @@
-Cold first winter rain    
-it needs but shiny wings and look    
-Bearded, with bent canes    
+The sea darkening    
+There's no sign that can foretell    
+Stabs the darkness    
 
