@@ -1,4 +1,4 @@
-Lightning -    
-from cold streamlets for the sea    
-The autumn dusk is here.    
+Seek on high bare trails    
+therefore our thanks dark clouds    
+Marks only midnight yet    
 
