@@ -1,4 +1,4 @@
-Lightning -    
+In the cicada's cry    
 Here along this way but I,    
-Silent clouds of stars    
+Mountain-top jewels    
 
