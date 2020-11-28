@@ -1,4 +1,4 @@
-Black cloudbank broken    
-even the crickets' singing    
-Lilies on the rocks    
+The rains of summer join together.    
+then cry all birds and fishes    
+Mogami River.    
 
