@@ -1,4 +1,4 @@
-Temple bells die out.    
-watching us pass, met death    
-How soon it must die.    
+Now the swinging bridge    
+sky-reflecting violets    
+Come to rest our necks    
 
