@@ -1,4 +1,4 @@
-First white snow of fall    
-The fragrant blossoms remain.    
-My moonlit pillow    
+Now that eyes of hawks    
+stretching over Sado Island    
+Lilies on the rocks    
 
