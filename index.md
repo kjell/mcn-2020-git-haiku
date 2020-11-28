@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-Heron's cry    
-Or backyard love?    
+Ballet in the air    
+and bring to men a chance to rest    
+This autumn evening.    
 
