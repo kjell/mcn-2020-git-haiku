@@ -1,4 +1,4 @@
-Spring is passing.    
-tolling twilight bell; Temple    
-It’s the Doll’s Festival.    
+The first day of the year:    
+The birds cry, and the fishes’ eyes are     
+Tall grass their monument    
 
