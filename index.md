@@ -1,4 +1,4 @@
-The rains of summer join together.    
-spare my little buzzing friends    
-Goes plop! Watersplash!    
+In the cicada's cry    
+Heron's cry    
+Tall grass their monument    
 
