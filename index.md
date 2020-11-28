@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-captains swore grand conquest    
-My moonlit pillow    
+Dry cheerful cricket    
+sky-reflecting violets    
+It’s the Doll’s Festival.    
 
