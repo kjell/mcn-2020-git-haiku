@@ -1,4 +1,4 @@
-Nine times arising    
-The fragrant blossoms remain.    
-Splash!    
+This is the new line    
+in dusky night    
+These dark hands of life    
 
