@@ -1,4 +1,4 @@
-Lady butterfly    
-fell in silent dawn, spilling    
-Two white butterflies?    
+Poverty's child -    
+The fragrant blossoms remain.    
+My moonlit pillow    
 
