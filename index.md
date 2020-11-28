@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-tolling twilight bell; Temple    
-Among the flowers    
+A owner of the old thatched hut    
+let us to the road again    
+cherry-blossoms . . .    
 
