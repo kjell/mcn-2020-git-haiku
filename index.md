@@ -1,4 +1,4 @@
-Ah me! I am one    
-watching us pass, met death    
-Companion butterfly!    
+Too curious flower    
+Twilight whippoorwill, whistle on, sweet deepener    
+from looking at the moon.    
 
