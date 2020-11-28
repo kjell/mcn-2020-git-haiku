@@ -1,4 +1,4 @@
-Temple bells die out.    
-he starts to grind the rice,    
+Now in sad autumn    
+soup, the salad, fish and all    
 Of dark loneliness    
 
