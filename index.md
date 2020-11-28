@@ -1,4 +1,4 @@
-No oil to read by    
-let us arrange these flowers    
-A water-jewel    
+None is travelling    
+mingling with bright small shells    
+Mogami River.    
 
