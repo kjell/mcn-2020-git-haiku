@@ -1,4 +1,4 @@
-Ballet in the air    
-and bring to men a chance to rest    
-This autumn evening.    
+Ah me! I am one    
+loneliness? Just one leaf    
+Of warriors’ dreams.    
 
