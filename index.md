@@ -1,4 +1,4 @@
-This is the new line    
-twin butterflies until, twice white    
-On the temple porch    
+The sea darkening    
+The lips feel cold.    
+Mogami River.    
 
