@@ -1,4 +1,4 @@
-Lady butterfly    
-that black crow I hate so much    
-The Autumn wind.    
+Lightning -    
+All that remains    
+On the temple porch    
 
