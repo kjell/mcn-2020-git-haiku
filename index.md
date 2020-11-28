@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-sky-reflecting violets    
-It’s the Doll’s Festival.    
+Such utter silence!    
+All that remains    
+Murmuring Mogami    
 
