@@ -1,4 +1,4 @@
-Oh, tranquility!    
-and bring to men a chance to rest    
-Mogami River.    
+The first day of the year:    
+he starts to grind the rice,    
+Morning-glory gazing    
 
