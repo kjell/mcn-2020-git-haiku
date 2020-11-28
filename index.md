@@ -1,4 +1,4 @@
-In the cicada's cry    
-Heron's cry    
-Tall grass their monument    
+Camellia-petal    
+chirping, keeps the autumn gay    
+Stabs the darkness    
 
