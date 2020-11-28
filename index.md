@@ -1,4 +1,4 @@
-White cloud of mist    
-and bring to men a chance to rest    
-A butterfly floats and balances    
+This is the new line    
+twin butterflies until, twice white    
+On the temple porch    
 
