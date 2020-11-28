@@ -1,4 +1,4 @@
-Here, where a thousand    
-to see the moon, whose solemn pace    
-A cicada’s voice.    
+Now the swinging bridge    
+Is also changed to another    
+Our hungry donkey    
 
