@@ -1,4 +1,4 @@
-Temple bells die out.    
-Penetrating the very rock,    
-the autumn dusk is here.    
+White cloud of mist    
+tolling twilight bell; Temple    
+and gazes at the moon.    
 
