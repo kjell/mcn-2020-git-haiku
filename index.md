@@ -1,4 +1,4 @@
-White cloud of mist    
-tolling twilight bell; Temple    
-and gazes at the moon.    
+In the cicada's cry    
+and bring to men a chance to rest    
+It’s the Doll’s Festival.    
 
