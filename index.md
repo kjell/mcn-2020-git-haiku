@@ -1,4 +1,4 @@
-Lightning -    
-from cold streamlets for the sea    
-Darting dragon-fly!    
+White cloud of mist    
+above white    
+A cicada’s voice.    
 
