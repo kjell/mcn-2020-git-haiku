@@ -1,4 +1,4 @@
-An old pond    
-Is also changed to another    
-This autumn evening.    
+Swallow in the dusk    
+these heavy snow-flakes settling    
+cherry-blossoms . . .    
 
