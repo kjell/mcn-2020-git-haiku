@@ -1,4 +1,4 @@
-Poverty's child -    
-who spends his little breakfast    
-Mogami River.    
+Carven gods long gone    
+thoughts come - and there is loneliness;    
+This autumn evening.    
 
