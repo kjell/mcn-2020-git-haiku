@@ -1,4 +1,4 @@
-The sea darkening    
-captains swore grand conquest    
-These dark hands of life    
+Will we meet again    
+Heron's cry    
+Bearded, with bent canes    
 
