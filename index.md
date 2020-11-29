@@ -1,4 +1,4 @@
 An old pond    
-Line that won't be deleted    
-These dark hands of life    
+soup, the salad, fish and all    
+Tall grass their monument    
 
