@@ -1,4 +1,4 @@
-Temple bells die out.    
-in dusky night    
-On the temple porch    
+The sea darkening    
+Here along this way but I,    
+But he's beautiful!    
 
