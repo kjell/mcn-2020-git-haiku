@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-perfumes her wings by floating    
-Stabs the darkness    
+Under cherry-trees    
+oh voices of the wild ducks    
+Cold pale eyes pour tears    
 
