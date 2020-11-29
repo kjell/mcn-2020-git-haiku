@@ -1,4 +1,4 @@
-An old pond    
-soup, the salad, fish and all    
-Tall grass their monument    
+This snowy morning    
+it needs but shiny wings and look    
+Or backyard love?    
 
