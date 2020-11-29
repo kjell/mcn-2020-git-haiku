@@ -1,4 +1,4 @@
-Black cloudbank broken    
-starving for fat fish or mice    
-Lilies on the rocks    
+A owner of the old thatched hut    
+he starts to grind the rice,    
+Silent clouds of stars    
 
