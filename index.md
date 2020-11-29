@@ -1,4 +1,4 @@
-Now the swinging bridge    
-these brilliant-hued hibiscus    
-Cold pale eyes pour tears    
+An old pond    
+Line that won't be deleted    
+These dark hands of life    
 
