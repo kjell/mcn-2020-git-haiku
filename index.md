@@ -1,4 +1,4 @@
-Ballet in the air    
-chirping, keeps the autumn gay    
-And evening bell    
+Black cloudbank broken    
+watching us pass, met death    
+are darkened . . .    
 
