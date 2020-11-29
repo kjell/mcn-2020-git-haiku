@@ -1,4 +1,4 @@
-Glorious the moon    
-it needs but shiny wings and look    
-Stabs the darkness    
+Dawn-shining mountains    
+Is also changed to another    
+With tears.    
 
