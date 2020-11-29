@@ -1,4 +1,4 @@
-First white snow of fall    
-Heron's cry    
-Cherry-blossoms    
+The river gathering may rains    
+I am off to bed - but ah!    
+Muffled by hot rocks    
 
