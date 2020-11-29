@@ -1,4 +1,4 @@
-Cold first winter rain    
-watching us pass, met death    
-The autumn dusk is here.    
+Camellia-petal    
+visit the ancestral grave    
+On the temple porch    
 
