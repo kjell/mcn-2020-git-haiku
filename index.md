@@ -1,4 +1,4 @@
-Lightning -    
-and bring to men a chance to rest    
-Our hungry donkey    
+Lady butterfly    
+Here along this way but I,    
+Of warriors’ dreams.    
 
