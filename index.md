@@ -1,4 +1,4 @@
-None is travelling    
-soup, the salad, fish and all    
-Bush-clover petals    
+Now that eyes of hawks    
+chirping, keeps the autumn gay    
+from the kiri tree.    
 
