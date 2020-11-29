@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-poor monkey, you too could use    
-Of warriors’ dreams.    
+Temple bells die out.    
+A frog jumps in -    
+The autumn dusk is here.    
 
