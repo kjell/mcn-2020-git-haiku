@@ -1,4 +1,4 @@
-Carven gods long gone    
-thoughts come - and there is loneliness;    
-This autumn evening.    
+Dewdrop, let me cleanse    
+poor monkey, you too could use    
+Of warriors’ dreams.    
 
