@@ -1,4 +1,4 @@
-The sea darkening    
-Here along this way but I,    
-But he's beautiful!    
+Clouds come from time to time -    
+that black crow I hate so much    
+A perfect evening!    
 
