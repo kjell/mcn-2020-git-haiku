@@ -1,4 +1,4 @@
-Under cherry-trees    
-thoughts come - and there is loneliness;    
-Muffled by hot rocks    
+Cold first winter rain    
+The birds cry, and the fishes’ eyes are     
+This autumn evening.    
 
