@@ -1,4 +1,4 @@
-None is travelling    
-let us arrange these flowers    
-Darting dragon-fly!    
+Clouds come from time to time -    
+sky-reflecting violets    
+Crying, whirling, white    
 
