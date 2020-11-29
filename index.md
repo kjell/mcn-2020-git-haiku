@@ -1,4 +1,4 @@
-Black cloudbank broken    
-The lips feel cold.    
-It’s the Doll’s Festival.    
+Here, where a thousand    
+who spends his little breakfast    
+With tears.    
 
