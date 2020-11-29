@@ -1,4 +1,4 @@
-For a lovely bowl    
-spare my little buzzing friends    
-the autumn dusk is here.    
+The summer grasses.    
+The birds cry, and the fishes’ eyes are     
+They meet, they mate    
 
