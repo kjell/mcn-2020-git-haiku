@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-chirping, keeps the autumn gay    
-from the kiri tree.    
+Won't you come and see    
+fell in silent dawn, spilling    
+from looking at the moon.    
 
