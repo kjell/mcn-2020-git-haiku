@@ -1,4 +1,4 @@
-Seek on high bare trails    
-starving for fat fish or mice    
-Like our tendrilled life    
+Too curious flower    
+that black crow I hate so much    
+the autumn dusk is here.    
 
