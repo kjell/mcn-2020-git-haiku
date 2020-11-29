@@ -1,4 +1,4 @@
-None is travelling    
-Line that won't be deleted    
-A cicada’s voice.    
+Lady butterfly    
+The lips feel cold.    
+Stabs the darkness    
 
