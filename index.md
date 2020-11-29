@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-that black crow I hate so much    
-A perfect evening!    
+Now the swinging bridge    
+these brilliant-hued hibiscus    
+Cold pale eyes pour tears    
 
