@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-tolling twilight bell; Temple    
-Stabs the darkness    
+Too curious flower    
+soup, the salad, fish and all    
+Basho lines the moon    
 
