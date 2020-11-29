@@ -1,4 +1,4 @@
-Spring is passing.    
-All that remains    
-Our hungry donkey    
+Poverty's child -    
+who spends his little breakfast    
+Mogami River.    
 
