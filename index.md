@@ -1,4 +1,4 @@
-Now the swinging bridge    
+Poverty's child -    
 Here along this way but I,    
-Of dark loneliness    
+Bearded, with bent canes    
 
