@@ -1,4 +1,4 @@
-Temple bells die out.    
-A frog jumps in -    
-The autumn dusk is here.    
+The summer grasses.    
+All that remains    
+And evening bell    
 
