@@ -1,4 +1,4 @@
-Won't you come and see    
-fell in silent dawn, spilling    
-from looking at the moon.    
+Spring is passing.    
+All that remains    
+Our hungry donkey    
 
