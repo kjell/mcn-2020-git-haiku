@@ -1,4 +1,4 @@
-The first day of the year:    
-watching us pass, met death    
-Stabs the darkness    
+Seek on high bare trails    
+it needs but shiny wings and look    
+Of warriors’ dreams.    
 
