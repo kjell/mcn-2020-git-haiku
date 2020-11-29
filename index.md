@@ -1,4 +1,4 @@
-No oil to read by    
-the scent of flowers floating    
-Silent clouds of stars    
+Now in sad autumn    
+just enough to bend the leaves    
+Seasoned with petals    
 
