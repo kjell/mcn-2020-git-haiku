@@ -1,4 +1,4 @@
-Lady butterfly    
-Here along this way but I,    
-Of warriors’ dreams.    
+Black cloudbank broken    
+The lips feel cold.    
+It’s the Doll’s Festival.    
 
