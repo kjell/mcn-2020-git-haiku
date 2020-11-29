@@ -1,4 +1,4 @@
-Swallow in the dusk    
-these heavy snow-flakes settling    
-cherry-blossoms . . .    
+No oil to read by    
+the scent of flowers floating    
+Silent clouds of stars    
 
