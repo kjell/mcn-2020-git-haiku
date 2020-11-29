@@ -1,4 +1,4 @@
-Cold first winter rain    
-to see the moon, whose solemn pace    
-cherry-blossoms . . .    
+This snowy morning    
+is quieted with creepers    
+The autumn dusk is here.    
 
