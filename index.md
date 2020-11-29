@@ -1,4 +1,4 @@
-Seek on high bare trails    
-loneliness? Just one leaf    
-Splash!    
+First white snow of fall    
+Heron's cry    
+Cherry-blossoms    
 
