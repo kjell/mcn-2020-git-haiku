@@ -1,4 +1,4 @@
-Won't you come and see    
-Heron's cry    
-Or backyard love?    
+Seas are wild tonight    
+sky-reflecting violets    
+Ueno? Asakura?    
 
