@@ -1,4 +1,4 @@
-This snowy morning    
-it needs but shiny wings and look    
-Or backyard love?    
+Temple bells die out.    
+Penetrating the very rock,    
+the autumn dusk is here.    
 
