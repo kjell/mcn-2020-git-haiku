@@ -1,4 +1,4 @@
-Poverty's child -    
-the scent of flowers floating    
-Mountain-top jewels    
+The rains of summer join together.    
+above white    
+the autumn dusk is here.    
 
