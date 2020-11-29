@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-sky-reflecting violets    
-Crying, whirling, white    
+No oil to read by    
+Line that won't be deleted    
+Stabs the darkness    
 
