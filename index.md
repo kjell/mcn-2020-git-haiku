@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-The fragrant blossoms remain.    
-Or backyard love?    
+White cloud of mist    
+tolling twilight bell; Temple    
+Morning-glory gazing    
 
