@@ -1,4 +1,4 @@
-Black cloudbank broken    
-The birds cry, and the fishes’ eyes are     
-from looking at the moon.    
+This snowy morning    
+There's no sign that can foretell    
+Cold pale eyes pour tears    
 
