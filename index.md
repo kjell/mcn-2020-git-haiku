@@ -1,4 +1,4 @@
-Poverty's child -    
-Here along this way but I,    
-Bearded, with bent canes    
+Cold first winter rain    
+to see the moon, whose solemn pace    
+cherry-blossoms . . .    
 
