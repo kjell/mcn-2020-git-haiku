@@ -1,4 +1,4 @@
-Temple bells die out.    
-April's air stirs in willow-leaves    
-It’s the Doll’s Festival.    
+Now the swinging bridge    
+How swift it is    
+Silent clouds of stars    
 
