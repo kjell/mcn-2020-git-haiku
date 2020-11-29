@@ -1,4 +1,4 @@
-The river gathering may rains    
-let us arrange these flowers    
-A water-jewel    
+Won't you come and see    
+that black crow I hate so much    
+Mogami River.    
 
