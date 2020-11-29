@@ -1,4 +1,4 @@
-Lightning -    
-The birds cry, and the fishes’ eyes are     
-Over the orchid    
+Won't you come and see    
+Heron's cry    
+Or backyard love?    
 
