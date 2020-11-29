@@ -1,4 +1,4 @@
-Lady butterfly    
-The lips feel cold.    
-Stabs the darkness    
+Lightning -    
+The birds cry, and the fishes’ eyes are     
+Over the orchid    
 
