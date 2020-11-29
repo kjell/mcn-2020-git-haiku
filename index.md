@@ -1,4 +1,4 @@
-The rains of summer join together.    
-above white    
-the autumn dusk is here.    
+Won't you come and see    
+Heron's cry    
+Ueno? Asakura?    
 
