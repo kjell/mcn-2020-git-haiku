@@ -1,4 +1,4 @@
-Seas are wild tonight    
-sky-reflecting violets    
-Ueno? Asakura?    
+None is travelling    
+let us arrange these flowers    
+Darting dragon-fly!    
 
