@@ -1,4 +1,4 @@
-This snowy morning    
-There's no sign that can foretell    
-Cold pale eyes pour tears    
+White cloud of mist    
+in your brief sweet waters    
+My moonlit pillow    
 
