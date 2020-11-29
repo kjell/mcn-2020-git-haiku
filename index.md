@@ -1,4 +1,4 @@
-Ah me! I am one    
-The birds cry, and the fishes’ eyes are     
-are darkened    
+Spring is passing.    
+just enough to bend the leaves    
+A perfect evening!    
 
