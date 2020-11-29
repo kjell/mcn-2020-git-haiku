@@ -1,4 +1,4 @@
-In the sea-surf edge    
-How swift it is    
-Splash!    
+Lightning -    
+from cold streamlets for the sea    
+Darting dragon-fly!    
 
