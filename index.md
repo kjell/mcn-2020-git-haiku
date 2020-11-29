@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-thoughts come - and there is loneliness;    
-Moon-lighted mountains!    
+Seas are wild tonight    
+above white    
+Murmuring Mogami    
 
