@@ -1,4 +1,4 @@
-White cloud of mist    
-in your brief sweet waters    
-My moonlit pillow    
+Cloud of cherry-bloom    
+thoughts come - and there is loneliness;    
+Moon-lighted mountains!    
 
