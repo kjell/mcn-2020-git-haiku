@@ -1,4 +1,4 @@
-Seek on high bare trails    
-it needs but shiny wings and look    
-Of warriors’ dreams.    
+Black cloudbank broken    
+The birds cry, and the fishes’ eyes are     
+from looking at the moon.    
 
