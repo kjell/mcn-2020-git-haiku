@@ -1,4 +1,4 @@
-Will we meet again    
-Heron's cry    
-Bearded, with bent canes    
+Dry cheerful cricket    
+these heavy snow-flakes settling    
+Splash!    
 
