@@ -1,4 +1,4 @@
-Here, where a thousand    
-who spends his little breakfast    
-With tears.    
+Ballet in the air    
+chirping, keeps the autumn gay    
+And evening bell    
 
