@@ -1,4 +1,4 @@
-Under cherry-trees    
-oh voices of the wild ducks    
-Cold pale eyes pour tears    
+Old dark sleepy pool    
+Here along this way but I,    
+Among the flowers    
 
