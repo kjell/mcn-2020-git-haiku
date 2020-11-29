@@ -1,4 +1,4 @@
-Ballet in the air    
-captains swore grand conquest    
-It’s the Doll’s Festival.    
+Cold first winter rain    
+watching us pass, met death    
+The autumn dusk is here.    
 
