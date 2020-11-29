@@ -1,4 +1,4 @@
-Will we meet again    
-How swift it is    
-Goes plop! Watersplash!    
+Spring is passing.    
+visit the ancestral grave    
+It’s the Doll’s Festival.    
 
