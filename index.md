@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-watching us pass, met death    
-Crying, whirling, white    
+None is travelling    
+The birds cry, and the fishes’ eyes are     
+and gazes at the moon.    
 
