@@ -1,4 +1,4 @@
-Won't you come and see    
-Heron's cry    
-Ueno? Asakura?    
+Seek on high bare trails    
+loneliness? Just one leaf    
+Splash!    
 
