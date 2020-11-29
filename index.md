@@ -1,4 +1,4 @@
-Poverty's child -    
-to see the moon, whose solemn pace    
-A solitary bird    
+In the sea-surf edge    
+fell in silent dawn, spilling    
+Of warriors’ dreams.    
 
