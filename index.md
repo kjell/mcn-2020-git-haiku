@@ -1,4 +1,4 @@
-First white snow of fall    
-Is also changed to another    
-Morning-glory gazing    
+A owner of the old thatched hut    
+tolling twilight bell; Temple    
+Stabs the darkness    
 
