@@ -1,4 +1,4 @@
-Now in sad autumn    
-just enough to bend the leaves    
-Seasoned with petals    
+Old dark sleepy pool    
+perfumes her wings by floating    
+Stabs the darkness    
 
