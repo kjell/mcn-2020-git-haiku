@@ -1,4 +1,4 @@
-Spring is passing.    
-visit the ancestral grave    
-It’s the Doll’s Festival.    
+Lightning -    
+and bring to men a chance to rest    
+Our hungry donkey    
 
