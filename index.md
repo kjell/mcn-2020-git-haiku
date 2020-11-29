@@ -1,4 +1,4 @@
-Chirping of the quails    
-There's no sign that can foretell    
-Goes plop! Watersplash!    
+Dry cheerful cricket    
+watching us pass, met death    
+Crying, whirling, white    
 
