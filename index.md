@@ -1,4 +1,4 @@
-The summer grasses.    
-The birds cry, and the fishes’ eyes are     
-They meet, they mate    
+Temple bells die out.    
+in dusky night    
+On the temple porch    
 
