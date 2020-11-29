@@ -1,4 +1,4 @@
-Lady butterfly    
-spare my little buzzing friends    
-Bearded, with bent canes    
+See: surviving suns    
+in dusky night    
+A solitary bird    
 
