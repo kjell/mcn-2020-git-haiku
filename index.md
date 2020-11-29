@@ -1,4 +1,4 @@
-Cold first winter rain    
-The birds cry, and the fishes’ eyes are     
-This autumn evening.    
+The first day of the year:    
+loneliness? Just one leaf    
+Marks only midnight yet    
 
