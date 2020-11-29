@@ -1,4 +1,4 @@
-The first day of the year:    
-to see the moon, whose solemn pace    
-are darkened    
+Now that eyes of hawks    
+The fragrant blossoms remain.    
+Or backyard love?    
 
