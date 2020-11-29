@@ -1,4 +1,4 @@
-Too curious flower    
-soup, the salad, fish and all    
-Basho lines the moon    
+No oil to read by    
+and bring to men a chance to rest    
+Of faded daffodils    
 
