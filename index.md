@@ -1,4 +1,4 @@
-The first day of the year:    
-as I take my darkening path    
-Or backyard love?    
+Under cherry-trees    
+thoughts come - and there is loneliness;    
+Muffled by hot rocks    
 
