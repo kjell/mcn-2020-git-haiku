@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-Here along this way but I,    
-Among the flowers    
+Bright red pepper-pod    
+scatters in the night; Now see    
+Goes plop! Watersplash!    
 
