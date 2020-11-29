@@ -1,4 +1,4 @@
-Too curious flower    
-that black crow I hate so much    
-the autumn dusk is here.    
+In the sea-surf edge    
+How swift it is    
+Splash!    
 
