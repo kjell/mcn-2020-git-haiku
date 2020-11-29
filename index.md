@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-scatters in the night; Now see    
-Goes plop! Watersplash!    
+The sea darkening    
+captains swore grand conquest    
+These dark hands of life    
 
