@@ -1,4 +1,4 @@
-Lady butterfly    
-scatters in the night; Now see    
-Of dark loneliness    
+None is travelling    
+soup, the salad, fish and all    
+Bush-clover petals    
 
