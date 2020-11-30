@@ -1,4 +1,4 @@
-The river gathering may rains    
-these brilliant-hued hibiscus    
-On the temple porch    
+Why so scrawny, cat?    
+above white    
+Bush-clover petals    
 
