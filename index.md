@@ -1,4 +1,4 @@
-An old pond    
-loneliness? Just one leaf    
-Moon-lighted mountains!    
+None is travelling    
+thoughts come - and there is loneliness;    
+from looking at the moon.    
 
