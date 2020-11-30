@@ -1,4 +1,4 @@
-Won't you come and see    
-who spends his little breakfast    
-the autumn dusk is here.    
+The rains of summer join together.    
+these brilliant-hued hibiscus    
+from looking at the moon.    
 
