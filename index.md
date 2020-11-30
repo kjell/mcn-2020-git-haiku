@@ -1,4 +1,4 @@
-Chirping of the quails    
-perfumes her wings by floating    
-Like our tendrilled life    
+Won't you come and see    
+who spends his little breakfast    
+the autumn dusk is here.    
 
