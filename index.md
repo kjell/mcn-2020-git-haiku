@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-twin butterflies until, twice white    
-Companion butterfly!    
+An old pond    
+these brilliant-hued hibiscus    
+and gazes at the moon.    
 
