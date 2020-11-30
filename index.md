@@ -1,4 +1,4 @@
-See: surviving suns    
-Penetrating the very rock,    
-and gazes at the moon.    
+Wake! The sky is light!    
+The birds cry, and the fishes’ eyes are     
+Basho lines the moon    
 
