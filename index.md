@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-A frog jumps in -    
-Like our tendrilled life    
+Black cloudbank broken    
+and bring to men a chance to rest    
+How soon it must die.    
 
