@@ -1,4 +1,4 @@
-When you say something,    
-perfumes her wings by floating    
+An old pond    
+as I take my darkening path    
 Crying, whirling, white    
 
