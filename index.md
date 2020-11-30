@@ -1,4 +1,4 @@
-Under cherry-trees    
-the scent of flowers floating    
-It’s the Doll’s Festival.    
+Mountain-rose petals    
+loneliness? Just one leaf    
+Cherry-blossoms    
 
