@@ -1,4 +1,4 @@
-None is travelling    
-the scent of flowers floating    
-are darkened . . .    
+Camellia-petal    
+it needs but shiny wings and look    
+A butterfly floats and balances    
 
