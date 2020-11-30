@@ -1,4 +1,4 @@
-Ballet in the air    
-Twilight whippoorwill, whistle on, sweet deepener    
-Silent clouds of stars    
+The first day of the year:    
+A frog jumps in -    
+cherry-blossoms . . .    
 
