@@ -1,4 +1,4 @@
-Chirping of the quails    
-A frog jumps in -    
-from looking at the moon.    
+In the cicada's cry    
+mingling with bright small shells    
+This autumn evening.    
 
