@@ -1,4 +1,4 @@
-Ah me! I am one    
-these heavy snow-flakes settling    
-This autumn evening.    
+Camellia-petal    
+even the crickets' singing    
+Darting dragon-fly!    
 
