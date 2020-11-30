@@ -1,4 +1,4 @@
-The first day of the year:    
-in your brief sweet waters    
-A lovely sunset    
+Won't you come and see    
+these heavy snow-flakes settling    
+A perfect evening!    
 
