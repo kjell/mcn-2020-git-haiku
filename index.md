@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-who spends his little breakfast    
-Goes plop! Watersplash!    
+Dry cheerful cricket    
+How swift it is    
+Cherry-blossoms    
 
