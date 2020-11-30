@@ -1,4 +1,4 @@
-Won't you come and see    
+White cloud of mist    
 Is also changed to another    
 Bush-clover petals    
 
