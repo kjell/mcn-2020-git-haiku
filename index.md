@@ -1,4 +1,4 @@
-Carven gods long gone    
-and bring to men a chance to rest    
-Two white butterflies?    
+The rains of summer join together.    
+tolling twilight bell; Temple    
+from looking at the moon.    
 
