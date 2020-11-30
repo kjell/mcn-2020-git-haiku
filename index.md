@@ -1,4 +1,4 @@
-Such utter silence!    
-then cry all birds and fishes    
-Stabs the darkness    
+Wake! The sky is light!    
+from cold streamlets for the sea    
+A water-jewel    
 
