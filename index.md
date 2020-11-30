@@ -1,4 +1,4 @@
-None is travelling    
-Here along this way but I,    
-With tears.    
+The rains of summer join together.    
+in dusky night    
+The Autumn wind.    
 
