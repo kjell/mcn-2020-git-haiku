@@ -1,4 +1,4 @@
-Lady butterfly    
-from cold streamlets for the sea    
-Seasoned with petals    
+Now in sad autumn    
+falling, falling, falling now    
+are darkened . . .    
 
