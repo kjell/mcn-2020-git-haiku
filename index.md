@@ -1,4 +1,4 @@
-This snowy morning    
-from cold streamlets for the sea    
-Darting dragon-fly!    
+Ah me! I am one    
+these heavy snow-flakes settling    
+This autumn evening.    
 
