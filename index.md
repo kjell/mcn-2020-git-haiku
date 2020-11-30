@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-to see the moon, whose solemn pace    
-Like our tendrilled life    
+Won't you come and see    
+Here along this way but I,    
+It’s the Doll’s Festival.    
 
