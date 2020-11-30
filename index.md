@@ -1,4 +1,4 @@
 The rains of summer join together.    
-falling, falling, falling now    
-Morning-glory gazing    
+he starts to grind the rice,    
+These dark hands of life    
 
