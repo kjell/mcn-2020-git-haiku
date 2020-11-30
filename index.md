@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-above white    
-Bush-clover petals    
+In the sea-surf edge    
+A frog jumps in -    
+Splash!    
 
