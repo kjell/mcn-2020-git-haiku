@@ -1,4 +1,4 @@
-The first day of the year:    
-chirping, keeps the autumn gay    
-Among the flowers    
+Bright red pepper-pod    
+oh voices of the wild ducks    
+Over the orchid    
 
