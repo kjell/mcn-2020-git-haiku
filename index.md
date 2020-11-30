@@ -1,4 +1,4 @@
-The rains of summer join together.    
-he starts to grind the rice,    
-These dark hands of life    
+See: surviving suns    
+Penetrating the very rock,    
+and gazes at the moon.    
 
