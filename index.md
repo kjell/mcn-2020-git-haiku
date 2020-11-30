@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-in your brief sweet waters    
-are darkened    
+None is travelling    
+is quieted with creepers    
+Two white butterflies?    
 
