@@ -1,4 +1,4 @@
-The rains of summer join together.    
-tolling twilight bell; Temple    
-from looking at the moon.    
+Dewdrop, let me cleanse    
+let us arrange these flowers    
+Ueno? Asakura?    
 
