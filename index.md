@@ -1,4 +1,4 @@
-In the cicada's cry    
-starving for fat fish or mice    
-Mogami River.    
+Chirping of the quails    
+A frog jumps in -    
+from looking at the moon.    
 
