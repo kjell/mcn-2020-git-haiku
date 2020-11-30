@@ -1,4 +1,4 @@
-Seek on high bare trails    
-in your brief sweet waters    
-Moon-lighted mountains!    
+Why so scrawny, cat?    
+who spends his little breakfast    
+Goes plop! Watersplash!    
 
