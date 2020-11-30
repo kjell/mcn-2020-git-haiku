@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-that black crow I hate so much    
-Lilies on the rocks    
+Such utter silence!    
+then cry all birds and fishes    
+Stabs the darkness    
 
