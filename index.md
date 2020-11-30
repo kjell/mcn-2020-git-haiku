@@ -1,4 +1,4 @@
-Lightning -    
-that black crow I hate so much    
-Two white butterflies?    
+Wake! The sky is light!    
+watching us pass, met death    
+Splash!    
 
