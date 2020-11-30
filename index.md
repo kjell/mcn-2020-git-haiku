@@ -1,4 +1,4 @@
-None is travelling    
-is quieted with creepers    
-Two white butterflies?    
+A owner of the old thatched hut    
+to see the moon, whose solemn pace    
+Like our tendrilled life    
 
