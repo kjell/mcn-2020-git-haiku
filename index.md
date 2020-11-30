@@ -1,4 +1,4 @@
-The summer grasses.    
-chirping, keeps the autumn gay    
-and gazes at the moon.    
+Bright red pepper-pod    
+twin butterflies until, twice white    
+Companion butterfly!    
 
