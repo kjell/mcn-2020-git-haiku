@@ -1,4 +1,4 @@
-An old pond    
-in dusky night    
-Our hungry donkey    
+Dewdrop, let me cleanse    
+falling, falling, falling now    
+This autumn evening.    
 
