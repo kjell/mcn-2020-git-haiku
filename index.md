@@ -1,4 +1,4 @@
-Carven gods long gone    
-chirping, keeps the autumn gay    
-Crying, whirling, white    
+Chirping of the quails    
+perfumes her wings by floating    
+Like our tendrilled life    
 
