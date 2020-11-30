@@ -1,4 +1,4 @@
-In the cicada's cry    
-stretching over Sado Island    
-They meet, they mate    
+Oh, tranquility!    
+falling, falling, falling now    
+Since there is no rice    
 
