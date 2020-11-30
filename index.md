@@ -1,4 +1,4 @@
-This is the new line    
-loneliness? Just one leaf    
-A perfect evening!    
+Seek on high bare trails    
+Heron's cry    
+Stabs the darkness    
 
