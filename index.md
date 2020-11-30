@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-falling, falling, falling now    
-This autumn evening.    
+Dawn-shining mountains    
+A frog jumps in -    
+Like our tendrilled life    
 
