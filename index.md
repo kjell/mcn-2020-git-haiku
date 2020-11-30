@@ -1,4 +1,4 @@
-Such utter silence!    
-Twilight whippoorwill, whistle on, sweet deepener    
-Splash!    
+None is travelling    
+There's no sign that can foretell    
+Lilies on the rocks    
 
