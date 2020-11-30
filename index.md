@@ -1,4 +1,4 @@
-Mountain-rose petals    
-these brilliant-hued hibiscus    
-The autumn dusk is here.    
+When you say something,    
+perfumes her wings by floating    
+Crying, whirling, white    
 
