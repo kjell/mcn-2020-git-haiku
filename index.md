@@ -1,4 +1,4 @@
-Seek on high bare trails    
-Heron's cry    
-Stabs the darkness    
+Mountain-rose petals    
+The fragrant blossoms remain.    
+Two white butterflies?    
 
