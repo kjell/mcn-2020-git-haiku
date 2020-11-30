@@ -1,4 +1,4 @@
-White cloud of mist    
-Is also changed to another    
-Bush-clover petals    
+Spring is passing.    
+oh voices of the wild ducks    
+Mountain-top jewels    
 
