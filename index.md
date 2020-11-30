@@ -1,4 +1,4 @@
-Under cherry-trees    
-poor monkey, you too could use    
-A cicada’s voice.    
+Black cloudbank broken    
+All that remains    
+Tall grass their monument    
 
