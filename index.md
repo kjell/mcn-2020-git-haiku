@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-oh voices of the wild ducks    
-Over the orchid    
+Nine times arising    
+tolling twilight bell; Temple    
+From the kiri tree.    
 
