@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Penetrating the very rock,    
-are darkened    
+Carven gods long gone    
+and bring to men a chance to rest    
+Two white butterflies?    
 
