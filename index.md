@@ -1,4 +1,4 @@
-White cloud of mist    
-How swift it is    
-Mountain-top jewels    
+Such utter silence!    
+Twilight whippoorwill, whistle on, sweet deepener    
+Splash!    
 
