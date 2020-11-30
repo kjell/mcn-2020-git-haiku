@@ -1,4 +1,4 @@
-Black cloudbank broken    
-All that remains    
-Tall grass their monument    
+Lightning -    
+that black crow I hate so much    
+Two white butterflies?    
 
