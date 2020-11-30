@@ -1,4 +1,4 @@
-Black cloudbank broken    
-dead leaves alone foregather    
-Cold pale eyes pour tears    
+This snowy morning    
+The fragrant blossoms remain.    
+With tears.    
 
