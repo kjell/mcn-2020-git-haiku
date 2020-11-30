@@ -1,4 +1,4 @@
-Won't you come and see    
-these heavy snow-flakes settling    
-A perfect evening!    
+The river gathering may rains    
+these brilliant-hued hibiscus    
+On the temple porch    
 
