@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-How swift it is    
-Cherry-blossoms    
+A owner of the old thatched hut    
+in your brief sweet waters    
+are darkened    
 
