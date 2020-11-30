@@ -1,4 +1,4 @@
-Poverty's child -    
-thoughts come - and there is loneliness;    
-Muffled by hot rocks    
+This is the new line    
+then cry all birds and fishes    
+Like our tendrilled life    
 
