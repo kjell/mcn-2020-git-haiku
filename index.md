@@ -1,4 +1,4 @@
-Seas are wild tonight    
-mingling with bright small shells    
-Goes plop! Watersplash!    
+When you say something,    
+in your brief sweet waters    
+This autumn evening.    
 
