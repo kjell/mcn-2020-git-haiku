@@ -1,4 +1,4 @@
-None is travelling    
-There's no sign that can foretell    
-Lilies on the rocks    
+This snowy morning    
+from cold streamlets for the sea    
+Darting dragon-fly!    
 
