@@ -1,4 +1,4 @@
-None is travelling    
-thoughts come - and there is loneliness;    
-from looking at the moon.    
+Under cherry-trees    
+quick unexpected frog    
+A water-jewel    
 
