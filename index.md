@@ -1,4 +1,4 @@
-Must springtime fade?    
-loneliness? Just one leaf    
-Bush-clover petals    
+An old pond    
+in dusky night    
+Our hungry donkey    
 
