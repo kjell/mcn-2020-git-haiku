@@ -1,4 +1,4 @@
-In the sea-surf edge    
-let us to the road again    
-This autumn evening.    
+Under cherry-trees    
+the scent of flowers floating    
+It’s the Doll’s Festival.    
 
