@@ -1,4 +1,4 @@
-The summer grasses.    
-to see the moon, whose solemn pace    
-Two white butterflies?    
+Wake! The sky is light!    
+All that remains    
+Tall grass their monument    
 
