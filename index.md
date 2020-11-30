@@ -1,4 +1,4 @@
-Camellia-petal    
-thoughts come - and there is loneliness;    
-are darkened . . .    
+Lady butterfly    
+from cold streamlets for the sea    
+Seasoned with petals    
 
