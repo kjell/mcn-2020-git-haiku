@@ -1,4 +1,4 @@
-Temple bells die out.    
-A frog jumps in -    
-Of faded daffodils    
+Mountain-rose petals    
+these brilliant-hued hibiscus    
+The autumn dusk is here.    
 
