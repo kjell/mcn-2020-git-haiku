@@ -1,4 +1,4 @@
-Mountain-rose petals    
-loneliness? Just one leaf    
-Cherry-blossoms    
+Bright red pepper-pod    
+April's air stirs in willow-leaves    
+Morning-glory gazing    
 
