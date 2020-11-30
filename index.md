@@ -1,4 +1,4 @@
-Now in sad autumn    
+The rains of summer join together.    
 falling, falling, falling now    
-are darkened . . .    
+Morning-glory gazing    
 
