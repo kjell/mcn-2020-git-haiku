@@ -1,4 +1,4 @@
-In the sea-surf edge    
-A frog jumps in -    
-Splash!    
+The first day of the year:    
+chirping, keeps the autumn gay    
+Among the flowers    
 
