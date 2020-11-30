@@ -1,4 +1,4 @@
-This snowy morning    
-The fragrant blossoms remain.    
-With tears.    
+Poverty's child -    
+thoughts come - and there is loneliness;    
+Muffled by hot rocks    
 
