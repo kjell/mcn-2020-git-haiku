@@ -1,4 +1,4 @@
-Oh, tranquility!    
-falling, falling, falling now    
-Since there is no rice    
+White cloud of mist    
+sky-reflecting violets    
+Of faded daffodils    
 
