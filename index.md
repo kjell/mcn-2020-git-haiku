@@ -1,4 +1,4 @@
-Camellia-petal    
+The river gathering may rains    
 it needs but shiny wings and look    
-A butterfly floats and balances    
+Among the flowers    
 
