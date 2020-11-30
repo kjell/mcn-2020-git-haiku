@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-he starts to grind the rice,    
-Our hungry donkey    
+Clouds come from time to time -    
+that black crow I hate so much    
+Lilies on the rocks    
 
