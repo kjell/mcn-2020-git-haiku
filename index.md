@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-from cold streamlets for the sea    
-A water-jewel    
+In the cicada's cry    
+starving for fat fish or mice    
+Mogami River.    
 
