@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-watching us pass, met death    
-Splash!    
+Dewdrop, let me cleanse    
+he starts to grind the rice,    
+Our hungry donkey    
 
