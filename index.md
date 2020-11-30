@@ -1,4 +1,4 @@
-White cloud of mist    
-A frog jumps in -    
-Splash!    
+Ballet in the air    
+Twilight whippoorwill, whistle on, sweet deepener    
+Silent clouds of stars    
 
