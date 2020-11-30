@@ -1,4 +1,4 @@
-Nine times arising    
-tolling twilight bell; Temple    
-From the kiri tree.    
+The summer grasses.    
+to see the moon, whose solemn pace    
+Two white butterflies?    
 
