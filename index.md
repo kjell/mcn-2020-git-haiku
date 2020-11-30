@@ -1,4 +1,4 @@
-Too curious flower    
-Line that won't be deleted    
-With tears.    
+Under cherry-trees    
+poor monkey, you too could use    
+A cicada’s voice.    
 
