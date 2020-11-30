@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-let us arrange these flowers    
-Ueno? Asakura?    
+Black cloudbank broken    
+dead leaves alone foregather    
+Cold pale eyes pour tears    
 
