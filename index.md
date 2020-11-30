@@ -1,4 +1,4 @@
-Black cloudbank broken    
-and bring to men a chance to rest    
-How soon it must die.    
+Camellia-petal    
+thoughts come - and there is loneliness;    
+are darkened . . .    
 
