@@ -1,4 +1,4 @@
-Mountain-rose petals    
-The fragrant blossoms remain.    
-Seasoned with petals    
+Temple bells die out.    
+A frog jumps in -    
+Of faded daffodils    
 
