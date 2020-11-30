@@ -1,4 +1,4 @@
-The rains of summer join together.    
-these brilliant-hued hibiscus    
-from looking at the moon.    
+Seas are wild tonight    
+mingling with bright small shells    
+Goes plop! Watersplash!    
 
