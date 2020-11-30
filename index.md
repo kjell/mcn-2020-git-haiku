@@ -1,4 +1,4 @@
-The summer grasses.    
-I am off to bed - but ah!    
-the autumn dusk is here.    
+The first day of the year:    
+in your brief sweet waters    
+A lovely sunset    
 
