@@ -1,4 +1,4 @@
-The first day of the year:    
-A frog jumps in -    
-cherry-blossoms . . .    
+Mountain-rose petals    
+The fragrant blossoms remain.    
+Seasoned with petals    
 
