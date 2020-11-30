@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-All that remains    
-Tall grass their monument    
+Mountain-rose petals    
+Here along this way but I,    
+from looking at the moon.    
 
