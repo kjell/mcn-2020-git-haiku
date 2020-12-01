@@ -1,4 +1,4 @@
-Silent the old town    
-that black crow I hate so much    
-Splash!    
+When you say something,    
+thoughts come - and there is loneliness;    
+Companion butterfly!    
 
