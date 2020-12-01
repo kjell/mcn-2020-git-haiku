@@ -1,4 +1,4 @@
-The summer grasses.    
-in dusky night    
-This autumn evening.    
+In the cicada's cry    
+let us to the road again    
+Like our tendrilled life    
 
