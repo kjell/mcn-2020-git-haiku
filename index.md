@@ -1,4 +1,4 @@
-Temple bells die out.    
-from cold streamlets for the sea    
-From the kiri tree.    
+When you say something,    
+in dusky night    
+A lovely sunset    
 
