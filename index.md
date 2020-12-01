@@ -1,4 +1,4 @@
-Oh, tranquility!    
-stretching over Sado Island    
-from looking at the moon.    
+None is travelling    
+starving for fat fish or mice    
+Mogami River.    
 
