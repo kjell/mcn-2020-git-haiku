@@ -1,4 +1,4 @@
-Swallow in the dusk    
-even the crickets' singing    
+The summer grasses.    
+above white    
 Mogami River.    
 
