@@ -1,4 +1,4 @@
-Now the swinging bridge    
-loneliness? Just one leaf    
-from looking at the moon.    
+Dewdrop, let me cleanse    
+watching us pass, met death    
+A cicada’s voice.    
 
