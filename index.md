@@ -1,4 +1,4 @@
-Carven gods long gone    
-therefore our thanks dark clouds    
-Contemptuous of frost    
+Old dark sleepy pool    
+The birds cry, and the fishes’ eyes are     
+It’s the Doll’s Festival.    
 
