@@ -1,4 +1,4 @@
-Glorious the moon    
-Heron's cry    
-Waterfall music    
+Old dark sleepy pool    
+above white    
+And evening bell    
 
