@@ -1,4 +1,4 @@
-None is travelling    
-starving for fat fish or mice    
-Mogami River.    
+First white snow of fall    
+Here along this way but I,    
+and gazes at the moon.    
 
