@@ -1,4 +1,4 @@
-The first day of the year:    
-is quieted with creepers    
-Moon-lighted mountains!    
+Temple bells die out.    
+above white    
+A perfect evening!    
 
