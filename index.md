@@ -1,4 +1,4 @@
-Glorious the moon    
-How swift it is    
-Over the orchid    
+Seek on high bare trails    
+I am off to bed - but ah!    
+A little woven cape    
 
