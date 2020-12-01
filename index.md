@@ -1,4 +1,4 @@
-The sea darkening    
-A frog jumps in -    
-A perfect evening!    
+Old dark sleepy pool    
+oh voices of the wild ducks    
+are darkened . . .    
 
