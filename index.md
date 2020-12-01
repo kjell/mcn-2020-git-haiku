@@ -1,4 +1,4 @@
-Temple bells die out.    
-above white    
-A perfect evening!    
+A owner of the old thatched hut    
+stretching over Sado Island    
+and gazes at the moon.    
 
