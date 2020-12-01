@@ -1,4 +1,4 @@
-Oh, tranquility!    
-There's no sign that can foretell    
-How soon it must die.    
+Too curious flower    
+in dusky night    
+A solitary bird    
 
