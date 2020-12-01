@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
+The summer grasses.    
 in dusky night    
-Mogami River.    
+This autumn evening.    
 
