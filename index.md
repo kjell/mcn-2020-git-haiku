@@ -1,4 +1,4 @@
-No oil to read by    
-There's no sign that can foretell    
-the autumn dusk is here.    
+Oh, tranquility!    
+soup, the salad, fish and all    
+A lovely sunset    
 
