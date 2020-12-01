@@ -1,4 +1,4 @@
-See: surviving suns    
-stretching over Sado Island    
-A solitary bird    
+Too curious flower    
+and bring to men a chance to rest    
+Lilies on the rocks    
 
