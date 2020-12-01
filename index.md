@@ -1,4 +1,4 @@
-An old pond    
-The fragrant blossoms remain.    
-The Autumn wind.    
+Seas are wild tonight    
+to see the moon, whose solemn pace    
+the autumn dusk is here.    
 
