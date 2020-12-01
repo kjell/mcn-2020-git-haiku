@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-tolling twilight bell; Temple    
-Like our tendrilled life    
+Camellia-petal    
+starving for fat fish or mice    
+Of warriors’ dreams.    
 
