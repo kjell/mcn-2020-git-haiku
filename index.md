@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-he starts to grind the rice,    
-A perfect evening!    
+Ballet in the air    
+Twilight whippoorwill, whistle on, sweet deepener    
+These dark hands of life    
 
