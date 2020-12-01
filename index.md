@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-it needs but shiny wings and look    
-from the kiri tree.    
+Silent the old town    
+thoughts come - and there is loneliness;    
+Bearded, with bent canes    
 
