@@ -1,4 +1,4 @@
-Ballet in the air    
-Twilight whippoorwill, whistle on, sweet deepener    
-These dark hands of life    
+White cloud of mist    
+captains swore grand conquest    
+Goes plop! Watersplash!    
 
