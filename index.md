@@ -1,4 +1,4 @@
-Oh, tranquility!    
-soup, the salad, fish and all    
-A lovely sunset    
+Wake! The sky is light!    
+dead leaves alone foregather    
+Like our tendrilled life    
 
