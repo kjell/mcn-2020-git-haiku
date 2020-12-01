@@ -1,4 +1,4 @@
-Spring is passing.    
-sky-reflecting violets    
-From the kiri tree.    
+Dry cheerful cricket    
+let us to the road again    
+Stabs the darkness    
 
