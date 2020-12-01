@@ -1,4 +1,4 @@
-Silent the old town    
-thoughts come - and there is loneliness;    
-Bearded, with bent canes    
+Spring is passing.    
+sky-reflecting violets    
+From the kiri tree.    
 
