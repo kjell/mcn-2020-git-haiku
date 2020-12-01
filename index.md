@@ -1,4 +1,4 @@
-Must springtime fade?    
-poor monkey, you too could use    
-A cicada’s voice.    
+Now that eyes of hawks    
+There's no sign that can foretell    
+With tears.    
 
