@@ -1,4 +1,4 @@
-White cloud of mist    
-watching us pass, met death    
-Stabs the darkness    
+Carven gods long gone    
+these heavy snow-flakes settling    
+cherry-blossoms . . .    
 
