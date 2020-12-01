@@ -1,4 +1,4 @@
-White cloud of mist    
-chirping, keeps the autumn gay    
-Silent clouds of stars    
+Oh, tranquility!    
+The birds cry, and the fishes’ eyes are     
+Contemptuous of frost    
 
