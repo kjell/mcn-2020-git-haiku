@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-quick unexpected frog    
-the autumn dusk is here.    
+The sea darkening    
+A frog jumps in -    
+A perfect evening!    
 
