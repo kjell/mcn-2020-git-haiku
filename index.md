@@ -1,4 +1,4 @@
-Camellia-petal    
-Is also changed to another    
-Seasoned with petals    
+The river gathering may rains    
+above white    
+Of warriors’ dreams.    
 
