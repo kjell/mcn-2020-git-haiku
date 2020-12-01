@@ -1,4 +1,4 @@
-Must springtime fade?    
-poor monkey, you too could use    
-It’s the Doll’s Festival.    
+Dawn-shining mountains    
+stretching over Sado Island    
+My moonlit pillow    
 
