@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-dead leaves alone foregather    
-Like our tendrilled life    
+Mountain-rose petals    
+Penetrating the very rock,    
+A perfect evening!    
 
