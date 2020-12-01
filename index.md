@@ -1,4 +1,4 @@
-In the cicada's cry    
-he starts to grind the rice,    
-Of dark loneliness    
+Carven gods long gone    
+therefore our thanks dark clouds    
+Contemptuous of frost    
 
