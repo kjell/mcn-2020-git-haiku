@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-A frog jumps in -    
-These dark hands of life    
+Too curious flower    
+these brilliant-hued hibiscus    
+Stabs the darkness    
 
