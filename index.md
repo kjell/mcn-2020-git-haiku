@@ -1,4 +1,4 @@
-Cold first winter rain    
-captains swore grand conquest    
-These dark hands of life    
+Ballet in the air    
+therefore our thanks dark clouds    
+Of warriors’ dreams.    
 
