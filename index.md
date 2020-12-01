@@ -1,4 +1,4 @@
-An old pond    
-here at your flowering grave    
-Mogami River.    
+No oil to read by    
+above white    
+Stabs the darkness    
 
