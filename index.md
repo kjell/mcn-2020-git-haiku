@@ -1,4 +1,4 @@
-The river gathering may rains    
-therefore our thanks dark clouds    
-are darkened    
+Clouds come from time to time -    
+April's air stirs in willow-leaves    
+Basho lines the moon    
 
