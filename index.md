@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-let us arrange these flowers    
-Cherry-blossoms    
+Now in sad autumn    
+he starts to grind the rice,    
+Goes plop! Watersplash!    
 
