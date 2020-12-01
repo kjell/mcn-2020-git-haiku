@@ -1,4 +1,4 @@
-First white snow of fall    
-Here along this way but I,    
-and gazes at the moon.    
+An old pond    
+I am off to bed - but ah!    
+Silent clouds of stars    
 
