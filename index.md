@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-April's air stirs in willow-leaves    
-Basho lines the moon    
+This snowy morning    
+falling, falling, falling now    
+How soon it must die.    
 
