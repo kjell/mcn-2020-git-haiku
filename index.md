@@ -1,4 +1,4 @@
-The first day of the year:    
-twin butterflies until, twice white    
-A water-jewel    
+Bright red pepper-pod    
+Is also changed to another    
+are darkened . . .    
 
