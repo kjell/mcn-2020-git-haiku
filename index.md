@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-stretching over Sado Island    
-My moonlit pillow    
+Cold first winter rain    
+A frog jumps in -    
+and gazes at the moon.    
 
