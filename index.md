@@ -1,4 +1,4 @@
-The river gathering may rains    
-above white    
-Of warriors’ dreams.    
+When you say something,    
+Penetrating the very rock,    
+A lovely sunset    
 
