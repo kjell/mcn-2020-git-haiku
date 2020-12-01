@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-oh voices of the wild ducks    
-are darkened . . .    
+This snowy morning    
+I am off to bed - but ah!    
+Muffled by hot rocks    
 
