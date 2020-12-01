@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-stretching over Sado Island    
-Lilies on the rocks    
+Too curious flower    
+that black crow I hate so much    
+My moonlit pillow    
 
