@@ -1,4 +1,4 @@
-Camellia-petal    
-starving for fat fish or mice    
-Of warriors’ dreams.    
+Mountain-rose petals    
+poor monkey, you too could use    
+Crying, whirling, white    
 
