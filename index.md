@@ -1,4 +1,4 @@
-This snowy morning    
-I am off to bed - but ah!    
-Muffled by hot rocks    
+Now the swinging bridge    
+loneliness? Just one leaf    
+from looking at the moon.    
 
