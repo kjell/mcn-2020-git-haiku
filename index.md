@@ -1,4 +1,4 @@
-Seek on high bare trails    
-I am off to bed - but ah!    
-A little woven cape    
+Dry cheerful cricket    
+soup, the salad, fish and all    
+Silent clouds of stars    
 
