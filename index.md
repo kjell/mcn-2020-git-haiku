@@ -1,4 +1,4 @@
-Temple bells die out.    
-that black crow I hate so much    
-Mogami River.    
+In the cicada's cry    
+he starts to grind the rice,    
+Of dark loneliness    
 
