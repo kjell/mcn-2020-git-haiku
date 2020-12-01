@@ -1,4 +1,4 @@
-Too curious flower    
-and bring to men a chance to rest    
-Lilies on the rocks    
+An old pond    
+The fragrant blossoms remain.    
+The Autumn wind.    
 
