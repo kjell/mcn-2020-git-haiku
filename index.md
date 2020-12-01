@@ -1,4 +1,4 @@
-White cloud of mist    
-stretching over Sado Island    
-They meet, they mate    
+The first day of the year:    
+to see the moon, whose solemn pace    
+A solitary bird    
 
