@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-watching us pass, met death    
-A cicada’s voice.    
+White cloud of mist    
+stretching over Sado Island    
+They meet, they mate    
 
