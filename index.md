@@ -1,4 +1,4 @@
-Too curious flower    
-in dusky night    
-A solitary bird    
+Glorious the moon    
+Heron's cry    
+Waterfall music    
 
