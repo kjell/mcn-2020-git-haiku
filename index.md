@@ -1,4 +1,4 @@
-When you say something,    
-thoughts come - and there is loneliness;    
-Companion butterfly!    
+White cloud of mist    
+chirping, keeps the autumn gay    
+Silent clouds of stars    
 
