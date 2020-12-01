@@ -1,4 +1,4 @@
-An old pond    
-I am off to bed - but ah!    
-Silent clouds of stars    
+Will we meet again    
+spare my little buzzing friends    
+Our hungry donkey    
 
