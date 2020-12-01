@@ -1,4 +1,4 @@
-In the cicada's cry    
-the scent of flowers floating    
-Ueno? Asakura?    
+The first day of the year:    
+twin butterflies until, twice white    
+A water-jewel    
 
