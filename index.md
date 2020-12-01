@@ -1,4 +1,4 @@
-White cloud of mist    
-A frog jumps in -    
-A lovely sunset    
+Clouds come from time to time -    
+let us arrange these flowers    
+Cherry-blossoms    
 
