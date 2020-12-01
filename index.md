@@ -1,4 +1,4 @@
-In the cicada's cry    
-let us to the road again    
-Like our tendrilled life    
+Silent the old town    
+that black crow I hate so much    
+Splash!    
 
