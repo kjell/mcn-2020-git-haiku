@@ -1,4 +1,4 @@
-In the sea-surf edge    
-stretching over Sado Island    
-How soon it must die.    
+Temple bells die out.    
+that black crow I hate so much    
+Mogami River.    
 
