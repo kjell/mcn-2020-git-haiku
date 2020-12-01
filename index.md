@@ -1,4 +1,4 @@
-First white snow of fall    
-he starts to grind the rice,    
-How soon it must die.    
+Oh, tranquility!    
+stretching over Sado Island    
+from looking at the moon.    
 
