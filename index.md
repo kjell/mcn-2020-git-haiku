@@ -1,4 +1,4 @@
-Ballet in the air    
-even the crickets' singing    
-A cicada’s voice.    
+Cloud of cherry-bloom    
+Is also changed to another    
+My moonlit pillow    
 
