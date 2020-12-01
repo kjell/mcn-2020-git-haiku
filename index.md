@@ -1,4 +1,4 @@
-Now in sad autumn    
-he starts to grind the rice,    
-Goes plop! Watersplash!    
+In the sea-surf edge    
+stretching over Sado Island    
+How soon it must die.    
 
