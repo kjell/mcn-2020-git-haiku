@@ -1,4 +1,4 @@
-Won't you come and see    
-Here along this way but I,    
-Goes plop! Watersplash!    
+A owner of the old thatched hut    
+tolling twilight bell; Temple    
+Like our tendrilled life    
 
