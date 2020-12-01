@@ -1,4 +1,4 @@
-When you say something,    
-in dusky night    
-A lovely sunset    
+Must springtime fade?    
+poor monkey, you too could use    
+It’s the Doll’s Festival.    
 
