@@ -1,4 +1,4 @@
-Too curious flower    
-that black crow I hate so much    
-My moonlit pillow    
+Why so scrawny, cat?    
+in dusky night    
+Mogami River.    
 
