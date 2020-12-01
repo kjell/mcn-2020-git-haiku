@@ -1,4 +1,4 @@
-When you say something,    
-Penetrating the very rock,    
-A lovely sunset    
+The rains of summer join together.    
+I am off to bed - but ah!    
+Bush-clover petals    
 
