@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-A frog jumps in -    
-Tall grass their monument    
+An old pond    
+starving for fat fish or mice    
+A perfect evening!    
 
