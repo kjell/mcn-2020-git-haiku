@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-Is also changed to another    
-My moonlit pillow    
+Oh, tranquility!    
+There's no sign that can foretell    
+How soon it must die.    
 
