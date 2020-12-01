@@ -1,4 +1,4 @@
-Oh, tranquility!    
-The birds cry, and the fishes’ eyes are     
-Contemptuous of frost    
+Now that eyes of hawks    
+he starts to grind the rice,    
+A perfect evening!    
 
