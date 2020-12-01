@@ -1,4 +1,4 @@
-This is the new line    
-thoughts come - and there is loneliness;    
-A perfect evening!    
+Won't you come and see    
+Here along this way but I,    
+Goes plop! Watersplash!    
 
