@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-Is also changed to another    
-are darkened . . .    
+The rains of summer join together.    
+quick unexpected frog    
+and gazes at the moon.    
 
