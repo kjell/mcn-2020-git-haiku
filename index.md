@@ -1,4 +1,4 @@
-Cold first winter rain    
-A frog jumps in -    
-and gazes at the moon.    
+An old pond    
+here at your flowering grave    
+Mogami River.    
 
