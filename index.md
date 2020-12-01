@@ -1,4 +1,4 @@
-An old pond    
-starving for fat fish or mice    
-A perfect evening!    
+First white snow of fall    
+he starts to grind the rice,    
+How soon it must die.    
 
