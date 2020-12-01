@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-All that remains    
-The autumn dusk is here.    
+White cloud of mist    
+watching us pass, met death    
+Stabs the darkness    
 
