@@ -1,4 +1,4 @@
-The rains of summer join together.    
-I am off to bed - but ah!    
-Bush-clover petals    
+Wake! The sky is light!    
+it needs but shiny wings and look    
+from the kiri tree.    
 
