@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-spare my little buzzing friends    
-Mogami River.    
+Camellia-petal    
+Is also changed to another    
+Seasoned with petals    
 
