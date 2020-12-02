@@ -1,4 +1,4 @@
-None is travelling    
-A frog jumps in -    
-A solitary bird    
+Why so scrawny, cat?    
+that black crow I hate so much    
+and gazes at the moon.    
 
