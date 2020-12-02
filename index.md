@@ -1,4 +1,4 @@
-None is travelling    
-in dusky night    
-A perfect evening!    
+Oh, tranquility!    
+who spends his little breakfast    
+Mogami River.    
 
