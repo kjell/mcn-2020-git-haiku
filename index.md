@@ -1,4 +1,4 @@
-Lightning -    
-Here along this way but I,    
-from the kiri tree.    
+Ah me! I am one    
+thoughts come - and there is loneliness;    
+Contemptuous of frost    
 
