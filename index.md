@@ -1,4 +1,4 @@
-The river gathering may rains    
-is quieted with creepers    
-and gazes at the moon.    
+Won't you come and see    
+it needs but shiny wings and look    
+Of faded daffodils    
 
