@@ -1,4 +1,4 @@
-See: surviving suns    
-Heron's cry    
-Mogami River.    
+Oh, tranquility!    
+thoughts come - and there is loneliness;    
+Muffled by hot rocks    
 
