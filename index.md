@@ -1,4 +1,4 @@
-Ballet in the air    
-is quieted with creepers    
-Two white butterflies?    
+Will we meet again    
+How swift it is    
+Mogami River.    
 
