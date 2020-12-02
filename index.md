@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-Twilight whippoorwill, whistle on, sweet deepener    
-Lilies on the rocks    
+Seas are wild tonight    
+let us to the road again    
+With tears.    
 
