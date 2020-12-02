@@ -1,4 +1,4 @@
-None is travelling    
-A frog jumps in -    
-are darkened . . .    
+Seas are wild tonight    
+above white    
+Waterfall music    
 
