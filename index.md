@@ -1,4 +1,4 @@
-The summer grasses.    
-watching us pass, met death    
-It’s the Doll’s Festival.    
+In the sea-surf edge    
+here at your flowering grave    
+the autumn dusk is here.    
 
