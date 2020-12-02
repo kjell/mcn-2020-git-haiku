@@ -1,4 +1,4 @@
-Here, where a thousand    
+Silent the old town    
 A frog jumps in -    
-Stabs the darkness    
+The Autumn wind.    
 
