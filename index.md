@@ -1,4 +1,4 @@
-In the cicada's cry    
-The birds cry, and the fishes’ eyes are     
-from the kiri tree.    
+Seas are wild tonight    
+Is also changed to another    
+Of faded daffodils    
 
