@@ -1,4 +1,4 @@
-None is travelling    
-falling, falling, falling now    
-Muffled by hot rocks    
+Chirping of the quails    
+oh voices of the wild ducks    
+And evening bell    
 
