@@ -1,4 +1,4 @@
-Nine times arising    
-Here along this way but I,    
-and gazes at the moon.    
+White cloud of mist    
+starving for fat fish or mice    
+are darkened . . .    
 
