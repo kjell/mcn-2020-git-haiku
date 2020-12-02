@@ -1,4 +1,4 @@
-Poverty's child -    
-scatters in the night; Now see    
-Mogami River.    
+Carven gods long gone    
+quick unexpected frog    
+From the kiri tree.    
 
