@@ -1,4 +1,4 @@
-The summer grasses.    
-dead leaves alone foregather    
-Moon-lighted mountains!    
+Under cherry-trees    
+Penetrating the very rock,    
+Goes plop! Watersplash!    
 
