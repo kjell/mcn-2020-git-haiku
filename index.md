@@ -1,4 +1,4 @@
-Nine times arising    
-he starts to grind the rice,    
-cherry-blossoms . . .    
+The summer grasses.    
+dead leaves alone foregather    
+Moon-lighted mountains!    
 
