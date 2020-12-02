@@ -1,4 +1,4 @@
 If there were fragrance    
-in your brief sweet waters    
-from looking at the moon.    
+to see the moon, whose solemn pace    
+Of dark loneliness    
 
