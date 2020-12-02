@@ -1,4 +1,4 @@
-Mountain-rose petals    
-poor monkey, you too could use    
-Crying, whirling, white    
+Here, where a thousand    
+A frog jumps in -    
+Stabs the darkness    
 
