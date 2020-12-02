@@ -1,4 +1,4 @@
-In the cicada's cry    
-above white    
-are darkened    
+Why so scrawny, cat?    
+chirping, keeps the autumn gay    
+Marks only midnight yet    
 
