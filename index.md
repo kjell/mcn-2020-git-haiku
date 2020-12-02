@@ -1,4 +1,4 @@
-Glorious the moon    
-in dusky night    
-These dark hands of life    
+Ah me! I am one    
+above white    
+Moon-lighted mountains!    
 
