@@ -1,4 +1,4 @@
-Oh, tranquility!    
-starving for fat fish or mice    
-and gazes at the moon.    
+Spring is passing.    
+April's air stirs in willow-leaves    
+Cherry-blossoms    
 
