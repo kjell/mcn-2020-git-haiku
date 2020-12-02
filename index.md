@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-A frog jumps in -    
-A solitary bird    
+Why so scrawny, cat?    
+spare my little buzzing friends    
+Companion butterfly!    
 
