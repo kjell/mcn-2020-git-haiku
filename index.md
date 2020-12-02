@@ -1,4 +1,4 @@
-Seas are wild tonight    
-let us to the road again    
-With tears.    
+The rains of summer join together.    
+The lips feel cold.    
+A water-jewel    
 
