@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-loneliness? Just one leaf    
-A butterfly floats and balances    
+Clouds come from time to time -    
+soup, the salad, fish and all    
+Cherry-blossoms    
 
