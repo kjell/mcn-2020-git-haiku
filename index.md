@@ -1,4 +1,4 @@
-Nine times arising    
-mingling with bright small shells    
-Among the flowers    
+First white snow of fall    
+All that remains    
+Seasoned with petals    
 
