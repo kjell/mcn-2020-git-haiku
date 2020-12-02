@@ -1,4 +1,4 @@
-Seas are wild tonight    
-these brilliant-hued hibiscus    
-A little woven cape    
+Spring is passing.    
+Heron's cry    
+Mountain-top jewels    
 
