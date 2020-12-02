@@ -1,4 +1,4 @@
-First white snow of fall    
-Here along this way but I,    
-Cherry-blossoms    
+An old pond    
+perfumes her wings by floating    
+Two white butterflies?    
 
