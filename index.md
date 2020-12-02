@@ -1,4 +1,4 @@
-White cloud of mist    
-starving for fat fish or mice    
-are darkened . . .    
+Won't you come and see    
+Penetrating the very rock,    
+A water-jewel    
 
