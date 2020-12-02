@@ -1,4 +1,4 @@
-Temple bells die out.    
-stretching over Sado Island    
-Cherry-blossoms    
+None is travelling    
+A frog jumps in -    
+are darkened . . .    
 
