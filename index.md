@@ -1,4 +1,4 @@
-For a lovely bowl    
-How swift it is    
-Contemptuous of frost    
+If there were fragrance    
+A frog jumps in -    
+from the kiri tree.    
 
