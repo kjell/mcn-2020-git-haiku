@@ -1,4 +1,4 @@
-Chirping of the quails    
-oh voices of the wild ducks    
-And evening bell    
+Cloud of cherry-bloom    
+loneliness? Just one leaf    
+A butterfly floats and balances    
 
