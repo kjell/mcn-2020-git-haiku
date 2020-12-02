@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-that black crow I hate so much    
-and gazes at the moon.    
+Dry cheerful cricket    
+A frog jumps in -    
+A cicada’s voice.    
 
