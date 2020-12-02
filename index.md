@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-chirping, keeps the autumn gay    
-Marks only midnight yet    
+Spring is passing.    
+thoughts come - and there is loneliness;    
+But he's beautiful!    
 
