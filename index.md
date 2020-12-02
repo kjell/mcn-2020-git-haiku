@@ -1,4 +1,4 @@
-Ah me! I am one    
-Penetrating the very rock,    
-It’s the Doll’s Festival.    
+Poverty's child -    
+scatters in the night; Now see    
+Mogami River.    
 
