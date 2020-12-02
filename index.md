@@ -1,4 +1,4 @@
 The river gathering may rains    
-thoughts come - and there is loneliness;    
-Tall grass their monument    
+he starts to grind the rice,    
+From the kiri tree.    
 
