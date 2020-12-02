@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-falling, falling, falling now    
-and gazes at the moon.    
+If there were fragrance    
+in your brief sweet waters    
+from looking at the moon.    
 
