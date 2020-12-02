@@ -1,4 +1,4 @@
-Oh, tranquility!    
-thoughts come - and there is loneliness;    
-Muffled by hot rocks    
+In the cicada's cry    
+let us to the road again    
+Stabs the darkness    
 
