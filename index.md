@@ -1,4 +1,4 @@
-The rains of summer join together.    
-it needs but shiny wings and look    
-They meet, they mate    
+A owner of the old thatched hut    
+dead leaves alone foregather    
+Of faded daffodils    
 
