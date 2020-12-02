@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-dead leaves alone foregather    
-Contemptuous of frost    
+The rains of summer join together.    
+falling, falling, falling now    
+from looking at the moon.    
 
