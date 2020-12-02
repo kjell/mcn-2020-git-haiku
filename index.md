@@ -1,4 +1,4 @@
-Black cloudbank broken    
-A frog jumps in -    
+Dawn-shining mountains    
+Penetrating the very rock,    
 Stabs the darkness    
 
