@@ -1,4 +1,4 @@
-Won't you come and see    
-it needs but shiny wings and look    
-Of faded daffodils    
+See: surviving suns    
+Heron's cry    
+Mogami River.    
 
