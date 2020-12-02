@@ -1,4 +1,4 @@
-In the sea-surf edge    
-here at your flowering grave    
-the autumn dusk is here.    
+White cloud of mist    
+is quieted with creepers    
+How soon it must die.    
 
