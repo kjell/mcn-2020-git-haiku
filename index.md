@@ -1,4 +1,4 @@
-White cloud of mist    
-is quieted with creepers    
-How soon it must die.    
+When you say something,    
+Is also changed to another    
+Marks only midnight yet    
 
