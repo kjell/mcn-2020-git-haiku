@@ -1,4 +1,4 @@
-Ah me! I am one    
-above white    
-Moon-lighted mountains!    
+First white snow of fall    
+he starts to grind the rice,    
+Companion butterfly!    
 
