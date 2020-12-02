@@ -1,4 +1,4 @@
-The summer grasses.    
-it needs but shiny wings and look    
-This autumn evening.    
+This is the new line    
+therefore our thanks dark clouds    
+Splash!    
 
