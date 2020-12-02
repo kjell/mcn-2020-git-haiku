@@ -1,4 +1,4 @@
-Poverty's child -    
-who spends his little breakfast    
-Waterfall music    
+None is travelling    
+A frog jumps in -    
+A solitary bird    
 
