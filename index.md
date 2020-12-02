@@ -1,4 +1,4 @@
-First white snow of fall    
-he starts to grind the rice,    
-Companion butterfly!    
+The rains of summer join together.    
+it needs but shiny wings and look    
+They meet, they mate    
 
