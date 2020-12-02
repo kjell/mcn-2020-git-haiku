@@ -1,4 +1,4 @@
-Mountain-rose petals    
-The lips feel cold.    
-Or backyard love?    
+Seas are wild tonight    
+these brilliant-hued hibiscus    
+A little woven cape    
 
