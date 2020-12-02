@@ -1,4 +1,4 @@
-An old pond    
-loneliness? Just one leaf    
-Of faded daffodils    
+Nine times arising    
+Here along this way but I,    
+and gazes at the moon.    
 
