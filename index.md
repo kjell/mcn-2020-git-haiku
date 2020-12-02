@@ -1,4 +1,4 @@
-First white snow of fall    
-There's no sign that can foretell    
-A lovely sunset    
+In the cicada's cry    
+The birds cry, and the fishes’ eyes are     
+from the kiri tree.    
 
