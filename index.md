@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-A frog jumps in -    
-A cicada’s voice.    
+Now that eyes of hawks    
+All that remains    
+Bush-clover petals    
 
