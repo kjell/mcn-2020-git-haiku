@@ -1,4 +1,4 @@
-Now the swinging bridge    
-Here along this way but I,    
-Or backyard love?    
+Poverty's child -    
+Line that won't be deleted    
+Waterfall music    
 
