@@ -1,4 +1,4 @@
 A owner of the old thatched hut    
-even the crickets' singing    
-Of dark loneliness    
+falling, falling, falling now    
+and gazes at the moon.    
 
