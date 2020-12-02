@@ -1,4 +1,4 @@
-Won't you come and see    
-Penetrating the very rock,    
-A water-jewel    
+Now the swinging bridge    
+Here along this way but I,    
+Or backyard love?    
 
