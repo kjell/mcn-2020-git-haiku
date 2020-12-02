@@ -1,4 +1,4 @@
-Must springtime fade?    
-How swift it is    
-The Autumn wind.    
+Mountain-rose petals    
+The lips feel cold.    
+Or backyard love?    
 
