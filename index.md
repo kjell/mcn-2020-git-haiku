@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-poor monkey, you too could use    
-Seasoned with petals    
+Won't you come and see    
+visit the ancestral grave    
+It’s the Doll’s Festival.    
 
