@@ -1,4 +1,4 @@
-If there were fragrance    
-A frog jumps in -    
-from the kiri tree.    
+No oil to read by    
+mingling with bright small shells    
+Two white butterflies?    
 
