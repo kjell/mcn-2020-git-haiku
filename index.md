@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-All that remains    
-Bush-clover petals    
+Bright red pepper-pod    
+Twilight whippoorwill, whistle on, sweet deepener    
+Lilies on the rocks    
 
