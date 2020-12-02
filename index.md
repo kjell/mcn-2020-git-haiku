@@ -1,4 +1,4 @@
-If there were fragrance    
-to see the moon, whose solemn pace    
-Of dark loneliness    
+First white snow of fall    
+Here along this way but I,    
+Cherry-blossoms    
 
