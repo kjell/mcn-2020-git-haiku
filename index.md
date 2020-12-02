@@ -1,4 +1,4 @@
-Carven gods long gone    
-quick unexpected frog    
-From the kiri tree.    
+Now that eyes of hawks    
+let us to the road again    
+A perfect evening!    
 
