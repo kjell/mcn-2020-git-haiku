@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-The birds cry, and the fishes’ eyes are     
-My moonlit pillow    
+None is travelling    
+falling, falling, falling now    
+Muffled by hot rocks    
 
