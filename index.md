@@ -1,4 +1,4 @@
-Spring is passing.    
-Heron's cry    
-Mountain-top jewels    
+Camellia-petal    
+thoughts come - and there is loneliness;    
+A butterfly floats and balances    
 
