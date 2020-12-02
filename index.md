@@ -1,4 +1,4 @@
-Spring is passing.    
-April's air stirs in willow-leaves    
-Cherry-blossoms    
+Lightning -    
+The fragrant blossoms remain.    
+Our hungry donkey    
 
