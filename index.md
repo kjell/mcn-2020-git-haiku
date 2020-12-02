@@ -1,4 +1,4 @@
-In the cicada's cry    
-let us to the road again    
-Stabs the darkness    
+None is travelling    
+loneliness? Just one leaf    
+How soon it must die.    
 
