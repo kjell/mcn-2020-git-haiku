@@ -1,4 +1,4 @@
-Seas are wild tonight    
-above white    
-Waterfall music    
+Why so scrawny, cat?    
+dead leaves alone foregather    
+Contemptuous of frost    
 
