@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-dead leaves alone foregather    
-Of faded daffodils    
+Ah me! I am one    
+in dusky night    
+A little woven cape    
 
