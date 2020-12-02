@@ -1,4 +1,4 @@
-Oh, tranquility!    
-who spends his little breakfast    
-Mogami River.    
+Temple bells die out.    
+stretching over Sado Island    
+Cherry-blossoms    
 
