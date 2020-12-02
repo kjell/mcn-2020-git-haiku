@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-to see the moon, whose solemn pace    
-Tall grass their monument    
+The summer grasses.    
+it needs but shiny wings and look    
+This autumn evening.    
 
