@@ -1,4 +1,4 @@
-No oil to read by    
-mingling with bright small shells    
-Two white butterflies?    
+The summer grasses.    
+watching us pass, met death    
+It’s the Doll’s Festival.    
 
