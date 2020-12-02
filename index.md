@@ -1,4 +1,4 @@
-The rains of summer join together.    
-falling, falling, falling now    
-from looking at the moon.    
+The river gathering may rains    
+thoughts come - and there is loneliness;    
+Tall grass their monument    
 
