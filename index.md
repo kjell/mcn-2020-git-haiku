@@ -1,4 +1,4 @@
-Under cherry-trees    
-Penetrating the very rock,    
-Goes plop! Watersplash!    
+White cloud of mist    
+There's no sign that can foretell    
+These dark hands of life    
 
