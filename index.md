@@ -1,4 +1,4 @@
-An old pond    
-perfumes her wings by floating    
-Two white butterflies?    
+None is travelling    
+in dusky night    
+A perfect evening!    
 
