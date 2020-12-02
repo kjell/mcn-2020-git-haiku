@@ -1,4 +1,4 @@
-White cloud of mist    
-There's no sign that can foretell    
-These dark hands of life    
+Ballet in the air    
+is quieted with creepers    
+Two white butterflies?    
 
