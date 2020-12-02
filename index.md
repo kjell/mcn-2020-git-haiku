@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-Penetrating the very rock,    
-Stabs the darkness    
+An old pond    
+loneliness? Just one leaf    
+Of faded daffodils    
 
