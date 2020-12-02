@@ -1,4 +1,4 @@
-Won't you come and see    
-visit the ancestral grave    
-It’s the Doll’s Festival.    
+Oh, tranquility!    
+starving for fat fish or mice    
+and gazes at the moon.    
 
