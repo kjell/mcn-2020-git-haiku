@@ -1,4 +1,4 @@
-In the cicada's cry    
-spare my little buzzing friends    
-Companion butterfly!    
+The sea darkening    
+The lips feel cold.    
+from looking at the moon.    
 
