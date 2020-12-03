@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-Heron's cry    
-Murmuring Mogami    
+Dewdrop, let me cleanse    
+here at your flowering grave    
+A butterfly floats and balances    
 
