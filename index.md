@@ -1,4 +1,4 @@
-For a lovely bowl    
-thoughts come - and there is loneliness;    
-from looking at the moon.    
+Under cherry-trees    
+Line that won't be deleted    
+Companion butterfly!    
 
