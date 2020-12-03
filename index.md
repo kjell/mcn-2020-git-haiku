@@ -1,4 +1,4 @@
-If there were fragrance    
-All that remains    
-A perfect evening!    
+Will we meet again    
+falling, falling, falling now    
+My moonlit pillow    
 
