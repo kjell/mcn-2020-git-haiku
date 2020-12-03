@@ -1,4 +1,4 @@
-Ballet in the air    
-The birds cry, and the fishes’ eyes are     
-A lovely sunset    
+The river gathering may rains    
+There's no sign that can foretell    
+Mountain-top jewels    
 
