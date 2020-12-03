@@ -1,4 +1,4 @@
-Now the swinging bridge    
-Line that won't be deleted    
-Splash!    
+Wake! The sky is light!    
+the scent of flowers floating    
+This autumn evening.    
 
