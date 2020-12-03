@@ -1,4 +1,4 @@
-Glorious the moon    
-he starts to grind the rice,    
-It’s the Doll’s Festival.    
+Bright red pepper-pod    
+April's air stirs in willow-leaves    
+Cold pale eyes pour tears    
 
