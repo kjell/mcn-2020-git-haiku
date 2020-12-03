@@ -1,4 +1,4 @@
-An old pond    
-dead leaves alone foregather    
-Silent clouds of stars    
+Ah me! I am one    
+A frog jumps in -    
+Come to rest our necks    
 
