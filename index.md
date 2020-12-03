@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-these brilliant-hued hibiscus    
-Marks only midnight yet    
+Such utter silence!    
+captains swore grand conquest    
+The autumn dusk is here.    
 
