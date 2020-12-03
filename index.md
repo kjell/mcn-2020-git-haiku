@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-thoughts come - and there is loneliness;    
-This autumn evening.    
+In the twilight rain    
+The birds cry, and the fishes’ eyes are     
+Lilies on the rocks    
 
