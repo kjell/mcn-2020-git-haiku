@@ -1,4 +1,4 @@
-First white snow of fall    
-let us to the road again    
-Come to rest our necks    
+Lightning -    
+just enough to bend the leaves    
+Muffled by hot rocks    
 
