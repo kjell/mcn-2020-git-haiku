@@ -1,4 +1,4 @@
-None is travelling    
-just enough to bend the leaves    
-from looking at the moon.    
+Old dark sleepy pool    
+above white    
+My moonlit pillow    
 
