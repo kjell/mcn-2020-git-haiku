@@ -1,4 +1,4 @@
-The summer grasses.    
-The lips feel cold.    
-Of warriors’ dreams.    
+Lightning -    
+is quieted with creepers    
+With tears.    
 
