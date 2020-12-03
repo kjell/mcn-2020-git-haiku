@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-April's air stirs in willow-leaves    
-Cold pale eyes pour tears    
+Spring is passing.    
+therefore our thanks dark clouds    
+From the kiri tree.    
 
