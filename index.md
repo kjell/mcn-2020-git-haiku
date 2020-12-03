@@ -1,4 +1,4 @@
-Oh, tranquility!    
-in dusky night    
-from looking at the moon.    
+See: surviving suns    
+April's air stirs in willow-leaves    
+Goes plop! Watersplash!    
 
