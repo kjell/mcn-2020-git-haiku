@@ -1,4 +1,4 @@
-Such utter silence!    
-captains swore grand conquest    
-The autumn dusk is here.    
+Oh, tranquility!    
+poor monkey, you too could use    
+Or backyard love?    
 
