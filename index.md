@@ -1,4 +1,4 @@
-Old dark sleepy pool    
+A owner of the old thatched hut    
 above white    
-My moonlit pillow    
+Goes plop! Watersplash!    
 
