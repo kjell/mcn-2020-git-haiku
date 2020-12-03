@@ -1,4 +1,4 @@
-Lightning -    
-above white    
-Mogami River.    
+Clouds come from time to time -    
+loneliness? Just one leaf    
+Companion butterfly!    
 
