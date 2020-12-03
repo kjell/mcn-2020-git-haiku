@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-scatters in the night; Now see    
-Our hungry donkey    
+Dewdrop, let me cleanse    
+to see the moon, whose solemn pace    
+Seasoned with petals    
 
