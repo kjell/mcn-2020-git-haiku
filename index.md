@@ -1,4 +1,4 @@
-Lightning -    
-falling, falling, falling now    
-They meet, they mate    
+This is the new line    
+All that remains    
+from looking at the moon.    
 
