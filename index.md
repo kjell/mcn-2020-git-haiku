@@ -1,4 +1,4 @@
-Oh, tranquility!    
-scatters in the night; Now see    
-A little woven cape    
+First white snow of fall    
+in your brief sweet waters    
+from looking at the moon.    
 
