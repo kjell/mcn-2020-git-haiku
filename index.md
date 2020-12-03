@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-loneliness? Just one leaf    
-Companion butterfly!    
+If there were fragrance    
+All that remains    
+A perfect evening!    
 
