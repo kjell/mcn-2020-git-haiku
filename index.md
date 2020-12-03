@@ -1,4 +1,4 @@
-Oh, tranquility!    
-perfumes her wings by floating    
-This autumn evening.    
+In the cicada's cry    
+spare my little buzzing friends    
+Companion butterfly!    
 
