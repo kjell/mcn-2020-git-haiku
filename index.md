@@ -1,4 +1,4 @@
-The river gathering may rains    
-There's no sign that can foretell    
-Mountain-top jewels    
+In the cicada's cry    
+he starts to grind the rice,    
+Ueno? Asakura?    
 
