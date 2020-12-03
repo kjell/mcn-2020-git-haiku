@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-the scent of flowers floating    
-This autumn evening.    
+Must springtime fade?    
+above white    
+Marks only midnight yet    
 
