@@ -1,4 +1,4 @@
 Oh, tranquility!    
-poor monkey, you too could use    
-Or backyard love?    
+in dusky night    
+from looking at the moon.    
 
