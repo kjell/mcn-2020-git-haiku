@@ -1,4 +1,4 @@
-If there were fragrance    
-mingling with bright small shells    
-Mountain-top jewels    
+An old pond    
+dead leaves alone foregather    
+Silent clouds of stars    
 
