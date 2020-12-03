@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-Twilight whippoorwill, whistle on, sweet deepener    
-from the kiri tree.    
+Too curious flower    
+fell in silent dawn, spilling    
+Splash!    
 
