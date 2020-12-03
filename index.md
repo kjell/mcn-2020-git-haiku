@@ -1,4 +1,4 @@
-This snowy morning    
-All that remains    
-Muffled by hot rocks    
+Spring is passing.    
+captains swore grand conquest    
+These dark hands of life    
 
