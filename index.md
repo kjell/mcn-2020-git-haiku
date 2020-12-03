@@ -1,4 +1,4 @@
-Too curious flower    
-fell in silent dawn, spilling    
-Splash!    
+A owner of the old thatched hut    
+thoughts come - and there is loneliness;    
+This autumn evening.    
 
