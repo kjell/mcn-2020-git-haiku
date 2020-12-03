@@ -1,4 +1,4 @@
-Camellia-petal    
-therefore our thanks dark clouds    
+The summer grasses.    
+The lips feel cold.    
 Of warriors’ dreams.    
 
