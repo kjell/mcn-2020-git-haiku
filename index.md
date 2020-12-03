@@ -1,4 +1,4 @@
-Won't you come and see    
-Heron's cry    
-It’s the Doll’s Festival.    
+Oh, tranquility!    
+scatters in the night; Now see    
+A little woven cape    
 
