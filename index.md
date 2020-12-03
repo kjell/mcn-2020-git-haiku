@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-above white    
-Goes plop! Watersplash!    
+Won't you come and see    
+How swift it is    
+Lilies on the rocks    
 
