@@ -1,4 +1,4 @@
-Must springtime fade?    
-above white    
-Marks only midnight yet    
+In the cicada's cry    
+these heavy snow-flakes settling    
+the autumn dusk is here.    
 
