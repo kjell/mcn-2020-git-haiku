@@ -1,4 +1,4 @@
-In the cicada's cry    
-to see the moon, whose solemn pace    
-The autumn dusk is here.    
+The rains of summer join together.    
+above white    
+Stabs the darkness    
 
