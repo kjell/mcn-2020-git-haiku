@@ -1,4 +1,4 @@
-The sea darkening    
-The lips feel cold.    
-from looking at the moon.    
+Cloud of cherry-bloom    
+There's no sign that can foretell    
+Bush-clover petals    
 
