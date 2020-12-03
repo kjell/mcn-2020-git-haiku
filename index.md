@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-spare my little buzzing friends    
-and gazes at the moon.    
+Now the swinging bridge    
+Line that won't be deleted    
+Splash!    
 
