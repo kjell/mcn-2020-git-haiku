@@ -1,4 +1,4 @@
-This snowy morning    
+The first day of the year:    
 Line that won't be deleted    
-Muffled by hot rocks    
+Crying, whirling, white    
 
