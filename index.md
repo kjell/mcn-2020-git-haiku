@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-I am off to bed - but ah!    
-A water-jewel    
+Dewdrop, let me cleanse    
+oh voices of the wild ducks    
+Two white butterflies?    
 
