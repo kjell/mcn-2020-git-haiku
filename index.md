@@ -1,4 +1,4 @@
-The summer grasses.    
-The birds cry, and the fishes’ eyes are     
-They meet, they mate    
+Clouds come from time to time -    
+scatters in the night; Now see    
+Our hungry donkey    
 
