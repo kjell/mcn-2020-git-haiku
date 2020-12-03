@@ -1,4 +1,4 @@
 Lightning -    
-just enough to bend the leaves    
-Muffled by hot rocks    
+above white    
+Mogami River.    
 
