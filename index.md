@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-here at your flowering grave    
-A butterfly floats and balances    
+The summer grasses.    
+tolling twilight bell; Temple    
+are darkened . . .    
 
