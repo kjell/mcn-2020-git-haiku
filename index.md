@@ -1,4 +1,4 @@
-The first day of the year:    
-Line that won't be deleted    
-Crying, whirling, white    
+Camellia-petal    
+therefore our thanks dark clouds    
+Of warriors’ dreams.    
 
