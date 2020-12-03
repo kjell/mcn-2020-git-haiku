@@ -1,4 +1,4 @@
-Ah me! I am one    
-A frog jumps in -    
-Come to rest our necks    
+Now in sad autumn    
+just enough to bend the leaves    
+cherry-blossoms . . .    
 
