@@ -1,4 +1,4 @@
-Cold first winter rain    
-thoughts come - and there is loneliness;    
-On the temple porch    
+The summer grasses.    
+All that remains    
+and gazes at the moon.    
 
