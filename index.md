@@ -1,4 +1,4 @@
-Chirping of the quails    
-There's no sign that can foretell    
-Waterfall music    
+Oh, tranquility!    
+perfumes her wings by floating    
+This autumn evening.    
 
