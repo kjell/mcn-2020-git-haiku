@@ -1,4 +1,4 @@
-Temple bells die out.    
-is quieted with creepers    
-Our hungry donkey    
+Clouds come from time to time -    
+There's no sign that can foretell    
+On the temple porch    
 
