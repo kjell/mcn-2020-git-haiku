@@ -1,4 +1,4 @@
-Ah me! I am one    
-that black crow I hate so much    
-Among the flowers    
+Camellia-petal    
+he starts to grind the rice,    
+Since there is no rice    
 
