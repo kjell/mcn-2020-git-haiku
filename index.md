@@ -1,4 +1,4 @@
-The summer grasses.    
-tolling twilight bell; Temple    
-are darkened . . .    
+Won't you come and see    
+Heron's cry    
+It’s the Doll’s Festival.    
 
