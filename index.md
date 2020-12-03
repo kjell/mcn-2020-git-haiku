@@ -1,4 +1,4 @@
-This is the new line    
-All that remains    
-from looking at the moon.    
+In the twilight rain    
+let us arrange these flowers    
+Splash!    
 
