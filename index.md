@@ -1,4 +1,4 @@
-Silent the old town    
-captains swore grand conquest    
-Morning-glory gazing    
+Temple bells die out.    
+How swift it is    
+With tears.    
 
