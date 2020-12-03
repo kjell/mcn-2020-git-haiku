@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-sky-reflecting violets    
-Among the flowers    
+Seas are wild tonight    
+Heron's cry    
+from the kiri tree.    
 
