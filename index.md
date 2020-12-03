@@ -1,4 +1,4 @@
-Now in sad autumn    
-just enough to bend the leaves    
-cherry-blossoms . . .    
+This snowy morning    
+Line that won't be deleted    
+Muffled by hot rocks    
 
