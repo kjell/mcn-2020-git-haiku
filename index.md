@@ -1,4 +1,4 @@
-Black cloudbank broken    
-from cold streamlets for the sea    
-Companion butterfly!    
+Spring is passing.    
+he starts to grind the rice,    
+Lilies on the rocks    
 
