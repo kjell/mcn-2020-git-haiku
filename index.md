@@ -1,4 +1,4 @@
-Spring is passing.    
-he starts to grind the rice,    
-Lilies on the rocks    
+Now that eyes of hawks    
+loneliness? Just one leaf    
+Mountain-top jewels    
 
