@@ -1,4 +1,4 @@
-See: surviving suns    
-April's air stirs in willow-leaves    
-Goes plop! Watersplash!    
+Dawn-shining mountains    
+spare my little buzzing friends    
+and gazes at the moon.    
 
