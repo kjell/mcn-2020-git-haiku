@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-There's no sign that can foretell    
-On the temple porch    
+Seas are wild tonight    
+he starts to grind the rice,    
+Mountain-top jewels    
 
