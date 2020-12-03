@@ -1,4 +1,4 @@
-Black cloudbank broken    
-chirping, keeps the autumn gay    
-Our hungry donkey    
+White cloud of mist    
+sky-reflecting violets    
+Darting dragon-fly!    
 
