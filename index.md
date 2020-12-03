@@ -1,4 +1,4 @@
-This is the new line    
-perfumes her wings by floating    
-from looking at the moon.    
+In the cicada's cry    
+to see the moon, whose solemn pace    
+The autumn dusk is here.    
 
