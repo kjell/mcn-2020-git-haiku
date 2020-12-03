@@ -1,4 +1,4 @@
-Now in sad autumn    
-thoughts come - and there is loneliness;    
-Splash!    
+If there were fragrance    
+mingling with bright small shells    
+Mountain-top jewels    
 
