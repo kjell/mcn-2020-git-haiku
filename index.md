@@ -1,4 +1,4 @@
-Spring is passing.    
-therefore our thanks dark clouds    
-From the kiri tree.    
+For a lovely bowl    
+thoughts come - and there is loneliness;    
+from looking at the moon.    
 
