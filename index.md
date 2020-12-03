@@ -1,4 +1,4 @@
-Spring is passing.    
-captains swore grand conquest    
-These dark hands of life    
+Here, where a thousand    
+is quieted with creepers    
+It’s the Doll’s Festival.    
 
