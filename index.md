@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-There's no sign that can foretell    
-Bush-clover petals    
+Now in sad autumn    
+thoughts come - and there is loneliness;    
+Splash!    
 
