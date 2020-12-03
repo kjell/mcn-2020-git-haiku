@@ -1,4 +1,4 @@
-Seas are wild tonight    
-he starts to grind the rice,    
-Mountain-top jewels    
+Black cloudbank broken    
+from cold streamlets for the sea    
+Companion butterfly!    
 
