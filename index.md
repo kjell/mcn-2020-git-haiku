@@ -1,4 +1,4 @@
-This is the new line    
-twin butterflies until, twice white    
-Splash!    
+Clouds come from time to time -    
+Here along this way but I,    
+are darkened    
 
