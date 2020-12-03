@@ -1,4 +1,4 @@
-Ballet in the air    
-All that remains    
-Of faded daffodils    
+A owner of the old thatched hut    
+I am off to bed - but ah!    
+A water-jewel    
 
