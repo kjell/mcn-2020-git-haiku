@@ -1,4 +1,4 @@
-None is travelling    
-loneliness? Just one leaf    
-A lovely sunset    
+Black cloudbank broken    
+chirping, keeps the autumn gay    
+Our hungry donkey    
 
