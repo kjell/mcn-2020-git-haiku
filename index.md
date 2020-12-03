@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-How swift it is    
-from looking at the moon.    
+In the cicada's cry    
+Line that won't be deleted    
+Marks only midnight yet    
 
