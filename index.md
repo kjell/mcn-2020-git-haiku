@@ -1,4 +1,4 @@
-None is travelling    
-then cry all birds and fishes    
-Come to rest our necks    
+Clouds come from time to time -    
+Twilight whippoorwill, whistle on, sweet deepener    
+from the kiri tree.    
 
