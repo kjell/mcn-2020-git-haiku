@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-loneliness? Just one leaf    
-Mountain-top jewels    
+The sea darkening    
+scatters in the night; Now see    
+Like our tendrilled life    
 
