@@ -1,4 +1,4 @@
-Spring is passing.    
-therefore our thanks dark clouds    
-But he's beautiful!    
+Temple bells die out.    
+is quieted with creepers    
+Our hungry donkey    
 
