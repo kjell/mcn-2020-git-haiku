@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-oh voices of the wild ducks    
-Two white butterflies?    
+Camellia-petal    
+from cold streamlets for the sea    
+A cicada’s voice.    
 
