@@ -1,4 +1,4 @@
-Will we meet again    
-falling, falling, falling now    
-My moonlit pillow    
+Ballet in the air    
+All that remains    
+Of faded daffodils    
 
