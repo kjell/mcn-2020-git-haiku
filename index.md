@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-to see the moon, whose solemn pace    
-Seasoned with petals    
+None is travelling    
+loneliness? Just one leaf    
+A lovely sunset    
 
