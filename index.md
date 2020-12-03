@@ -1,4 +1,4 @@
-Lightning -    
-is quieted with creepers    
-With tears.    
+The first day of the year:    
+above white    
+Waterfall music    
 
