@@ -1,4 +1,4 @@
-The summer grasses.    
-thoughts come - and there is loneliness;    
-On the temple porch    
+Lightning -    
+falling, falling, falling now    
+They meet, they mate    
 
