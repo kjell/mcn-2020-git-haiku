@@ -1,4 +1,4 @@
-Camellia-petal    
-he starts to grind the rice,    
-Since there is no rice    
+Dry cheerful cricket    
+Heron's cry    
+Murmuring Mogami    
 
