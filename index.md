@@ -1,4 +1,4 @@
-In the cicada's cry    
-he starts to grind the rice,    
-Ueno? Asakura?    
+The rains of summer join together.    
+scatters in the night; Now see    
+These dark hands of life    
 
