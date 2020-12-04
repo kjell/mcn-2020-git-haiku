@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-and bring to men a chance to rest    
-Our hungry donkey    
+Clouds come from time to time -    
+There's no sign that can foretell    
+They meet, they mate    
 
