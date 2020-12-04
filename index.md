@@ -1,4 +1,4 @@
-Won't you come and see    
-that black crow I hate so much    
-Lilies on the rocks    
+The sea darkening    
+I am off to bed - but ah!    
+A perfect evening!    
 
