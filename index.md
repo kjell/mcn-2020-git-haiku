@@ -1,4 +1,4 @@
-Here, where a thousand    
-Twilight whippoorwill, whistle on, sweet deepener    
-Contemptuous of frost    
+Old dark sleepy pool    
+above white    
+Of faded daffodils    
 
