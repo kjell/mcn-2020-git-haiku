@@ -1,4 +1,4 @@
-No oil to read by    
-visit the ancestral grave    
-They meet, they mate    
+A owner of the old thatched hut    
+Here along this way but I,    
+Ueno? Asakura?    
 
