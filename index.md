@@ -1,4 +1,4 @@
-In the cicada's cry    
-it needs but shiny wings and look    
-Murmuring Mogami    
+This snowy morning    
+above white    
+Two white butterflies?    
 
