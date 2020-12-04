@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-to see the moon, whose solemn pace    
-Over the orchid    
+Will we meet again    
+these heavy snow-flakes settling    
+On the temple porch    
 
