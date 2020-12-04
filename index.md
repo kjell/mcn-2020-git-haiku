@@ -1,4 +1,4 @@
-The rains of summer join together.    
-is quieted with creepers    
-But he's beautiful!    
+For a lovely bowl    
+Twilight whippoorwill, whistle on, sweet deepener    
+A butterfly floats and balances    
 
