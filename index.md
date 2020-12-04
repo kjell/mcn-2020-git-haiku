@@ -1,4 +1,4 @@
-For a lovely bowl    
-All that remains    
-Moon-lighted mountains!    
+Won't you come and see    
+that black crow I hate so much    
+Lilies on the rocks    
 
