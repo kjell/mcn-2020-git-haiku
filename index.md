@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-Line that won't be deleted    
-Morning-glory gazing    
+Won't you come and see    
+Here along this way but I,    
+A little woven cape    
 
