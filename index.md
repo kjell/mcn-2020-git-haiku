@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-loneliness? Just one leaf    
-They meet, they mate    
+Why so scrawny, cat?    
+poor monkey, you too could use    
+Mogami River.    
 
