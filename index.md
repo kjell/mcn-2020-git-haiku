@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-he starts to grind the rice,    
-A perfect evening!    
+Poverty's child -    
+A frog jumps in -    
+are darkened . . .    
 
