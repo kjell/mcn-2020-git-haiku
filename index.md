@@ -1,4 +1,4 @@
-Glorious the moon    
-Penetrating the very rock,    
-from looking at the moon.    
+Temple bells die out.    
+stretching over Sado Island    
+Like our tendrilled life    
 
