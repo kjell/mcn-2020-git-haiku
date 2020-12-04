@@ -1,4 +1,4 @@
-An old pond    
-soup, the salad, fish and all    
-With tears.    
+Too curious flower    
+is quieted with creepers    
+Muffled by hot rocks    
 
