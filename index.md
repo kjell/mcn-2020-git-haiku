@@ -1,4 +1,4 @@
-Won't you come and see    
-thoughts come - and there is loneliness;    
-Like our tendrilled life    
+Under cherry-trees    
+The fragrant blossoms remain.    
+are darkened . . .    
 
