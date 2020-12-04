@@ -1,4 +1,4 @@
-The rains of summer join together.    
-fell in silent dawn, spilling    
-Companion butterfly!    
+The first day of the year:    
+the scent of flowers floating    
+Darting dragon-fly!    
 
