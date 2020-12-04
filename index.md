@@ -1,4 +1,4 @@
-Temple bells die out.    
-stretching over Sado Island    
-Like our tendrilled life    
+The first day of the year:    
+even the crickets' singing    
+And evening bell    
 
