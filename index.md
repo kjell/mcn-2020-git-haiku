@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-above white    
-Of faded daffodils    
+A owner of the old thatched hut    
+loneliness? Just one leaf    
+They meet, they mate    
 
