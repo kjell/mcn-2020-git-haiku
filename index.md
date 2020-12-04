@@ -1,4 +1,4 @@
-The first day of the year:    
-even the crickets' singing    
-And evening bell    
+Temple bells die out.    
+the scent of flowers floating    
+the autumn dusk is here.    
 
