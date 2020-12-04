@@ -1,4 +1,4 @@
-Under cherry-trees    
-The fragrant blossoms remain.    
-are darkened . . .    
+Will we meet again    
+Here along this way but I,    
+Of warriors’ dreams.    
 
