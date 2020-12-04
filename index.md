@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-A frog jumps in -    
-Like our tendrilled life    
+Here, where a thousand    
+Twilight whippoorwill, whistle on, sweet deepener    
+Contemptuous of frost    
 
