@@ -1,4 +1,4 @@
-Spring is passing.    
-All that remains    
-from looking at the moon.    
+Dewdrop, let me cleanse    
+loneliness? Just one leaf    
+A little woven cape    
 
