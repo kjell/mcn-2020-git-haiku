@@ -1,4 +1,4 @@
-Silent the old town    
-in dusky night    
-They meet, they mate    
+Carven gods long gone    
+Heron's cry    
+the autumn dusk is here.    
 
