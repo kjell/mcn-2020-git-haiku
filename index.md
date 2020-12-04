@@ -1,4 +1,4 @@
-Nine times arising    
-in your brief sweet waters    
-the autumn dusk is here.    
+The rains of summer join together.    
+is quieted with creepers    
+But he's beautiful!    
 
