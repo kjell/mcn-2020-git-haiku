@@ -1,4 +1,4 @@
-The first day of the year:    
-in dusky night    
-Of dark loneliness    
+Too curious flower    
+let us to the road again    
+And evening bell    
 
