@@ -1,4 +1,4 @@
-The summer grasses.    
-Here along this way but I,    
-And evening bell    
+See: surviving suns    
+mingling with bright small shells    
+How soon it must die.    
 
