@@ -1,4 +1,4 @@
-Will we meet again    
-these heavy snow-flakes settling    
-On the temple porch    
+Spring is passing.    
+stretching over Sado Island    
+Bearded, with bent canes    
 
