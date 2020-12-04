@@ -1,4 +1,4 @@
-Carven gods long gone    
-just enough to bend the leaves    
+A owner of the old thatched hut    
+Line that won't be deleted    
 Morning-glory gazing    
 
