@@ -1,4 +1,4 @@
-Too curious flower    
-in your brief sweet waters    
-Darting dragon-fly!    
+An old pond    
+soup, the salad, fish and all    
+With tears.    
 
