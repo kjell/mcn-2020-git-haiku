@@ -1,4 +1,4 @@
-Cold first winter rain    
-Heron's cry    
-Come to rest our necks    
+Carven gods long gone    
+oh voices of the wild ducks    
+Moon-lighted mountains!    
 
