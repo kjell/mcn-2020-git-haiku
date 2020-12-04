@@ -1,4 +1,4 @@
-Temple bells die out.    
-these brilliant-hued hibiscus    
-Splash!    
+Now the swinging bridge    
+fell in silent dawn, spilling    
+Seasoned with petals    
 
