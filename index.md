@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-The fragrant blossoms remain.    
-from looking at the moon.    
+If there were fragrance    
+captains swore grand conquest    
+Companion butterfly!    
 
