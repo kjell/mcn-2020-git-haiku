@@ -1,4 +1,4 @@
 White cloud of mist    
-from cold streamlets for the sea    
-A cicada’s voice.    
+Is also changed to another    
+Cold pale eyes pour tears    
 
