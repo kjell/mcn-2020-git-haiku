@@ -1,4 +1,4 @@
-This snowy morning    
-therefore our thanks dark clouds    
-The Autumn wind.    
+The summer grasses.    
+Here along this way but I,    
+And evening bell    
 
