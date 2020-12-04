@@ -1,4 +1,4 @@
-The first day of the year:    
-to see the moon, whose solemn pace    
-A solitary bird    
+White cloud of mist    
+from cold streamlets for the sea    
+A cicada’s voice.    
 
