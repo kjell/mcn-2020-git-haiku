@@ -1,4 +1,4 @@
-None is travelling    
-The birds cry, and the fishes’ eyes are     
-With tears.    
+Silent the old town    
+in dusky night    
+Basho lines the moon    
 
