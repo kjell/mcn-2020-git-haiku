@@ -1,4 +1,4 @@
-Temple bells die out.    
-the scent of flowers floating    
-the autumn dusk is here.    
+Silent the old town    
+Penetrating the very rock,    
+Crying, whirling, white    
 
