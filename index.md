@@ -1,4 +1,4 @@
-For a lovely bowl    
-All that remains    
-and gazes at the moon.    
+The first day of the year:    
+to see the moon, whose solemn pace    
+A solitary bird    
 
