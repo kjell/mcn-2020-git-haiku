@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-starving for fat fish or mice    
-Two white butterflies?    
+The rains of summer join together.    
+fell in silent dawn, spilling    
+Companion butterfly!    
 
