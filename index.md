@@ -1,4 +1,4 @@
-Temple bells die out.    
-quick unexpected frog    
-Come to rest our necks    
+Chirping of the quails    
+who spends his little breakfast    
+Companion butterfly!    
 
