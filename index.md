@@ -1,4 +1,4 @@
-Seek on high bare trails    
-Penetrating the very rock,    
-Basho lines the moon    
+Dry cheerful cricket    
+perfumes her wings by floating    
+Moon-lighted mountains!    
 
