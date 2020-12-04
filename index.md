@@ -1,4 +1,4 @@
-See: surviving suns    
-and bring to men a chance to rest    
-This autumn evening.    
+Spring is passing.    
+All that remains    
+from looking at the moon.    
 
