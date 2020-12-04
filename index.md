@@ -1,4 +1,4 @@
-Will we meet again    
-loneliness? Just one leaf    
-Like our tendrilled life    
+Oh, tranquility!    
+mingling with bright small shells    
+Or backyard love?    
 
