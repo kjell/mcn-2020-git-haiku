@@ -1,4 +1,4 @@
-The sea darkening    
-the scent of flowers floating    
-Morning-glory gazing    
+This snowy morning    
+in dusky night    
+from looking at the moon.    
 
