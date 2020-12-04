@@ -1,4 +1,4 @@
-Here, where a thousand    
-starving for fat fish or mice    
-Ueno? Asakura?    
+Clouds come from time to time -    
+The fragrant blossoms remain.    
+from looking at the moon.    
 
