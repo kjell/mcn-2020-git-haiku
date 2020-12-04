@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-The lips feel cold.    
-How soon it must die.    
+See: surviving suns    
+and bring to men a chance to rest    
+This autumn evening.    
 
