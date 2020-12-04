@@ -1,4 +1,4 @@
-Oh, tranquility!    
-watching us pass, met death    
-Or backyard love?    
+Now the swinging bridge    
+in dusky night    
+from the kiri tree.    
 
