@@ -1,4 +1,4 @@
-Spring is passing.    
-stretching over Sado Island    
-Bearded, with bent canes    
+The sea darkening    
+the scent of flowers floating    
+Morning-glory gazing    
 
