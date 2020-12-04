@@ -1,4 +1,4 @@
-Oh, tranquility!    
-mingling with bright small shells    
-Or backyard love?    
+This snowy morning    
+therefore our thanks dark clouds    
+The Autumn wind.    
 
