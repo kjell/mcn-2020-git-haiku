@@ -1,4 +1,4 @@
-This is the new line    
-The fragrant blossoms remain.    
-Our hungry donkey    
+Too curious flower    
+in your brief sweet waters    
+Darting dragon-fly!    
 
