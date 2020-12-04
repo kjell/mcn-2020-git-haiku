@@ -1,4 +1,4 @@
-The sea darkening    
-I am off to bed - but ah!    
-A perfect evening!    
+Nine times arising    
+in your brief sweet waters    
+the autumn dusk is here.    
 
