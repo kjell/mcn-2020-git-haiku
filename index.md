@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-poor monkey, you too could use    
-Mogami River.    
+None is travelling    
+The birds cry, and the fishes’ eyes are     
+With tears.    
 
