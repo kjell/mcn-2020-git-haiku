@@ -1,4 +1,4 @@
-Oh, tranquility!    
-The fragrant blossoms remain.    
-Of faded daffodils    
+No oil to read by    
+visit the ancestral grave    
+They meet, they mate    
 
