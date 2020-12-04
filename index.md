@@ -1,4 +1,4 @@
-Under cherry-trees    
-scatters in the night; Now see    
-My moonlit pillow    
+Clouds come from time to time -    
+starving for fat fish or mice    
+Two white butterflies?    
 
