@@ -1,4 +1,4 @@
 Carven gods long gone    
-Heron's cry    
-the autumn dusk is here.    
+just enough to bend the leaves    
+Morning-glory gazing    
 
