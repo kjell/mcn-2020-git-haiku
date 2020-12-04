@@ -1,4 +1,4 @@
-Chirping of the quails    
-who spends his little breakfast    
-Companion butterfly!    
+Cold first winter rain    
+Heron's cry    
+Come to rest our necks    
 
