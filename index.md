@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-loneliness? Just one leaf    
-A little woven cape    
+The river gathering may rains    
+chirping, keeps the autumn gay    
+How soon it must die.    
 
