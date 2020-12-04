@@ -1,4 +1,4 @@
-See: surviving suns    
-mingling with bright small shells    
-How soon it must die.    
+Ballet in the air    
+to see the moon, whose solemn pace    
+But he's beautiful!    
 
