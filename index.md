@@ -1,4 +1,4 @@
-Will we meet again    
-Is also changed to another    
-This autumn evening.    
+Temple bells die out.    
+these brilliant-hued hibiscus    
+Splash!    
 
