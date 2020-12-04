@@ -1,4 +1,4 @@
-Now the swinging bridge    
-fell in silent dawn, spilling    
-Seasoned with petals    
+In the cicada's cry    
+it needs but shiny wings and look    
+Murmuring Mogami    
 
