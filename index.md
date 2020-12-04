@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-loneliness? Just one leaf    
-Companion butterfly!    
+In the cicada's cry    
+oh voices of the wild ducks    
+Cold pale eyes pour tears    
 
