@@ -1,4 +1,4 @@
-Now the swinging bridge    
-in dusky night    
-from the kiri tree.    
+For a lovely bowl    
+All that remains    
+and gazes at the moon.    
 
