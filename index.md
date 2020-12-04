@@ -1,4 +1,4 @@
-An old pond    
-April's air stirs in willow-leaves    
-from looking at the moon.    
+Ballet in the air    
+quick unexpected frog    
+Since there is no rice    
 
