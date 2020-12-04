@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-watching us pass, met death    
-Moon-lighted mountains!    
+Must springtime fade?    
+The fragrant blossoms remain.    
+How soon it must die.    
 
