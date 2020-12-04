@@ -1,4 +1,4 @@
-Under cherry-trees    
-he starts to grind the rice,    
-How soon it must die.    
+Now the swinging bridge    
+just enough to bend the leaves    
+Come to rest our necks    
 
