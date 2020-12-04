@@ -1,4 +1,4 @@
-Poverty's child -    
-A frog jumps in -    
-are darkened . . .    
+Here, where a thousand    
+starving for fat fish or mice    
+Ueno? Asakura?    
 
