@@ -1,4 +1,4 @@
-Carven gods long gone    
-oh voices of the wild ducks    
-Moon-lighted mountains!    
+Under cherry-trees    
+scatters in the night; Now see    
+My moonlit pillow    
 
