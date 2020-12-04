@@ -1,4 +1,4 @@
-Too curious flower    
-is quieted with creepers    
-Muffled by hot rocks    
+For a lovely bowl    
+All that remains    
+Moon-lighted mountains!    
 
