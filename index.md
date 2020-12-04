@@ -1,4 +1,4 @@
 Silent the old town    
-Penetrating the very rock,    
-Crying, whirling, white    
+in dusky night    
+They meet, they mate    
 
