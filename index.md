@@ -1,4 +1,4 @@
-White cloud of mist    
-thoughts come - and there is loneliness;    
-Stabs the darkness    
+The first day of the year:    
+in dusky night    
+Of dark loneliness    
 
