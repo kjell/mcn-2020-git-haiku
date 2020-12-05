@@ -1,4 +1,4 @@
-If there were fragrance    
-stretching over Sado Island    
-A butterfly floats and balances    
+Seas are wild tonight    
+All that remains    
+A little woven cape    
 
