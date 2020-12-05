@@ -1,4 +1,4 @@
-Lightning -    
-the scent of flowers floating    
-With tears.    
+Swallow in the dusk    
+these brilliant-hued hibiscus    
+Splash!    
 
