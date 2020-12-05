@@ -1,4 +1,4 @@
-Temple bells die out.    
-who spends his little breakfast    
-Ueno? Asakura?    
+Old dark sleepy pool    
+Heron's cry    
+Companion butterfly!    
 
