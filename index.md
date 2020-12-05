@@ -1,4 +1,4 @@
-When you say something,    
-just enough to bend the leaves    
-But he's beautiful!    
+This snowy morning    
+stretching over Sado Island    
+Of warriors’ dreams.    
 
