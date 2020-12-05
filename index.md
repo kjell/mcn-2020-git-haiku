@@ -1,4 +1,4 @@
-Lightning -    
-Penetrating the very rock,    
-The autumn dusk is here.    
+No oil to read by    
+from cold streamlets for the sea    
+From the kiri tree.    
 
