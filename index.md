@@ -1,4 +1,4 @@
-The rains of summer join together.    
-All that remains    
-Like our tendrilled life    
+Old dark sleepy pool    
+just enough to bend the leaves    
+Mogami River.    
 
