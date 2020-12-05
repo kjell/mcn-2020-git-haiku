@@ -1,4 +1,4 @@
-Carven gods long gone    
-fell in silent dawn, spilling    
-Of dark loneliness    
+Ah me! I am one    
+Is also changed to another    
+A perfect evening!    
 
