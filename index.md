@@ -1,4 +1,4 @@
-The summer grasses.    
-April's air stirs in willow-leaves    
-It’s the Doll’s Festival.    
+Swallow in the dusk    
+Twilight whippoorwill, whistle on, sweet deepener    
+Cold pale eyes pour tears    
 
