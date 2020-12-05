@@ -1,4 +1,4 @@
-Seas are wild tonight    
-All that remains    
-A little woven cape    
+Dry cheerful cricket    
+visit the ancestral grave    
+A perfect evening!    
 
