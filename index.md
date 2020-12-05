@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-Heron's cry    
-Companion butterfly!    
+Under cherry-trees    
+above white    
+Marks only midnight yet    
 
