@@ -1,4 +1,4 @@
-Must springtime fade?    
-spare my little buzzing friends    
-Mountain-top jewels    
+Bright red pepper-pod    
+just enough to bend the leaves    
+A solitary bird    
 
