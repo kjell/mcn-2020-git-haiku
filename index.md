@@ -1,4 +1,4 @@
-The rains of summer join together.    
-visit the ancestral grave    
-Cherry-blossoms    
+White cloud of mist    
+above white    
+Morning-glory gazing    
 
