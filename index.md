@@ -1,4 +1,4 @@
-Nine times arising    
-then cry all birds and fishes    
-Ueno? Asakura?    
+See: surviving suns    
+Heron's cry    
+Darting dragon-fly!    
 
