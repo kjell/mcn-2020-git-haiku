@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-There's no sign that can foretell    
-cherry-blossoms . . .    
+Wake! The sky is light!    
+Twilight whippoorwill, whistle on, sweet deepener    
+from the kiri tree.    
 
