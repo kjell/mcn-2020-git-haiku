@@ -1,4 +1,4 @@
-In the twilight rain    
-he starts to grind the rice,    
-Mogami River.    
+The rains of summer join together.    
+loneliness? Just one leaf    
+are darkened    
 
