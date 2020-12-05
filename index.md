@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-just enough to bend the leaves    
-A solitary bird    
+Ah me! I am one    
+sky-reflecting violets    
+Bush-clover petals    
 
