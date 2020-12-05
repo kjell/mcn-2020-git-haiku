@@ -1,4 +1,4 @@
-Black cloudbank broken    
-A frog jumps in -    
+Seas are wild tonight    
+visit the ancestral grave    
 Of warriors’ dreams.    
 
