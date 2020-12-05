@@ -1,4 +1,4 @@
-In the sea-surf edge    
-chirping, keeps the autumn gay    
-From the kiri tree.    
+This snowy morning    
+loneliness? Just one leaf    
+A lovely sunset    
 
