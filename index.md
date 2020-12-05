@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-A frog jumps in -    
-the autumn dusk is here.    
+White cloud of mist    
+How swift it is    
+But he's beautiful!    
 
