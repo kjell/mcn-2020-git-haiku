@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-visit the ancestral grave    
-A perfect evening!    
+The sea darkening    
+and bring to men a chance to rest    
+Mogami River.    
 
