@@ -1,4 +1,4 @@
-The rains of summer join together.    
-loneliness? Just one leaf    
-are darkened    
+Lady butterfly    
+is quieted with creepers    
+Mountain-top jewels    
 
