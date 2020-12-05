@@ -1,4 +1,4 @@
-Mountain-rose petals    
-April's air stirs in willow-leaves    
+For a lovely bowl    
+chirping, keeps the autumn gay    
 How soon it must die.    
 
