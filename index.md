@@ -1,4 +1,4 @@
-In the cicada's cry    
-here at your flowering grave    
-Or backyard love?    
+Such utter silence!    
+mingling with bright small shells    
+Darting dragon-fly!    
 
