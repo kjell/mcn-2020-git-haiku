@@ -1,4 +1,4 @@
-Such utter silence!    
-mingling with bright small shells    
-Darting dragon-fly!    
+Chirping of the quails    
+let us arrange these flowers    
+These dark hands of life    
 
