@@ -1,4 +1,4 @@
-In the cicada's cry    
-sky-reflecting violets    
-Bearded, with bent canes    
+Ballet in the air    
+just enough to bend the leaves    
+Splash!    
 
