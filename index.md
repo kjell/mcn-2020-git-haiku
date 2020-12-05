@@ -1,4 +1,4 @@
-See: surviving suns    
-to see the moon, whose solemn pace    
-Murmuring Mogami    
+Lightning -    
+Penetrating the very rock,    
+The autumn dusk is here.    
 
