@@ -1,4 +1,4 @@
-White cloud of mist    
-and bring to men a chance to rest    
-A perfect evening!    
+The summer grasses.    
+he starts to grind the rice,    
+These dark hands of life    
 
