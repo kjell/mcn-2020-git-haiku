@@ -1,4 +1,4 @@
-White cloud of mist    
-above white    
-Morning-glory gazing    
+When you say something,    
+just enough to bend the leaves    
+But he's beautiful!    
 
