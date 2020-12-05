@@ -1,4 +1,4 @@
-Oh, tranquility!    
-scatters in the night; Now see    
-and gazes at the moon.    
+Chirping of the quails    
+visit the ancestral grave    
+This autumn evening.    
 
