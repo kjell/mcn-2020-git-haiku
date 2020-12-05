@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-Is also changed to another    
-On the temple porch    
+An old pond    
+All that remains    
+Come to rest our necks    
 
