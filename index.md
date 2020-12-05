@@ -1,4 +1,4 @@
-In the sea-surf edge    
-The birds cry, and the fishes’ eyes are     
-and gazes at the moon.    
+Too curious flower    
+fell in silent dawn, spilling    
+A lovely sunset    
 
