@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-The lips feel cold.    
-Mogami River.    
+The rains of summer join together.    
+from cold streamlets for the sea    
+The autumn dusk is here.    
 
