@@ -1,4 +1,4 @@
-In the cicada's cry    
-it needs but shiny wings and look    
-Mogami River.    
+Oh, tranquility!    
+scatters in the night; Now see    
+and gazes at the moon.    
 
