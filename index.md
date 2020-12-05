@@ -1,4 +1,4 @@
-Carven gods long gone    
-the scent of flowers floating    
-Or backyard love?    
+Wake! The sky is light!    
+oh voices of the wild ducks    
+With tears.    
 
