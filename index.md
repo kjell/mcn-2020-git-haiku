@@ -1,4 +1,4 @@
-In the sea-surf edge    
-above white    
-But he's beautiful!    
+Temple bells die out.    
+who spends his little breakfast    
+Ueno? Asakura?    
 
