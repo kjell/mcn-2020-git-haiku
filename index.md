@@ -1,4 +1,4 @@
-Oh, tranquility!    
-Heron's cry    
-Since there is no rice    
+None is travelling    
+the scent of flowers floating    
+From the kiri tree.    
 
