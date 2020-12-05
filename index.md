@@ -1,4 +1,4 @@
-First white snow of fall    
-visit the ancestral grave    
-It’s the Doll’s Festival.    
+In the cicada's cry    
+here at your flowering grave    
+Or backyard love?    
 
