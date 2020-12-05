@@ -1,4 +1,4 @@
-Chirping of the quails    
-visit the ancestral grave    
-This autumn evening.    
+Ballet in the air    
+sky-reflecting violets    
+Tall grass their monument    
 
