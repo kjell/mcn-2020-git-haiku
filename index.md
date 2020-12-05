@@ -1,4 +1,4 @@
-Ballet in the air    
-just enough to bend the leaves    
-Splash!    
+First white snow of fall    
+visit the ancestral grave    
+It’s the Doll’s Festival.    
 
