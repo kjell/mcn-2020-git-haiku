@@ -1,4 +1,4 @@
-Swallow in the dusk    
-he starts to grind the rice,    
-Our hungry donkey    
+Clouds come from time to time -    
+There's no sign that can foretell    
+Moon-lighted mountains!    
 
