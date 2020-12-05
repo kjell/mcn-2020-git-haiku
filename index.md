@@ -1,4 +1,4 @@
-Ballet in the air    
-mingling with bright small shells    
-Since there is no rice    
+The first day of the year:    
+All that remains    
+Bush-clover petals    
 
