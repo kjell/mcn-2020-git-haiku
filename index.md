@@ -1,4 +1,4 @@
-This snowy morning    
-stretching over Sado Island    
-Of warriors’ dreams.    
+The summer grasses.    
+he starts to grind the rice,    
+A solitary bird    
 
