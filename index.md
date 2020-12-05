@@ -1,4 +1,4 @@
-Ah me! I am one    
-Is also changed to another    
-A perfect evening!    
+Now that eyes of hawks    
+fell in silent dawn, spilling    
+And evening bell    
 
