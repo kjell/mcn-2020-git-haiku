@@ -1,4 +1,4 @@
-The first day of the year:    
-the scent of flowers floating    
-Darting dragon-fly!    
+An old pond    
+falling, falling, falling now    
+A cicada’s voice.    
 
