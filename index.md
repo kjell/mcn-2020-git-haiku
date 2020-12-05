@@ -1,4 +1,4 @@
-The first day of the year:    
-All that remains    
-Bush-clover petals    
+In the sea-surf edge    
+The birds cry, and the fishes’ eyes are     
+and gazes at the moon.    
 
