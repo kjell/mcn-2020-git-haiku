@@ -1,4 +1,4 @@
-Chirping of the quails    
-let us arrange these flowers    
-These dark hands of life    
+Must springtime fade?    
+spare my little buzzing friends    
+Mountain-top jewels    
 
