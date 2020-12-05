@@ -1,4 +1,4 @@
-If there were fragrance    
+Bright red pepper-pod    
 The fragrant blossoms remain.    
-How soon it must die.    
+From the kiri tree.    
 
