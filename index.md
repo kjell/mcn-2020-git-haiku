@@ -1,4 +1,4 @@
-Seas are wild tonight    
-visit the ancestral grave    
-Of warriors’ dreams.    
+Old dark sleepy pool    
+let us arrange these flowers    
+How soon it must die.    
 
