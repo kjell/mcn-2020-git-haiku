@@ -1,4 +1,4 @@
-For a lovely bowl    
-thoughts come - and there is loneliness;    
-Our hungry donkey    
+In the cicada's cry    
+it needs but shiny wings and look    
+Mogami River.    
 
