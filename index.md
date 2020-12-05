@@ -1,4 +1,4 @@
-Cold first winter rain    
-he starts to grind the rice,    
-Our hungry donkey    
+Lady butterfly    
+Here along this way but I,    
+Mountain-top jewels    
 
