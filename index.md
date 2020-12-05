@@ -1,4 +1,4 @@
-White cloud of mist    
-stretching over Sado Island    
-A perfect evening!    
+A owner of the old thatched hut    
+Line that won't be deleted    
+Stabs the darkness    
 
