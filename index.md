@@ -1,4 +1,4 @@
-In the sea-surf edge    
-I am off to bed - but ah!    
-Mogami River.    
+In the cicada's cry    
+sky-reflecting violets    
+Bearded, with bent canes    
 
