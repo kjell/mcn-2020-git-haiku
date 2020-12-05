@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-Twilight whippoorwill, whistle on, sweet deepener    
-from the kiri tree.    
+Mountain-rose petals    
+April's air stirs in willow-leaves    
+How soon it must die.    
 
