@@ -1,4 +1,4 @@
-Ah me! I am one    
-sky-reflecting violets    
-Bush-clover petals    
+In the sea-surf edge    
+chirping, keeps the autumn gay    
+From the kiri tree.    
 
