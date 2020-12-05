@@ -1,4 +1,4 @@
-The summer grasses.    
-sky-reflecting violets    
-Goes plop! Watersplash!    
+Temple bells die out.    
+Heron's cry    
+and gazes at the moon.    
 
