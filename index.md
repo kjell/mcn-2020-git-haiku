@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-just enough to bend the leaves    
-Mogami River.    
+For a lovely bowl    
+thoughts come - and there is loneliness;    
+Our hungry donkey    
 
