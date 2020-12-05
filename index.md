@@ -1,4 +1,4 @@
-The sea darkening    
-captains swore grand conquest    
-Moon-lighted mountains!    
+If there were fragrance    
+stretching over Sado Island    
+A butterfly floats and balances    
 
