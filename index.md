@@ -1,4 +1,4 @@
-An old pond    
-All that remains    
-Come to rest our necks    
+White cloud of mist    
+stretching over Sado Island    
+A perfect evening!    
 
