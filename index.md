@@ -1,4 +1,4 @@
-Poverty's child -    
-Here along this way but I,    
-The Autumn wind.    
+In the twilight rain    
+he starts to grind the rice,    
+Mogami River.    
 
