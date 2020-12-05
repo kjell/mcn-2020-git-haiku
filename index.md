@@ -1,4 +1,4 @@
-Ballet in the air    
-sky-reflecting violets    
-Tall grass their monument    
+In the sea-surf edge    
+above white    
+But he's beautiful!    
 
