@@ -1,4 +1,4 @@
-Swallow in the dusk    
-these brilliant-hued hibiscus    
-Splash!    
+The sea darkening    
+captains swore grand conquest    
+Moon-lighted mountains!    
 
