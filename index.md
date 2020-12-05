@@ -1,4 +1,4 @@
-Too curious flower    
-fell in silent dawn, spilling    
-A lovely sunset    
+Wake! The sky is light!    
+he starts to grind the rice,    
+Bush-clover petals    
 
