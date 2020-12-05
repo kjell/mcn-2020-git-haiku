@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-There's no sign that can foretell    
-Moon-lighted mountains!    
+The rains of summer join together.    
+visit the ancestral grave    
+Cherry-blossoms    
 
