@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-Line that won't be deleted    
-Stabs the darkness    
+Won't you come and see    
+mingling with bright small shells    
+cherry-blossoms . . .    
 
