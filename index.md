@@ -1,4 +1,4 @@
-The sea darkening    
-and bring to men a chance to rest    
-Mogami River.    
+Old dark sleepy pool    
+Is also changed to another    
+On the temple porch    
 
