@@ -1,4 +1,4 @@
-In the sea-surf edge    
-April's air stirs in willow-leaves    
-Splash!    
+Clouds come from time to time -    
+There's no sign that can foretell    
+cherry-blossoms . . .    
 
