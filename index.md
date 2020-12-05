@@ -1,4 +1,4 @@
-Lady butterfly    
-is quieted with creepers    
-Mountain-top jewels    
+The rains of summer join together.    
+All that remains    
+Like our tendrilled life    
 
