@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-oh voices of the wild ducks    
-With tears.    
+Oh, tranquility!    
+Heron's cry    
+Since there is no rice    
 
