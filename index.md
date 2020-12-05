@@ -1,4 +1,4 @@
-Lady butterfly    
-Here along this way but I,    
-Mountain-top jewels    
+Black cloudbank broken    
+A frog jumps in -    
+Of warriors’ dreams.    
 
