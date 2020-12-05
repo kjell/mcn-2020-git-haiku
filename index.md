@@ -1,4 +1,4 @@
-Under cherry-trees    
-above white    
-Marks only midnight yet    
+Temple bells die out.    
+thoughts come - and there is loneliness;    
+Basho lines the moon    
 
