@@ -1,4 +1,4 @@
-The rains of summer join together.    
-from cold streamlets for the sea    
-The autumn dusk is here.    
+If there were fragrance    
+The fragrant blossoms remain.    
+How soon it must die.    
 
