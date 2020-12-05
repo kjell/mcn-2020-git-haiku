@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-he starts to grind the rice,    
-Bush-clover petals    
+For a lovely bowl    
+these brilliant-hued hibiscus    
+and gazes at the moon.    
 
