@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-let us arrange these flowers    
-How soon it must die.    
+White cloud of mist    
+and bring to men a chance to rest    
+A perfect evening!    
 
