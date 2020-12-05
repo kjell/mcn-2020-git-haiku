@@ -1,4 +1,4 @@
-Won't you come and see    
-mingling with bright small shells    
-cherry-blossoms . . .    
+Poverty's child -    
+Here along this way but I,    
+The Autumn wind.    
 
