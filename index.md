@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-I am off to bed - but ah!    
-It’s the Doll’s Festival.    
+The first day of the year:    
+here at your flowering grave    
+Tall grass their monument    
 
