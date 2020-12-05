@@ -1,4 +1,4 @@
-For a lovely bowl    
-chirping, keeps the autumn gay    
-How soon it must die.    
+In the sea-surf edge    
+I am off to bed - but ah!    
+Mogami River.    
 
