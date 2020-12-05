@@ -1,4 +1,4 @@
-Swallow in the dusk    
-Twilight whippoorwill, whistle on, sweet deepener    
-Cold pale eyes pour tears    
+A owner of the old thatched hut    
+A frog jumps in -    
+the autumn dusk is here.    
 
