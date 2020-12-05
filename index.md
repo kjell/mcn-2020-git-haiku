@@ -1,4 +1,4 @@
-This is the new line    
-Heron's cry    
-Bearded, with bent canes    
+Clouds come from time to time -    
+to see the moon, whose solemn pace    
+Among the flowers    
 
