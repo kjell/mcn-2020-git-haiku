@@ -1,4 +1,4 @@
-White cloud of mist    
-How swift it is    
-But he's beautiful!    
+Oh, tranquility!    
+perfumes her wings by floating    
+How soon it must die.    
 
