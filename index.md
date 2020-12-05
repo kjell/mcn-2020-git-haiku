@@ -1,4 +1,4 @@
-Oh, tranquility!    
-perfumes her wings by floating    
-How soon it must die.    
+Wake! The sky is light!    
+The lips feel cold.    
+Mogami River.    
 
