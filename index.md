@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-these brilliant-hued hibiscus    
-A cicada’s voice.    
+The summer grasses.    
+April's air stirs in willow-leaves    
+It’s the Doll’s Festival.    
 
