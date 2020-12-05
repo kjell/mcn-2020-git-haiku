@@ -1,4 +1,4 @@
-None is travelling    
+Lightning -    
 the scent of flowers floating    
-From the kiri tree.    
+With tears.    
 
