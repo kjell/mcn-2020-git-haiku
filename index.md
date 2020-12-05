@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-The fragrant blossoms remain.    
-From the kiri tree.    
+Dewdrop, let me cleanse    
+I am off to bed - but ah!    
+It’s the Doll’s Festival.    
 
