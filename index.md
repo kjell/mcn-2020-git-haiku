@@ -1,4 +1,4 @@
-Camellia-petal    
-A frog jumps in -    
-Of faded daffodils    
+Cold first winter rain    
+he starts to grind the rice,    
+Our hungry donkey    
 
