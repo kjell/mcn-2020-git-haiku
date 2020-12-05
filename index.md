@@ -1,4 +1,4 @@
-The summer grasses.    
+Swallow in the dusk    
 he starts to grind the rice,    
-These dark hands of life    
+Our hungry donkey    
 
