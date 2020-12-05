@@ -1,4 +1,4 @@
-An old pond    
-falling, falling, falling now    
-A cicada’s voice.    
+Seek on high bare trails    
+Heron's cry    
+But he's beautiful!    
 
