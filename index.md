@@ -1,4 +1,4 @@
-Seek on high bare trails    
-Heron's cry    
-But he's beautiful!    
+In the sea-surf edge    
+April's air stirs in willow-leaves    
+Splash!    
 
