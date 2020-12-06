@@ -1,4 +1,4 @@
-This is the new line    
-starving for fat fish or mice    
-Splash!    
+Carven gods long gone    
+let us arrange these flowers    
+Like our tendrilled life    
 
