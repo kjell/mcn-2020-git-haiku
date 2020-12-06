@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-soup, the salad, fish and all    
-Mogami River.    
+Lightning -    
+that black crow I hate so much    
+Of faded daffodils    
 
