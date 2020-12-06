@@ -1,4 +1,4 @@
-The river gathering may rains    
-loneliness? Just one leaf    
-Come to rest our necks    
+Glorious the moon    
+stretching over Sado Island    
+Our hungry donkey    
 
