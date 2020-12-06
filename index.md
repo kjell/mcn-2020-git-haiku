@@ -1,4 +1,4 @@
-The summer grasses.    
-chirping, keeps the autumn gay    
-This autumn evening.    
+Won't you come and see    
+he starts to grind the rice,    
+Murmuring Mogami    
 
