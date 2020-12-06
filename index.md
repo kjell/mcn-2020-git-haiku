@@ -1,4 +1,4 @@
-In the sea-surf edge    
-thoughts come - and there is loneliness;    
-Stabs the darkness    
+The summer grasses.    
+in dusky night    
+Darting dragon-fly!    
 
