@@ -1,4 +1,4 @@
-This snowy morning    
-quick unexpected frog    
-On the temple porch    
+Cold first winter rain    
+All that remains    
+Morning-glory gazing    
 
