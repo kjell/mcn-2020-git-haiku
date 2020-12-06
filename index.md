@@ -1,4 +1,4 @@
-Swallow in the dusk    
-All that remains    
-Morning-glory gazing    
+Lady butterfly    
+April's air stirs in willow-leaves    
+Among the flowers    
 
