@@ -1,4 +1,4 @@
-Swallow in the dusk    
-All that remains    
-It’s the Doll’s Festival.    
+Clouds come from time to time -    
+mingling with bright small shells    
+Lilies on the rocks    
 
