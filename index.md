@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-these heavy snow-flakes settling    
-Silent clouds of stars    
+Such utter silence!    
+All that remains    
+A little woven cape    
 
