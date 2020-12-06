@@ -1,4 +1,4 @@
-Poverty's child -    
-captains swore grand conquest    
-Silent clouds of stars    
+Oh, tranquility!    
+he starts to grind the rice,    
+Stabs the darkness    
 
