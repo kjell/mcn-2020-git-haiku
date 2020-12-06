@@ -1,4 +1,4 @@
-Carven gods long gone    
-chirping, keeps the autumn gay    
-This autumn evening.    
+Now the swinging bridge    
+How swift it is    
+Bearded, with bent canes    
 
