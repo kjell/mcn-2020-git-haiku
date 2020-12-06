@@ -1,4 +1,4 @@
-Ballet in the air    
-falling, falling, falling now    
-Murmuring Mogami    
+Temple bells die out.    
+mingling with bright small shells    
+A cicada’s voice.    
 
