@@ -1,4 +1,4 @@
-Temple bells die out.    
-mingling with bright small shells    
-A cicada’s voice.    
+The river gathering may rains    
+scatters in the night; Now see    
+Stabs the darkness    
 
