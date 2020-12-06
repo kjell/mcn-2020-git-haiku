@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-A frog jumps in -    
-Cherry-blossoms    
+The rains of summer join together.    
+perfumes her wings by floating    
+Splash!    
 
