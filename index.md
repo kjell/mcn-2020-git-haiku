@@ -1,4 +1,4 @@
-This snowy morning    
-The fragrant blossoms remain.    
+The summer grasses.    
+these brilliant-hued hibiscus    
 Marks only midnight yet    
 
