@@ -1,4 +1,4 @@
-Such utter silence!    
-Here along this way but I,    
-Over the orchid    
+The first day of the year:    
+twin butterflies until, twice white    
+Since there is no rice    
 
