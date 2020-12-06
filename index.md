@@ -1,4 +1,4 @@
-The summer grasses.    
-in dusky night    
-Darting dragon-fly!    
+Now in sad autumn    
+The fragrant blossoms remain.    
+Murmuring Mogami    
 
