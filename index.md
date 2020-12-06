@@ -1,4 +1,4 @@
-Oh, tranquility!    
-he starts to grind the rice,    
-Stabs the darkness    
+The summer grasses.    
+chirping, keeps the autumn gay    
+Since there is no rice    
 
