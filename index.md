@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-The fragrant blossoms remain.    
-A little woven cape    
+The river gathering may rains    
+loneliness? Just one leaf    
+Come to rest our necks    
 
