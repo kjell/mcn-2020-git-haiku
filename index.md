@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-Heron's cry    
-A water-jewel    
+White cloud of mist    
+these heavy snow-flakes settling    
+Waterfall music    
 
