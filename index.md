@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-mingling with bright small shells    
-Lilies on the rocks    
+This snowy morning    
+The fragrant blossoms remain.    
+Marks only midnight yet    
 
