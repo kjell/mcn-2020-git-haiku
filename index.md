@@ -1,4 +1,4 @@
-Black cloudbank broken    
-he starts to grind the rice,    
-It’s the Doll’s Festival.    
+Clouds come from time to time -    
+tolling twilight bell; Temple    
+Seasoned with petals    
 
