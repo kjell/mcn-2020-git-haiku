@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-even the crickets' singing    
-This autumn evening.    
+Black cloudbank broken    
+who spends his little breakfast    
+From the kiri tree.    
 
