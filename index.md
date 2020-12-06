@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-Heron's cry    
-Tall grass their monument    
+In the sea-surf edge    
+thoughts come - and there is loneliness;    
+Stabs the darkness    
 
