@@ -1,4 +1,4 @@
-An old pond    
-thoughts come - and there is loneliness;    
-How soon it must die.    
+Camellia-petal    
+Is also changed to another    
+Of faded daffodils    
 
