@@ -1,4 +1,4 @@
-Camellia-petal    
+Swallow in the dusk    
 All that remains    
-Mogami River.    
+Morning-glory gazing    
 
