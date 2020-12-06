@@ -1,4 +1,4 @@
-The summer grasses.    
-these brilliant-hued hibiscus    
-Marks only midnight yet    
+Camellia-petal    
+All that remains    
+Mogami River.    
 
