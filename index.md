@@ -1,4 +1,4 @@
-The summer grasses.    
-chirping, keeps the autumn gay    
-Since there is no rice    
+The river gathering may rains    
+loneliness? Just one leaf    
+But he's beautiful!    
 
