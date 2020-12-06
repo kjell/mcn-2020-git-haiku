@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-All that remains    
-These dark hands of life    
+For a lovely bowl    
+stretching over Sado Island    
+A cicada’s voice.    
 
