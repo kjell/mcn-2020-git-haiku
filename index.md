@@ -1,4 +1,4 @@
-Poverty's child -    
-it needs but shiny wings and look    
-Or backyard love?    
+Swallow in the dusk    
+All that remains    
+It’s the Doll’s Festival.    
 
