@@ -1,4 +1,4 @@
-Now in sad autumn    
-The fragrant blossoms remain.    
-Murmuring Mogami    
+Black cloudbank broken    
+falling, falling, falling now    
+Our hungry donkey    
 
