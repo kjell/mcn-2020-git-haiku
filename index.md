@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-fell in silent dawn, spilling    
-How soon it must die.    
+Black cloudbank broken    
+All that remains    
+Our hungry donkey    
 
