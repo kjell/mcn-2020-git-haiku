@@ -1,4 +1,4 @@
-Temple bells die out.    
-just enough to bend the leaves    
-But he's beautiful!    
+A owner of the old thatched hut    
+The fragrant blossoms remain.    
+A little woven cape    
 
