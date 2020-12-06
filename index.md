@@ -1,4 +1,4 @@
-White cloud of mist    
-even the crickets' singing    
-A water-jewel    
+An old pond    
+thoughts come - and there is loneliness;    
+How soon it must die.    
 
