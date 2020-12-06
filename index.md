@@ -1,4 +1,4 @@
-Now the swinging bridge    
-How swift it is    
-Bearded, with bent canes    
+White cloud of mist    
+even the crickets' singing    
+A water-jewel    
 
