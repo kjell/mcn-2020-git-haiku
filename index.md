@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-tolling twilight bell; Temple    
-Seasoned with petals    
+Now in sad autumn    
+Twilight whippoorwill, whistle on, sweet deepener    
+Companion butterfly!    
 
