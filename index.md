@@ -1,4 +1,4 @@
-Camellia-petal    
-Is also changed to another    
-Of faded daffodils    
+Old dark sleepy pool    
+oh voices of the wild ducks    
+Basho lines the moon    
 
