@@ -1,4 +1,4 @@
-Lightning -    
-All that remains    
-It’s the Doll’s Festival.    
+This snowy morning    
+quick unexpected frog    
+On the temple porch    
 
