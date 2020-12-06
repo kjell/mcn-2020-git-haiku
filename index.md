@@ -1,4 +1,4 @@
-Black cloudbank broken    
-falling, falling, falling now    
-Our hungry donkey    
+Now that eyes of hawks    
+There's no sign that can foretell    
+Bush-clover petals    
 
