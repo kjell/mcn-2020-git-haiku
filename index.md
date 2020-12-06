@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-Heron's cry    
-A lovely sunset    
+First white snow of fall    
+Twilight whippoorwill, whistle on, sweet deepener    
+A butterfly floats and balances    
 
