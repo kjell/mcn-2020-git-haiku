@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-oh voices of the wild ducks    
-Basho lines the moon    
+Now that eyes of hawks    
+even the crickets' singing    
+This autumn evening.    
 
