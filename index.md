@@ -1,4 +1,4 @@
-Such utter silence!    
-All that remains    
-A little woven cape    
+This is the new line    
+mingling with bright small shells    
+from the kiri tree.    
 
