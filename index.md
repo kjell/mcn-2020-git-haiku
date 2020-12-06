@@ -1,4 +1,4 @@
 The rains of summer join together.    
-loneliness? Just one leaf    
-These dark hands of life    
+poor monkey, you too could use    
+Darting dragon-fly!    
 
