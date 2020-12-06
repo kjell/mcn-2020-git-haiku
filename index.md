@@ -1,4 +1,4 @@
-See: surviving suns    
-Heron's cry    
-Darting dragon-fly!    
+The summer grasses.    
+in your brief sweet waters    
+A perfect evening!    
 
