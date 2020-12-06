@@ -1,4 +1,4 @@
-Under cherry-trees    
-sky-reflecting violets    
-Muffled by hot rocks    
+Poverty's child -    
+A frog jumps in -    
+Or backyard love?    
 
