@@ -1,4 +1,4 @@
-Chirping of the quails    
-A frog jumps in -    
-My moonlit pillow    
+Lightning -    
+All that remains    
+It’s the Doll’s Festival.    
 
