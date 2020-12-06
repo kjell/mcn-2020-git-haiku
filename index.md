@@ -1,4 +1,4 @@
-In the twilight rain    
-The lips feel cold.    
-Stabs the darkness    
+Why so scrawny, cat?    
+soup, the salad, fish and all    
+Mogami River.    
 
