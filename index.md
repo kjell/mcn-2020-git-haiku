@@ -1,4 +1,4 @@
-The summer grasses.    
-in your brief sweet waters    
-A perfect evening!    
+Clouds come from time to time -    
+fell in silent dawn, spilling    
+How soon it must die.    
 
