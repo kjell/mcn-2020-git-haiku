@@ -1,4 +1,4 @@
-Black cloudbank broken    
-All that remains    
-Our hungry donkey    
+First white snow of fall    
+loneliness? Just one leaf    
+This autumn evening.    
 
