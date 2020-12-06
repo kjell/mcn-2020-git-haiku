@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-Heron's cry    
-It’s the Doll’s Festival.    
+Seas are wild tonight    
+these heavy snow-flakes settling    
+Basho lines the moon    
 
