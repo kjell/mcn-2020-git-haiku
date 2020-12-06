@@ -1,4 +1,4 @@
-Silent the old town    
-in your brief sweet waters    
-Cherry-blossoms    
+An old pond    
+therefore our thanks dark clouds    
+With tears.    
 
