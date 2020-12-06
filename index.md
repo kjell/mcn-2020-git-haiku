@@ -1,4 +1,4 @@
-This is the new line    
-mingling with bright small shells    
-from the kiri tree.    
+Ballet in the air    
+as I take my darkening path    
+Basho lines the moon    
 
