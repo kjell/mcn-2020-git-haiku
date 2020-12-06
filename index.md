@@ -1,4 +1,4 @@
-Poverty's child -    
-therefore our thanks dark clouds    
-from looking at the moon.    
+Seek on high bare trails    
+I am off to bed - but ah!    
+the autumn dusk is here.    
 
