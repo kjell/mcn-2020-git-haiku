@@ -1,4 +1,4 @@
-The first day of the year:    
-twin butterflies until, twice white    
-Since there is no rice    
+A owner of the old thatched hut    
+All that remains    
+These dark hands of life    
 
