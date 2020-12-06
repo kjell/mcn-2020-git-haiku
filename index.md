@@ -1,4 +1,4 @@
-For a lovely bowl    
-stretching over Sado Island    
-A cicada’s voice.    
+Black cloudbank broken    
+Penetrating the very rock,    
+Of warriors’ dreams.    
 
