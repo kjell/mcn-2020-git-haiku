@@ -1,4 +1,4 @@
-Lightning -    
-that black crow I hate so much    
-Of faded daffodils    
+Ballet in the air    
+falling, falling, falling now    
+Murmuring Mogami    
 
