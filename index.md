@@ -1,4 +1,4 @@
-Won't you come and see    
-he starts to grind the rice,    
-Murmuring Mogami    
+Clouds come from time to time -    
+A frog jumps in -    
+Cherry-blossoms    
 
