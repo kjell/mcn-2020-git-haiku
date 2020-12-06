@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-that black crow I hate so much    
-With tears.    
+An old pond    
+the scent of flowers floating    
+from looking at the moon.    
 
