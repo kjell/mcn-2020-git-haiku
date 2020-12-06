@@ -1,4 +1,4 @@
-First white snow of fall    
-loneliness? Just one leaf    
-This autumn evening.    
+In the sea-surf edge    
+There's no sign that can foretell    
+cherry-blossoms . . .    
 
