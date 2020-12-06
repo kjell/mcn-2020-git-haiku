@@ -1,4 +1,4 @@
-White cloud of mist    
-these heavy snow-flakes settling    
-Waterfall music    
+This is the new line    
+A frog jumps in -    
+Seasoned with petals    
 
