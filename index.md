@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-There's no sign that can foretell    
-Bush-clover petals    
+Black cloudbank broken    
+he starts to grind the rice,    
+It’s the Doll’s Festival.    
 
