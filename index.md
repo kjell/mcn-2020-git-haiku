@@ -1,4 +1,4 @@
-In the sea-surf edge    
-Heron's cry    
-They meet, they mate    
+The rains of summer join together.    
+loneliness? Just one leaf    
+These dark hands of life    
 
