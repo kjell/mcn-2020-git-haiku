@@ -1,4 +1,4 @@
-Temple bells die out.    
-and bring to men a chance to rest    
-Come to rest our necks    
+Why so scrawny, cat?    
+There's no sign that can foretell    
+Tall grass their monument    
 
