@@ -1,4 +1,4 @@
-Black cloudbank broken    
-who spends his little breakfast    
-From the kiri tree.    
+Bright red pepper-pod    
+these heavy snow-flakes settling    
+Silent clouds of stars    
 
