@@ -1,4 +1,4 @@
-An old pond    
-therefore our thanks dark clouds    
-With tears.    
+Under cherry-trees    
+sky-reflecting violets    
+Muffled by hot rocks    
 
