@@ -1,4 +1,4 @@
-Lady butterfly    
-April's air stirs in willow-leaves    
-Among the flowers    
+Chirping of the quails    
+A frog jumps in -    
+My moonlit pillow    
 
