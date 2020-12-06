@@ -1,4 +1,4 @@
-The rains of summer join together.    
-poor monkey, you too could use    
-Darting dragon-fly!    
+When you say something,    
+The birds cry, and the fishes’ eyes are     
+from looking at the moon.    
 
