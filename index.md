@@ -1,4 +1,4 @@
-The river gathering may rains    
-scatters in the night; Now see    
-Stabs the darkness    
+Carven gods long gone    
+chirping, keeps the autumn gay    
+This autumn evening.    
 
