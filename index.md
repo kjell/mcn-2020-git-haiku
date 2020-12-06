@@ -1,4 +1,4 @@
-The rains of summer join together.    
-therefore our thanks dark clouds    
-Of faded daffodils    
+Wake! The sky is light!    
+that black crow I hate so much    
+With tears.    
 
