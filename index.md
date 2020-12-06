@@ -1,4 +1,4 @@
-Must springtime fade?    
-watching us pass, met death    
-Waterfall music    
+The rains of summer join together.    
+therefore our thanks dark clouds    
+Of faded daffodils    
 
