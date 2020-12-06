@@ -1,4 +1,4 @@
-The rains of summer join together.    
-perfumes her wings by floating    
-Splash!    
+Dewdrop, let me cleanse    
+Heron's cry    
+A lovely sunset    
 
