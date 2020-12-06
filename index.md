@@ -1,4 +1,4 @@
-When you say something,    
-The birds cry, and the fishes’ eyes are     
-from looking at the moon.    
+In the twilight rain    
+The lips feel cold.    
+Stabs the darkness    
 
