@@ -1,4 +1,4 @@
-Black cloudbank broken    
-Penetrating the very rock,    
-Of warriors’ dreams.    
+None is travelling    
+thoughts come - and there is loneliness;    
+It’s the Doll’s Festival.    
 
