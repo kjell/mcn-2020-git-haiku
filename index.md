@@ -1,4 +1,4 @@
-In the sea-surf edge    
-it needs but shiny wings and look    
-Murmuring Mogami    
+Temple bells die out.    
+and bring to men a chance to rest    
+Come to rest our necks    
 
