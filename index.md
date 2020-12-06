@@ -1,4 +1,4 @@
 In the sea-surf edge    
-There's no sign that can foretell    
-cherry-blossoms . . .    
+Heron's cry    
+They meet, they mate    
 
