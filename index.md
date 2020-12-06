@@ -1,4 +1,4 @@
-Glorious the moon    
-sky-reflecting violets    
-Seasoned with petals    
+Dawn-shining mountains    
+Heron's cry    
+Tall grass their monument    
 
