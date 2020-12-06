@@ -1,4 +1,4 @@
-If there were fragrance    
-perfumes her wings by floating    
-Splash!    
+Poverty's child -    
+therefore our thanks dark clouds    
+from looking at the moon.    
 
