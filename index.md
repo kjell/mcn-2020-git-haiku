@@ -1,4 +1,4 @@
-Spring is passing.    
-the scent of flowers floating    
-Darting dragon-fly!    
+Won't you come and see    
+from cold streamlets for the sea    
+Or backyard love?    
 
