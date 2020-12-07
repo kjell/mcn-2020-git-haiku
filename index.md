@@ -1,4 +1,4 @@
-Won't you come and see    
-above white    
-Splash!    
+Now that eyes of hawks    
+Is also changed to another    
+This autumn evening.    
 
