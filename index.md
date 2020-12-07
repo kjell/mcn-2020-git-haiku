@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-let us to the road again    
-It’s the Doll’s Festival.    
+An old pond    
+let us arrange these flowers    
+A solitary bird    
 
