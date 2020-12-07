@@ -1,4 +1,4 @@
-This snowy morning    
-Here along this way but I,    
-With tears.    
+Clouds come from time to time -    
+Penetrating the very rock,    
+The Autumn wind.    
 
