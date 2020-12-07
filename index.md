@@ -1,4 +1,4 @@
-Lady butterfly    
-sky-reflecting violets    
-from the kiri tree.    
+Old dark sleepy pool    
+these heavy snow-flakes settling    
+A little woven cape    
 
