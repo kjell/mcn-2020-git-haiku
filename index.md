@@ -1,4 +1,4 @@
-For a lovely bowl    
-There's no sign that can foretell    
-They meet, they mate    
+Glorious the moon    
+How swift it is    
+Two white butterflies?    
 
