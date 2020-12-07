@@ -1,4 +1,4 @@
-Won't you come and see    
-just enough to bend the leaves    
-Of dark loneliness    
+Spring is passing.    
+How swift it is    
+A cicada’s voice.    
 
