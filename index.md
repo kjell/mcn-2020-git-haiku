@@ -1,4 +1,4 @@
-Oh, tranquility!    
-he starts to grind the rice,    
-These dark hands of life    
+The rains of summer join together.    
+these heavy snow-flakes settling    
+Companion butterfly!    
 
