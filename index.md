@@ -1,4 +1,4 @@
-Temple bells die out.    
-stretching over Sado Island    
-Come to rest our necks    
+Lightning -    
+let us to the road again    
+Basho lines the moon    
 
