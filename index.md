@@ -1,4 +1,4 @@
-The summer grasses.    
-in dusky night    
-A butterfly floats and balances    
+Old dark sleepy pool    
+stretching over Sado Island    
+Moon-lighted mountains!    
 
