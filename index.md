@@ -1,4 +1,4 @@
-Oh, tranquility!    
-loneliness? Just one leaf    
-A butterfly floats and balances    
+The rains of summer join together.    
+dead leaves alone foregather    
+Cherry-blossoms    
 
