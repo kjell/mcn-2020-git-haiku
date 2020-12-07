@@ -1,4 +1,4 @@
-An old pond    
-above white    
-Companion butterfly!    
+In the sea-surf edge    
+here at your flowering grave    
+With tears.    
 
