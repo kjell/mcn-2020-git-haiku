@@ -1,4 +1,4 @@
-Here, where a thousand    
-How swift it is    
-It’s the Doll’s Festival.    
+White cloud of mist    
+mingling with bright small shells    
+from the kiri tree.    
 
