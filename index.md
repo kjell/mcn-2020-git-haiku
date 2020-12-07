@@ -1,4 +1,4 @@
-Temple bells die out.    
-There's no sign that can foretell    
-Contemptuous of frost    
+Ah me! I am one    
+I am off to bed - but ah!    
+Goes plop! Watersplash!    
 
