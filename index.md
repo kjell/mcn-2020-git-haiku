@@ -1,4 +1,4 @@
-Black cloudbank broken    
-then cry all birds and fishes    
-This autumn evening.    
+An old pond    
+above white    
+Companion butterfly!    
 
