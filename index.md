@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-thoughts come - and there is loneliness;    
-Like our tendrilled life    
+Too curious flower    
+Heron's cry    
+Stabs the darkness    
 
