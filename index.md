@@ -1,4 +1,4 @@
-White cloud of mist    
-All that remains    
-Marks only midnight yet    
+None is travelling    
+then cry all birds and fishes    
+Our hungry donkey    
 
