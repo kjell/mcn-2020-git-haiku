@@ -1,4 +1,4 @@
-Glorious the moon    
-How swift it is    
-Two white butterflies?    
+Silent the old town    
+stretching over Sado Island    
+Cherry-blossoms    
 
