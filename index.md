@@ -1,4 +1,4 @@
-Now in sad autumn    
-watching us pass, met death    
-Goes plop! Watersplash!    
+For a lovely bowl    
+There's no sign that can foretell    
+They meet, they mate    
 
