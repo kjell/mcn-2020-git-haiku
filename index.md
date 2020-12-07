@@ -1,4 +1,4 @@
-In the sea-surf edge    
-then cry all birds and fishes    
-Like our tendrilled life    
+The rains of summer join together.    
+he starts to grind the rice,    
+Bush-clover petals    
 
