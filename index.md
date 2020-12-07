@@ -1,4 +1,4 @@
-The rains of summer join together.    
-these heavy snow-flakes settling    
-Companion butterfly!    
+Temple bells die out.    
+There's no sign that can foretell    
+Contemptuous of frost    
 
