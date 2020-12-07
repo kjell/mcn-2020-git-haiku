@@ -1,4 +1,4 @@
-Mountain-rose petals    
-let us to the road again    
-On the temple porch    
+Lightning -    
+thoughts come - and there is loneliness;    
+A lovely sunset    
 
