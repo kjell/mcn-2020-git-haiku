@@ -1,4 +1,4 @@
-Lightning -    
-visit the ancestral grave    
-They meet, they mate    
+Spring is passing.    
+the scent of flowers floating    
+Darting dragon-fly!    
 
