@@ -1,4 +1,4 @@
-The first day of the year:    
-in dusky night    
-Of warriors’ dreams.    
+The summer grasses.    
+falling, falling, falling now    
+This autumn evening.    
 
