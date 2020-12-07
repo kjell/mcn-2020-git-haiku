@@ -1,4 +1,4 @@
-Lightning -    
-thoughts come - and there is loneliness;    
-A lovely sunset    
+The summer grasses.    
+in dusky night    
+A butterfly floats and balances    
 
