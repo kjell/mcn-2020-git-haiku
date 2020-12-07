@@ -1,4 +1,4 @@
-Temple bells die out.    
+Oh, tranquility!    
 loneliness? Just one leaf    
-With tears.    
+A butterfly floats and balances    
 
