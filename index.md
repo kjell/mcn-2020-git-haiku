@@ -1,4 +1,4 @@
-Lightning -    
-let us to the road again    
-Basho lines the moon    
+The summer grasses.    
+these brilliant-hued hibiscus    
+A butterfly floats and balances    
 
