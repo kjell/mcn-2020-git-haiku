@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-above white    
-Two white butterflies?    
+Lady butterfly    
+sky-reflecting violets    
+from the kiri tree.    
 
