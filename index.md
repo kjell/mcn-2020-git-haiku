@@ -1,4 +1,4 @@
-Ah me! I am one    
-I am off to bed - but ah!    
-Goes plop! Watersplash!    
+The rains of summer join together.    
+The fragrant blossoms remain.    
+Of dark loneliness    
 
