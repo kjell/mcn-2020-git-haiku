@@ -1,4 +1,4 @@
-In the twilight rain    
-How swift it is    
-Cold pale eyes pour tears    
+Temple bells die out.    
+these brilliant-hued hibiscus    
+Mogami River.    
 
