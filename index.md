@@ -1,4 +1,4 @@
 Here, where a thousand    
-watching us pass, met death    
-Splash!    
+How swift it is    
+It’s the Doll’s Festival.    
 
