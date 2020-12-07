@@ -1,4 +1,4 @@
-For a lovely bowl    
-All that remains    
-The autumn dusk is here.    
+In the sea-surf edge    
+then cry all birds and fishes    
+Like our tendrilled life    
 
