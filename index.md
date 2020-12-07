@@ -1,4 +1,4 @@
-Ah me! I am one    
-Here along this way but I,    
-Seasoned with petals    
+Dawn-shining mountains    
+thoughts come - and there is loneliness;    
+Like our tendrilled life    
 
