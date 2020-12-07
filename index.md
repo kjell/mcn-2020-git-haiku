@@ -1,4 +1,4 @@
-Black cloudbank broken    
-April's air stirs in willow-leaves    
-This autumn evening.    
+Cloud of cherry-bloom    
+spare my little buzzing friends    
+are darkened    
 
