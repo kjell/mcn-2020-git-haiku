@@ -1,4 +1,4 @@
-In the cicada's cry    
-Is also changed to another    
-Mountain-top jewels    
+The rains of summer join together.    
+these heavy snow-flakes settling    
+A butterfly floats and balances    
 
