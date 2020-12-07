@@ -1,4 +1,4 @@
-White cloud of mist    
-spare my little buzzing friends    
-Cherry-blossoms    
+The summer grasses.    
+soup, the salad, fish and all    
+Like our tendrilled life    
 
