@@ -1,4 +1,4 @@
-The summer grasses.    
-There's no sign that can foretell    
-Basho lines the moon    
+Temple bells die out.    
+just enough to bend the leaves    
+This autumn evening.    
 
