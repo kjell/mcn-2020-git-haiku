@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-stretching over Sado Island    
-Moon-lighted mountains!    
+Spring is passing.    
+captains swore grand conquest    
+A cicada’s voice.    
 
