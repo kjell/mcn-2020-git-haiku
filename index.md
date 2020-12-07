@@ -1,4 +1,4 @@
-Such utter silence!    
-Is also changed to another    
-Bearded, with bent canes    
+Dawn-shining mountains    
+mingling with bright small shells    
+These dark hands of life    
 
