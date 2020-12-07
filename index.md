@@ -1,4 +1,4 @@
-The rains of summer join together.    
-The fragrant blossoms remain.    
-Of dark loneliness    
+For a lovely bowl    
+then cry all birds and fishes    
+A water-jewel    
 
