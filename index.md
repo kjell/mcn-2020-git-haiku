@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-spare my little buzzing friends    
-are darkened    
+Must springtime fade?    
+Twilight whippoorwill, whistle on, sweet deepener    
+and gazes at the moon.    
 
