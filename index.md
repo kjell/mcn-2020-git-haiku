@@ -1,4 +1,4 @@
-None is travelling    
-then cry all birds and fishes    
-Our hungry donkey    
+In the cicada's cry    
+captains swore grand conquest    
+With tears.    
 
