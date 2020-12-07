@@ -1,4 +1,4 @@
-In the sea-surf edge    
-here at your flowering grave    
-With tears.    
+The first day of the year:    
+in dusky night    
+Of warriors’ dreams.    
 
