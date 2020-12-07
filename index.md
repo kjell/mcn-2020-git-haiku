@@ -1,4 +1,4 @@
-The rains of summer join together.    
-he starts to grind the rice,    
-Bush-clover petals    
+Temple bells die out.    
+loneliness? Just one leaf    
+With tears.    
 
