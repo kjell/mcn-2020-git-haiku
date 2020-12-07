@@ -1,4 +1,4 @@
-Silent the old town    
-stretching over Sado Island    
-Cherry-blossoms    
+Poverty's child -    
+in dusky night    
+But he's beautiful!    
 
