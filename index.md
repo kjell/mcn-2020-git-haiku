@@ -1,4 +1,4 @@
-Poverty's child -    
-in dusky night    
-But he's beautiful!    
+In the cicada's cry    
+thoughts come - and there is loneliness;    
+Two white butterflies?    
 
