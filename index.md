@@ -1,4 +1,4 @@
-Camellia-petal    
-All that remains    
-Two white butterflies?    
+In the twilight rain    
+How swift it is    
+Cold pale eyes pour tears    
 
