@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-Penetrating the very rock,    
-The Autumn wind.    
+White cloud of mist    
+All that remains    
+Marks only midnight yet    
 
