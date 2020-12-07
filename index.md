@@ -1,4 +1,4 @@
-See: surviving suns    
-quick unexpected frog    
-Over the orchid    
+In the cicada's cry    
+fell in silent dawn, spilling    
+Goes plop! Watersplash!    
 
