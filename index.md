@@ -1,4 +1,4 @@
-In the cicada's cry    
-thoughts come - and there is loneliness;    
+Now that eyes of hawks    
+above white    
 Two white butterflies?    
 
