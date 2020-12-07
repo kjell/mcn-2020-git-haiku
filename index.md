@@ -1,4 +1,4 @@
-Temple bells die out.    
-just enough to bend the leaves    
-This autumn evening.    
+Ah me! I am one    
+Here along this way but I,    
+Seasoned with petals    
 
