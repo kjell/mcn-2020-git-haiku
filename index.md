@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-loneliness? Just one leaf    
-Of dark loneliness    
+White cloud of mist    
+spare my little buzzing friends    
+Cherry-blossoms    
 
