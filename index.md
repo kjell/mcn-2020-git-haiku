@@ -1,4 +1,4 @@
-Spring is passing.    
-How swift it is    
-A cicada’s voice.    
+Now in sad autumn    
+watching us pass, met death    
+Goes plop! Watersplash!    
 
