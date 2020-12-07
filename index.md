@@ -1,4 +1,4 @@
-Here, where a thousand    
-to see the moon, whose solemn pace    
-Like our tendrilled life    
+Won't you come and see    
+above white    
+Splash!    
 
