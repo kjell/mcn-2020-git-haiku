@@ -1,4 +1,4 @@
-Temple bells die out.    
-these brilliant-hued hibiscus    
-Mogami River.    
+Glorious the moon    
+captains swore grand conquest    
+Goes plop! Watersplash!    
 
