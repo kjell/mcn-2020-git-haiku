@@ -1,4 +1,4 @@
-Spring is passing.    
-captains swore grand conquest    
-A cicada’s voice.    
+In the cicada's cry    
+Is also changed to another    
+Mountain-top jewels    
 
