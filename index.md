@@ -1,4 +1,4 @@
-None is travelling    
+A owner of the old thatched hut    
 tolling twilight bell; Temple    
-and gazes at the moon.    
+With tears.    
 
