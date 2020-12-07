@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-I am off to bed - but ah!    
-Splash!    
+Mountain-rose petals    
+let us to the road again    
+On the temple porch    
 
