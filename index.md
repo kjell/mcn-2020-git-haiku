@@ -1,4 +1,4 @@
-The summer grasses.    
-falling, falling, falling now    
-This autumn evening.    
+Camellia-petal    
+All that remains    
+Two white butterflies?    
 
