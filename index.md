@@ -1,4 +1,4 @@
-Glorious the moon    
-captains swore grand conquest    
-Goes plop! Watersplash!    
+Wake! The sky is light!    
+All that remains    
+Splash!    
 
