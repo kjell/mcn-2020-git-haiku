@@ -1,4 +1,4 @@
-Lightning -    
-thoughts come - and there is loneliness;    
-Over the orchid    
+A owner of the old thatched hut    
+I am off to bed - but ah!    
+Splash!    
 
