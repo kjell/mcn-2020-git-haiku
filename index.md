@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-from cold streamlets for the sea    
-A perfect evening!    
+Lightning -    
+visit the ancestral grave    
+They meet, they mate    
 
