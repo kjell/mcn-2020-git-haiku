@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-just enough to bend the leaves    
-Waterfall music    
+None is travelling    
+tolling twilight bell; Temple    
+and gazes at the moon.    
 
