@@ -1,4 +1,4 @@
-An old pond    
-in dusky night    
-Come to rest our necks    
+Now that eyes of hawks    
+fell in silent dawn, spilling    
+Of dark loneliness    
 
