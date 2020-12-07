@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-Is also changed to another    
-This autumn evening.    
+Won't you come and see    
+just enough to bend the leaves    
+Of dark loneliness    
 
