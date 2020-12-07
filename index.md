@@ -1,4 +1,4 @@
-In the cicada's cry    
-fell in silent dawn, spilling    
-Goes plop! Watersplash!    
+Cloud of cherry-bloom    
+just enough to bend the leaves    
+Waterfall music    
 
