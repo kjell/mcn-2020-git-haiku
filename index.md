@@ -1,4 +1,4 @@
-Won't you come and see    
-from cold streamlets for the sea    
-Or backyard love?    
+An old pond    
+in dusky night    
+Come to rest our necks    
 
