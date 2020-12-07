@@ -1,4 +1,4 @@
-Silent the old town    
-thoughts come - and there is loneliness;    
-This autumn evening.    
+For a lovely bowl    
+All that remains    
+The autumn dusk is here.    
 
