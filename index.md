@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-fell in silent dawn, spilling    
-Of dark loneliness    
+The summer grasses.    
+There's no sign that can foretell    
+Basho lines the moon    
 
