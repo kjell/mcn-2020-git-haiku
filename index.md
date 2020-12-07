@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-these heavy snow-flakes settling    
-A little woven cape    
+Oh, tranquility!    
+he starts to grind the rice,    
+These dark hands of life    
 
