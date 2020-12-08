@@ -1,4 +1,4 @@
-Poverty's child -    
-falling, falling, falling now    
-are darkened    
+Now that eyes of hawks    
+A frog jumps in -    
+Our hungry donkey    
 
