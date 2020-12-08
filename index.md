@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-in dusky night    
-Lilies on the rocks    
+Nine times arising    
+poor monkey, you too could use    
+from looking at the moon.    
 
