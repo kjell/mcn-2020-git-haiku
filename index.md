@@ -1,4 +1,4 @@
-Chirping of the quails    
-he starts to grind the rice,    
-Lilies on the rocks    
+Will we meet again    
+quick unexpected frog    
+Of dark loneliness    
 
