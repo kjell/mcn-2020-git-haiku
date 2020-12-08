@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-therefore our thanks dark clouds    
-Bush-clover petals    
+Oh, tranquility!    
+How swift it is    
+Among the flowers    
 
