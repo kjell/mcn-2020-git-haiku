@@ -1,4 +1,4 @@
-Too curious flower    
-thoughts come - and there is loneliness;    
-Silent clouds of stars    
+Nine times arising    
+and bring to men a chance to rest    
+Morning-glory gazing    
 
