@@ -1,4 +1,4 @@
-This snowy morning    
-in dusky night    
-Stabs the darkness    
+Dewdrop, let me cleanse    
+Here along this way but I,    
+A butterfly floats and balances    
 
