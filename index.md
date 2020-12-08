@@ -1,4 +1,4 @@
-The rains of summer join together.    
-The fragrant blossoms remain.    
-from looking at the moon.    
+Lightning -    
+then cry all birds and fishes    
+cherry-blossoms . . .    
 
