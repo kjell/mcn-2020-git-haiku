@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-The fragrant blossoms remain.    
-Moon-lighted mountains!    
+The summer grasses.    
+The birds cry, and the fishes’ eyes are     
+Ueno? Asakura?    
 
