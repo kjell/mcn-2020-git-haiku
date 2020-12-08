@@ -1,4 +1,4 @@
-Oh, tranquility!    
-How swift it is    
-The autumn dusk is here.    
+Bright red pepper-pod    
+mingling with bright small shells    
+Of warriors’ dreams.    
 
