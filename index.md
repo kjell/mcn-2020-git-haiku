@@ -1,4 +1,4 @@
-Won't you come and see    
-Here along this way but I,    
-Mogami River.    
+In the cicada's cry    
+loneliness? Just one leaf    
+A perfect evening!    
 
