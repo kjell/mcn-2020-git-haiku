@@ -1,4 +1,4 @@
-No oil to read by    
-thoughts come - and there is loneliness;    
-from looking at the moon.    
+Old dark sleepy pool    
+here at your flowering grave    
+Muffled by hot rocks    
 
