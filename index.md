@@ -1,4 +1,4 @@
-Poverty's child -    
-stretching over Sado Island    
-cherry-blossoms . . .    
+Oh, tranquility!    
+How swift it is    
+The autumn dusk is here.    
 
