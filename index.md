@@ -1,4 +1,4 @@
 Clouds come from time to time -    
-The birds cry, and the fishes’ eyes are     
-But he's beautiful!    
+the scent of flowers floating    
+the autumn dusk is here.    
 
