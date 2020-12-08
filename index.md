@@ -1,4 +1,4 @@
-This is the new line    
-The lips feel cold.    
-Or backyard love?    
+Bright red pepper-pod    
+above white    
+from the kiri tree.    
 
