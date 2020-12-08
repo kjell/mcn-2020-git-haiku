@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-quick unexpected frog    
-Of warriors’ dreams.    
+Spring is passing.    
+A frog jumps in -    
+Contemptuous of frost    
 
