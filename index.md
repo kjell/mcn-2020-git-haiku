@@ -1,4 +1,4 @@
-Must springtime fade?    
-therefore our thanks dark clouds    
-My moonlit pillow    
+A owner of the old thatched hut    
+I am off to bed - but ah!    
+and gazes at the moon.    
 
