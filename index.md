@@ -1,4 +1,4 @@
-Temple bells die out.    
-A frog jumps in -    
-Basho lines the moon    
+Under cherry-trees    
+just enough to bend the leaves    
+Of warriors’ dreams.    
 
