@@ -1,4 +1,4 @@
-White cloud of mist    
-mingling with bright small shells    
-from the kiri tree.    
+The rains of summer join together.    
+The fragrant blossoms remain.    
+from looking at the moon.    
 
