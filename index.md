@@ -1,4 +1,4 @@
-Glorious the moon    
-from cold streamlets for the sea    
-and gazes at the moon.    
+Camellia-petal    
+watching us pass, met death    
+Cold pale eyes pour tears    
 
