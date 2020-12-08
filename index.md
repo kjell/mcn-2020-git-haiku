@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-loneliness? Just one leaf    
-Of warriors’ dreams.    
+This snowy morning    
+in dusky night    
+Stabs the darkness    
 
