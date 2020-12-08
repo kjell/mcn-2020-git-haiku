@@ -1,4 +1,4 @@
-The rains of summer join together.    
-A frog jumps in -    
-and gazes at the moon.    
+A owner of the old thatched hut    
+oh voices of the wild ducks    
+Of warriors’ dreams.    
 
