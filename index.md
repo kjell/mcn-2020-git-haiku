@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-from cold streamlets for the sea    
-Moon-lighted mountains!    
+Clouds come from time to time -    
+quick unexpected frog    
+Of warriors’ dreams.    
 
