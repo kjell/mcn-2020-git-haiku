@@ -1,4 +1,4 @@
 If there were fragrance    
-Here along this way but I,    
-They meet, they mate    
+The birds cry, and the fishes’ eyes are     
+and gazes at the moon.    
 
