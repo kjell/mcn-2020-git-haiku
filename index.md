@@ -1,4 +1,4 @@
-No oil to read by    
-Is also changed to another    
-from looking at the moon.    
+First white snow of fall    
+these brilliant-hued hibiscus    
+Seasoned with petals    
 
