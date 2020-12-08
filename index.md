@@ -1,4 +1,4 @@
-Won't you come and see    
-How swift it is    
-And evening bell    
+This is the new line    
+The lips feel cold.    
+Or backyard love?    
 
