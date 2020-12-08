@@ -1,4 +1,4 @@
-White cloud of mist    
-stretching over Sado Island    
-Goes plop! Watersplash!    
+Black cloudbank broken    
+in dusky night    
+With tears.    
 
