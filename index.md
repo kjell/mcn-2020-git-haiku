@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-these brilliant-hued hibiscus    
-Waterfall music    
+The rains of summer join together.    
+twin butterflies until, twice white    
+from looking at the moon.    
 
