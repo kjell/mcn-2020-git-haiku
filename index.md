@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-mingling with bright small shells    
-Of warriors’ dreams.    
+Dewdrop, let me cleanse    
+The fragrant blossoms remain.    
+Moon-lighted mountains!    
 
