@@ -1,4 +1,4 @@
-Black cloudbank broken    
-in dusky night    
-With tears.    
+A owner of the old thatched hut    
+and bring to men a chance to rest    
+Murmuring Mogami    
 
