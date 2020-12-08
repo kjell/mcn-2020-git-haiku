@@ -1,4 +1,4 @@
-If there were fragrance    
-The birds cry, and the fishes’ eyes are     
-and gazes at the moon.    
+Dewdrop, let me cleanse    
+I am off to bed - but ah!    
+With tears.    
 
