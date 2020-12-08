@@ -1,4 +1,4 @@
-Now that eyes of hawks    
+Too curious flower    
 thoughts come - and there is loneliness;    
-the autumn dusk is here.    
+Silent clouds of stars    
 
