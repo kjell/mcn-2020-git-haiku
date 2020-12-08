@@ -1,4 +1,4 @@
-White cloud of mist    
-here at your flowering grave    
-This autumn evening.    
+Wake! The sky is light!    
+these brilliant-hued hibiscus    
+from looking at the moon.    
 
