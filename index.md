@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-The fragrant blossoms remain.    
-Seasoned with petals    
+Now that eyes of hawks    
+sky-reflecting violets    
+A cicada’s voice.    
 
