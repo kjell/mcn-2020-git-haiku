@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-these brilliant-hued hibiscus    
-from looking at the moon.    
+In the cicada's cry    
+scatters in the night; Now see    
+Bearded, with bent canes    
 
