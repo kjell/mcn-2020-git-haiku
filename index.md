@@ -1,4 +1,4 @@
-The summer grasses.    
-thoughts come - and there is loneliness;    
+Spring is passing.    
+above white    
 Stabs the darkness    
 
