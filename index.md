@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-here at your flowering grave    
-Muffled by hot rocks    
+Dry cheerful cricket    
+loneliness? Just one leaf    
+Of warriors’ dreams.    
 
