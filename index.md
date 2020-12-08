@@ -1,4 +1,4 @@
-Glorious the moon    
-How swift it is    
-Silent clouds of stars    
+A owner of the old thatched hut    
+fell in silent dawn, spilling    
+Of warriors’ dreams.    
 
