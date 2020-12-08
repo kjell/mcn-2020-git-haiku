@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-above white    
-from the kiri tree.    
+Must springtime fade?    
+therefore our thanks dark clouds    
+My moonlit pillow    
 
