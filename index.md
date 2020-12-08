@@ -1,4 +1,4 @@
-Will we meet again    
-quick unexpected frog    
-Of dark loneliness    
+Now that eyes of hawks    
+thoughts come - and there is loneliness;    
+the autumn dusk is here.    
 
