@@ -1,4 +1,4 @@
-Camellia-petal    
-watching us pass, met death    
-Cold pale eyes pour tears    
+Now the swinging bridge    
+perfumes her wings by floating    
+A perfect evening!    
 
