@@ -1,4 +1,4 @@
-The first day of the year:    
-chirping, keeps the autumn gay    
-Cherry-blossoms    
+Lightning -    
+to see the moon, whose solemn pace    
+Darting dragon-fly!    
 
