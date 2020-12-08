@@ -1,4 +1,4 @@
-Oh, tranquility!    
-How swift it is    
-Among the flowers    
+The rains of summer join together.    
+A frog jumps in -    
+and gazes at the moon.    
 
