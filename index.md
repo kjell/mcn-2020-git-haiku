@@ -1,4 +1,4 @@
-Lightning -    
-then cry all birds and fishes    
-cherry-blossoms . . .    
+Bright red pepper-pod    
+perfumes her wings by floating    
+Murmuring Mogami    
 
