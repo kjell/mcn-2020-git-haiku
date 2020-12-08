@@ -1,4 +1,4 @@
-Temple bells die out.    
-Penetrating the very rock,    
-From the kiri tree.    
+Clouds come from time to time -    
+The birds cry, and the fishes’ eyes are     
+But he's beautiful!    
 
