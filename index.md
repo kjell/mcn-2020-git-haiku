@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-I am off to bed - but ah!    
-and gazes at the moon.    
+Bright red pepper-pod    
+sky-reflecting violets    
+Goes plop! Watersplash!    
 
