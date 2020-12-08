@@ -1,4 +1,4 @@
-Here, where a thousand    
-above white    
-This autumn evening.    
+Poverty's child -    
+falling, falling, falling now    
+are darkened    
 
