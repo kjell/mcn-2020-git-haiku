@@ -1,4 +1,4 @@
-Under cherry-trees    
-just enough to bend the leaves    
-Of warriors’ dreams.    
+Wake! The sky is light!    
+poor monkey, you too could use    
+Mogami River.    
 
