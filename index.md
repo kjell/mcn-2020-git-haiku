@@ -1,4 +1,4 @@
-Mountain-rose petals    
-above white    
-It’s the Doll’s Festival.    
+Now the swinging bridge    
+Penetrating the very rock,    
+Bush-clover petals    
 
