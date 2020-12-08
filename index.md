@@ -1,4 +1,4 @@
-Will we meet again    
-in your brief sweet waters    
-How soon it must die.    
+None is travelling    
+as I take my darkening path    
+cherry-blossoms . . .    
 
