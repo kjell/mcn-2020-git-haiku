@@ -1,4 +1,4 @@
-Poverty's child -    
-The fragrant blossoms remain.    
-Our hungry donkey    
+Glorious the moon    
+How swift it is    
+Silent clouds of stars    
 
