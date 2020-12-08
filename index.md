@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-therefore our thanks dark clouds    
-The autumn dusk is here.    
+Here, where a thousand    
+above white    
+This autumn evening.    
 
