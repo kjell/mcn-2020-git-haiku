@@ -1,4 +1,4 @@
-Now the swinging bridge    
-Penetrating the very rock,    
-Bush-clover petals    
+Won't you come and see    
+Here along this way but I,    
+Mogami River.    
 
