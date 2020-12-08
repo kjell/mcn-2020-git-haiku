@@ -1,4 +1,4 @@
-Spring is passing.    
-mingling with bright small shells    
-Goes plop! Watersplash!    
+The summer grasses.    
+thoughts come - and there is loneliness;    
+Stabs the darkness    
 
