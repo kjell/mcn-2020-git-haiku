@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-and bring to men a chance to rest    
-Murmuring Mogami    
+White cloud of mist    
+here at your flowering grave    
+This autumn evening.    
 
