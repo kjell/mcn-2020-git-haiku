@@ -1,4 +1,4 @@
-Spring is passing.    
-above white    
-Stabs the darkness    
+An old pond    
+All that remains    
+On the temple porch    
 
