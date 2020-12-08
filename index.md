@@ -1,4 +1,4 @@
-Spring is passing.    
-A frog jumps in -    
-Contemptuous of frost    
+Will we meet again    
+in your brief sweet waters    
+How soon it must die.    
 
