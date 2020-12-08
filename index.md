@@ -1,4 +1,4 @@
-The first day of the year:    
-spare my little buzzing friends    
-Mogami River.    
+White cloud of mist    
+stretching over Sado Island    
+Goes plop! Watersplash!    
 
