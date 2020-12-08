@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-the scent of flowers floating    
-the autumn dusk is here.    
+Chirping of the quails    
+he starts to grind the rice,    
+Lilies on the rocks    
 
