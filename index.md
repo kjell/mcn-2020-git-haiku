@@ -1,4 +1,4 @@
-This snowy morning    
-Is also changed to another    
-Mogami River.    
+Lightning -    
+A frog jumps in -    
+from the kiri tree.    
 
