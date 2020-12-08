@@ -1,4 +1,4 @@
-Cold first winter rain    
-Is also changed to another    
-Of dark loneliness    
+Temple bells die out.    
+A frog jumps in -    
+Basho lines the moon    
 
