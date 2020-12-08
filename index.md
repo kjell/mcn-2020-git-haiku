@@ -1,4 +1,4 @@
-Will we meet again    
-All that remains    
-Lilies on the rocks    
+No oil to read by    
+thoughts come - and there is loneliness;    
+from looking at the moon.    
 
