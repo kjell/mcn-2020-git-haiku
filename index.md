@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-poor monkey, you too could use    
-Mogami River.    
+If there were fragrance    
+Here along this way but I,    
+They meet, they mate    
 
