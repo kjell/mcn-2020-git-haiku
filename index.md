@@ -1,4 +1,4 @@
-Now the swinging bridge    
-perfumes her wings by floating    
-A perfect evening!    
+Poverty's child -    
+The fragrant blossoms remain.    
+Our hungry donkey    
 
