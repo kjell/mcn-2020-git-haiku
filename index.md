@@ -1,4 +1,4 @@
-The rains of summer join together.    
-twin butterflies until, twice white    
-from looking at the moon.    
+Temple bells die out.    
+Penetrating the very rock,    
+From the kiri tree.    
 
