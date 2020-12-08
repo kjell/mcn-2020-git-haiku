@@ -1,4 +1,4 @@
 The sea darkening    
-from cold streamlets for the sea    
-Or backyard love?    
+these heavy snow-flakes settling    
+and gazes at the moon.    
 
