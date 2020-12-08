@@ -1,4 +1,4 @@
-In the cicada's cry    
-scatters in the night; Now see    
-Bearded, with bent canes    
+Mountain-rose petals    
+above white    
+It’s the Doll’s Festival.    
 
