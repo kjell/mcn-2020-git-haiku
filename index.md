@@ -1,4 +1,4 @@
-Ballet in the air    
-fell in silent dawn, spilling    
-and gazes at the moon.    
+The first day of the year:    
+chirping, keeps the autumn gay    
+Cherry-blossoms    
 
