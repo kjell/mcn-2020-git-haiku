@@ -1,4 +1,4 @@
-None is travelling    
-as I take my darkening path    
+Poverty's child -    
+stretching over Sado Island    
 cherry-blossoms . . .    
 
