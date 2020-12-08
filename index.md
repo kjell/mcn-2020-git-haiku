@@ -1,4 +1,4 @@
-Lightning -    
-A frog jumps in -    
-from the kiri tree.    
+No oil to read by    
+Is also changed to another    
+from looking at the moon.    
 
