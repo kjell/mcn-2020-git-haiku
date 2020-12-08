@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-fell in silent dawn, spilling    
-Of warriors’ dreams.    
+Will we meet again    
+All that remains    
+Lilies on the rocks    
 
