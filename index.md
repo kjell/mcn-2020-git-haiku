@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-perfumes her wings by floating    
-Murmuring Mogami    
+Won't you come and see    
+How swift it is    
+And evening bell    
 
