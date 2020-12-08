@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-sky-reflecting violets    
-A cicada’s voice.    
+Dewdrop, let me cleanse    
+from cold streamlets for the sea    
+Moon-lighted mountains!    
 
