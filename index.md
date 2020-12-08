@@ -1,4 +1,4 @@
-The first day of the year:    
-then cry all birds and fishes    
-My moonlit pillow    
+The sea darkening    
+from cold streamlets for the sea    
+Or backyard love?    
 
