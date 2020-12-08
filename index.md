@@ -1,4 +1,4 @@
-The summer grasses.    
-The birds cry, and the fishes’ eyes are     
-Ueno? Asakura?    
+Cold first winter rain    
+he starts to grind the rice,    
+Our hungry donkey    
 
