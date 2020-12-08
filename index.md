@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-I am off to bed - but ah!    
-With tears.    
+Dry cheerful cricket    
+in dusky night    
+Lilies on the rocks    
 
