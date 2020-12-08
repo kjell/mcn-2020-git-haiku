@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-oh voices of the wild ducks    
-Of warriors’ dreams.    
+The first day of the year:    
+spare my little buzzing friends    
+Mogami River.    
 
