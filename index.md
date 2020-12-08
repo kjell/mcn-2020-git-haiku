@@ -1,4 +1,4 @@
-First white snow of fall    
-these brilliant-hued hibiscus    
+Dewdrop, let me cleanse    
+The fragrant blossoms remain.    
 Seasoned with petals    
 
