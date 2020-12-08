@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-Here along this way but I,    
-A butterfly floats and balances    
+Ballet in the air    
+fell in silent dawn, spilling    
+and gazes at the moon.    
 
