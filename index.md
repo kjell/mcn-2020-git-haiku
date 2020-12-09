@@ -1,4 +1,4 @@
-Silent the old town    
-There's no sign that can foretell    
-and gazes at the moon.    
+Lightning -    
+The lips feel cold.    
+A perfect evening!    
 
