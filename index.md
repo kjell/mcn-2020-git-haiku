@@ -1,4 +1,4 @@
-An old pond    
-is quieted with creepers    
-Darting dragon-fly!    
+This snowy morning    
+and bring to men a chance to rest    
+Morning-glory gazing    
 
