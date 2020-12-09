@@ -1,4 +1,4 @@
-Here, where a thousand    
-above white    
-Of faded daffodils    
+Now in sad autumn    
+The lips feel cold.    
+A butterfly floats and balances    
 
