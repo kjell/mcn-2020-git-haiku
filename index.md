@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-dead leaves alone foregather    
-and gazes at the moon.    
+The summer grasses.    
+in dusky night    
+Over the orchid    
 
