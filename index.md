@@ -1,4 +1,4 @@
-Silent the old town    
-then cry all birds and fishes    
-Contemptuous of frost    
+Now that eyes of hawks    
+loneliness? Just one leaf    
+With tears.    
 
