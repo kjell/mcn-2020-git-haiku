@@ -1,4 +1,4 @@
-Will we meet again    
-starving for fat fish or mice    
-Silent clouds of stars    
+Temple bells die out.    
+and bring to men a chance to rest    
+Mogami River.    
 
