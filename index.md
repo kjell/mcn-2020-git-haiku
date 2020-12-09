@@ -1,4 +1,4 @@
-Spring is passing.    
-Here along this way but I,    
-A solitary bird    
+Poverty's child -    
+Penetrating the very rock,    
+My moonlit pillow    
 
