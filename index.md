@@ -1,4 +1,4 @@
-Spring is passing.    
-April's air stirs in willow-leaves    
-Goes plop! Watersplash!    
+Here, where a thousand    
+from cold streamlets for the sea    
+With tears.    
 
