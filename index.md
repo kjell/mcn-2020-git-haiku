@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-in dusky night    
-from looking at the moon.    
+Wake! The sky is light!    
+sky-reflecting violets    
+And evening bell    
 
