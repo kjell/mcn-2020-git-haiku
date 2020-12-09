@@ -1,4 +1,4 @@
-Won't you come and see    
-perfumes her wings by floating    
-A cicada’s voice.    
+Such utter silence!    
+he starts to grind the rice,    
+Cherry-blossoms    
 
