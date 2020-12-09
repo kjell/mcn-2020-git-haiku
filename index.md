@@ -1,4 +1,4 @@
-The first day of the year:    
-chirping, keeps the autumn gay    
-Companion butterfly!    
+The summer grasses.    
+Is also changed to another    
+and gazes at the moon.    
 
