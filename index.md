@@ -1,4 +1,4 @@
-Nine times arising    
-visit the ancestral grave    
-Like our tendrilled life    
+Glorious the moon    
+spare my little buzzing friends    
+This autumn evening.    
 
