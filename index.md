@@ -1,4 +1,4 @@
-Lightning -    
-The lips feel cold.    
+The first day of the year:    
+as I take my darkening path    
 A perfect evening!    
 
