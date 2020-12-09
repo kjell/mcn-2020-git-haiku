@@ -1,4 +1,4 @@
-None is travelling    
-How swift it is    
-Of dark loneliness    
+Ah me! I am one    
+quick unexpected frog    
+From the kiri tree.    
 
