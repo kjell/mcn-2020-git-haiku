@@ -1,4 +1,4 @@
-Ah me! I am one    
-quick unexpected frog    
-From the kiri tree.    
+No oil to read by    
+A frog jumps in -    
+Of dark loneliness    
 
