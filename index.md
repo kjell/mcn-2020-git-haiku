@@ -1,4 +1,4 @@
-Here, where a thousand    
-from cold streamlets for the sea    
-A water-jewel    
+Dewdrop, let me cleanse    
+Is also changed to another    
+Waterfall music    
 
