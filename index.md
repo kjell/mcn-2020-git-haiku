@@ -1,4 +1,4 @@
-Poverty's child -    
-quick unexpected frog    
-Since there is no rice    
+For a lovely bowl    
+and bring to men a chance to rest    
+The autumn dusk is here.    
 
