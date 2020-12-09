@@ -1,4 +1,4 @@
-For a lovely bowl    
-and bring to men a chance to rest    
-The autumn dusk is here.    
+Swallow in the dusk    
+from cold streamlets for the sea    
+Cherry-blossoms    
 
