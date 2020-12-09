@@ -1,4 +1,4 @@
-Mountain-rose petals    
-There's no sign that can foretell    
-are darkened    
+In the twilight rain    
+even the crickets' singing    
+Of dark loneliness    
 
