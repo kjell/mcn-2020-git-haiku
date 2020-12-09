@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-The birds cry, and the fishes’ eyes are     
-It’s the Doll’s Festival.    
+White cloud of mist    
+Twilight whippoorwill, whistle on, sweet deepener    
+A butterfly floats and balances    
 
