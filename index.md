@@ -1,4 +1,4 @@
-None is travelling    
-Penetrating the very rock,    
-Of dark loneliness    
+Black cloudbank broken    
+The fragrant blossoms remain.    
+and gazes at the moon.    
 
