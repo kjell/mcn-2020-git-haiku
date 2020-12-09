@@ -1,4 +1,4 @@
-None is travelling    
-twin butterflies until, twice white    
-The Autumn wind.    
+Black cloudbank broken    
+soup, the salad, fish and all    
+And evening bell    
 
