@@ -1,4 +1,4 @@
-Now in sad autumn    
-The lips feel cold.    
-A butterfly floats and balances    
+Dewdrop, let me cleanse    
+The birds cry, and the fishes’ eyes are     
+It’s the Doll’s Festival.    
 
