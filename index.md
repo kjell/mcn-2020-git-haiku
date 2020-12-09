@@ -1,4 +1,4 @@
-Poverty's child -    
-The fragrant blossoms remain.    
-are darkened    
+White cloud of mist    
+poor monkey, you too could use    
+Of warriors’ dreams.    
 
