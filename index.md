@@ -1,4 +1,4 @@
-Lightning -    
-as I take my darkening path    
-Or backyard love?    
+An old pond    
+Penetrating the very rock,    
+This autumn evening.    
 
