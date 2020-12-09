@@ -1,4 +1,4 @@
-Now the swinging bridge    
-loneliness? Just one leaf    
-On the temple porch    
+None is travelling    
+above white    
+A perfect evening!    
 
