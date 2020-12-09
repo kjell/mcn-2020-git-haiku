@@ -1,4 +1,4 @@
-Under cherry-trees    
-above white    
-This autumn evening.    
+When you say something,    
+here at your flowering grave    
+Marks only midnight yet    
 
