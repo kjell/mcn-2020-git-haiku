@@ -1,4 +1,4 @@
-The summer grasses.    
-these brilliant-hued hibiscus    
-A cicada’s voice.    
+Ah me! I am one    
+fell in silent dawn, spilling    
+Goes plop! Watersplash!    
 
