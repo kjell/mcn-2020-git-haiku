@@ -1,4 +1,4 @@
-Ah me! I am one    
-fell in silent dawn, spilling    
-Goes plop! Watersplash!    
+Nine times arising    
+visit the ancestral grave    
+Like our tendrilled life    
 
