@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-Penetrating the very rock,    
-The autumn dusk is here.    
+Lightning -    
+visit the ancestral grave    
+Companion butterfly!    
 
