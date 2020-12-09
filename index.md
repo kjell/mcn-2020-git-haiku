@@ -1,4 +1,4 @@
-In the twilight rain    
-even the crickets' singing    
-Of dark loneliness    
+Ah me! I am one    
+I am off to bed - but ah!    
+It’s the Doll’s Festival.    
 
