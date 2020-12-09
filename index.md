@@ -1,4 +1,4 @@
-None is travelling    
-loneliness? Just one leaf    
-cherry-blossoms . . .    
+Poverty's child -    
+quick unexpected frog    
+Since there is no rice    
 
