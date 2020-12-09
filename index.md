@@ -1,4 +1,4 @@
-No oil to read by    
-A frog jumps in -    
-Of dark loneliness    
+Will we meet again    
+starving for fat fish or mice    
+Silent clouds of stars    
 
