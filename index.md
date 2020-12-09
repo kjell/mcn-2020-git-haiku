@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-visit the ancestral grave    
-Mountain-top jewels    
+The rains of summer join together.    
+twin butterflies until, twice white    
+the autumn dusk is here.    
 
