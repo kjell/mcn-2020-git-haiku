@@ -1,4 +1,4 @@
-White cloud of mist    
-let us arrange these flowers    
-A water-jewel    
+Lady butterfly    
+Here along this way but I,    
+A solitary bird    
 
