@@ -1,4 +1,4 @@
-In the twilight rain    
-thoughts come - and there is loneliness;    
-Basho lines the moon    
+Here, where a thousand    
+above white    
+Of faded daffodils    
 
