@@ -1,4 +1,4 @@
-An old pond    
-chirping, keeps the autumn gay    
-Mogami River.    
+Dry cheerful cricket    
+oh voices of the wild ducks    
+Of warriors’ dreams.    
 
