@@ -1,4 +1,4 @@
-Now in sad autumn    
-poor monkey, you too could use    
-Or backyard love?    
+No oil to read by    
+watching us pass, met death    
+The autumn dusk is here.    
 
