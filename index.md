@@ -1,4 +1,4 @@
-None is travelling    
-above white    
-A perfect evening!    
+No oil to read by    
+spare my little buzzing friends    
+The Autumn wind.    
 
