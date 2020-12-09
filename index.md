@@ -1,4 +1,4 @@
-White cloud of mist    
-Twilight whippoorwill, whistle on, sweet deepener    
-A butterfly floats and balances    
+Now in sad autumn    
+poor monkey, you too could use    
+Or backyard love?    
 
