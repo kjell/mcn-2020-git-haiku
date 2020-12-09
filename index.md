@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-oh voices of the wild ducks    
-Of warriors’ dreams.    
+The summer grasses.    
+All that remains    
+Tall grass their monument    
 
