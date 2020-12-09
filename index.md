@@ -1,4 +1,4 @@
-The first day of the year:    
-as I take my darkening path    
-A perfect evening!    
+The rains of summer join together.    
+twin butterflies until, twice white    
+Of warriors’ dreams.    
 
