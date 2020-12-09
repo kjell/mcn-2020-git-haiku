@@ -1,4 +1,4 @@
 In the twilight rain    
-Is also changed to another    
-Among the flowers    
+thoughts come - and there is loneliness;    
+Basho lines the moon    
 
