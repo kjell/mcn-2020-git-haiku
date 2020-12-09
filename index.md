@@ -1,4 +1,4 @@
-The sea darkening    
-these heavy snow-flakes settling    
-and gazes at the moon.    
+Bright red pepper-pod    
+in dusky night    
+from looking at the moon.    
 
