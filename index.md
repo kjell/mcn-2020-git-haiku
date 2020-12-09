@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-The birds cry, and the fishes’ eyes are     
-Two white butterflies?    
+The first day of the year:    
+chirping, keeps the autumn gay    
+Companion butterfly!    
 
