@@ -1,4 +1,4 @@
-White cloud of mist    
-therefore our thanks dark clouds    
-Stabs the darkness    
+An old pond    
+chirping, keeps the autumn gay    
+Mogami River.    
 
