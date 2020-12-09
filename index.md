@@ -1,4 +1,4 @@
-The summer grasses.    
-in dusky night    
-Over the orchid    
+In the cicada's cry    
+How swift it is    
+Mountain-top jewels    
 
