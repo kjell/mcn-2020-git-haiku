@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-sky-reflecting violets    
-And evening bell    
+This is the new line    
+starving for fat fish or mice    
+Of faded daffodils    
 
