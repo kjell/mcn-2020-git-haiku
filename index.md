@@ -1,4 +1,4 @@
-First white snow of fall    
-falling, falling, falling now    
-From the kiri tree.    
+Poverty's child -    
+The fragrant blossoms remain.    
+are darkened    
 
