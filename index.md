@@ -1,4 +1,4 @@
-When you say something,    
-here at your flowering grave    
-Marks only midnight yet    
+Spring is passing.    
+A frog jumps in -    
+Ueno? Asakura?    
 
