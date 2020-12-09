@@ -1,4 +1,4 @@
-Temple bells die out.    
-and bring to men a chance to rest    
-Mogami River.    
+White cloud of mist    
+therefore our thanks dark clouds    
+Stabs the darkness    
 
