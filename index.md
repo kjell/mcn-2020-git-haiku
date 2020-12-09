@@ -1,4 +1,4 @@
-Lightning -    
-visit the ancestral grave    
-Companion butterfly!    
+Now the swinging bridge    
+loneliness? Just one leaf    
+On the temple porch    
 
