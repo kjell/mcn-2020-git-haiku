@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-loneliness? Just one leaf    
-With tears.    
+Won't you come and see    
+perfumes her wings by floating    
+A cicada’s voice.    
 
