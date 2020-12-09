@@ -1,4 +1,4 @@
-An old pond    
-Penetrating the very rock,    
-This autumn evening.    
+Now that eyes of hawks    
+even the crickets' singing    
+Silent clouds of stars    
 
