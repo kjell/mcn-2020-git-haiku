@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-even the crickets' singing    
-Silent clouds of stars    
+First white snow of fall    
+The lips feel cold.    
+A solitary bird    
 
