@@ -1,4 +1,4 @@
-White cloud of mist    
-poor monkey, you too could use    
-Of warriors’ dreams.    
+Here, where a thousand    
+just enough to bend the leaves    
+are darkened    
 
