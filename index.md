@@ -1,4 +1,4 @@
 The rains of summer join together.    
-twin butterflies until, twice white    
-the autumn dusk is here.    
+starving for fat fish or mice    
+Basho lines the moon    
 
