@@ -1,4 +1,4 @@
-Lady butterfly    
-twin butterflies until, twice white    
-The Autumn wind.    
+Now the swinging bridge    
+spare my little buzzing friends    
+Darting dragon-fly!    
 
