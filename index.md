@@ -1,4 +1,4 @@
-Swallow in the dusk    
-from cold streamlets for the sea    
-Cherry-blossoms    
+Lady butterfly    
+twin butterflies until, twice white    
+The Autumn wind.    
 
