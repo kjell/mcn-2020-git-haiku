@@ -1,4 +1,4 @@
-Glorious the moon    
-spare my little buzzing friends    
-This autumn evening.    
+An old pond    
+soup, the salad, fish and all    
+Mogami River.    
 
