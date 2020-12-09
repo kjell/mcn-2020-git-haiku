@@ -1,4 +1,4 @@
-When you say something,    
-The fragrant blossoms remain.    
-This autumn evening.    
+None is travelling    
+How swift it is    
+Of dark loneliness    
 
