@@ -1,4 +1,4 @@
-Lady butterfly    
-Here along this way but I,    
-A solitary bird    
+Dawn-shining mountains    
+The birds cry, and the fishes’ eyes are     
+Two white butterflies?    
 
