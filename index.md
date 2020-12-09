@@ -1,4 +1,4 @@
-Such utter silence!    
-he starts to grind the rice,    
-Cherry-blossoms    
+Under cherry-trees    
+above white    
+This autumn evening.    
 
