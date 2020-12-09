@@ -1,4 +1,4 @@
-Black cloudbank broken    
-The fragrant blossoms remain.    
-and gazes at the moon.    
+Mountain-rose petals    
+There's no sign that can foretell    
+are darkened    
 
