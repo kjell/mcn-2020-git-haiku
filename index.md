@@ -1,4 +1,4 @@
-This snowy morning    
-and bring to men a chance to rest    
-Morning-glory gazing    
+First white snow of fall    
+falling, falling, falling now    
+From the kiri tree.    
 
