@@ -1,4 +1,4 @@
-Now the swinging bridge    
-spare my little buzzing friends    
-Darting dragon-fly!    
+In the twilight rain    
+Is also changed to another    
+Among the flowers    
 
