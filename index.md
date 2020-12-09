@@ -1,4 +1,4 @@
-No oil to read by    
-spare my little buzzing friends    
-The Autumn wind.    
+Here, where a thousand    
+from cold streamlets for the sea    
+A water-jewel    
 
