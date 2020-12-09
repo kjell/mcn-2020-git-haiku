@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-Is also changed to another    
-Waterfall music    
+Temple bells die out.    
+let us arrange these flowers    
+Marks only midnight yet    
 
