@@ -1,4 +1,4 @@
-No oil to read by    
-watching us pass, met death    
-The autumn dusk is here.    
+Old dark sleepy pool    
+visit the ancestral grave    
+Mountain-top jewels    
 
