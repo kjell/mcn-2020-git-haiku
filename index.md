@@ -1,4 +1,4 @@
-Black cloudbank broken    
-soup, the salad, fish and all    
-And evening bell    
+None is travelling    
+Penetrating the very rock,    
+Of dark loneliness    
 
