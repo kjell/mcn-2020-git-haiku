@@ -1,4 +1,4 @@
-In the cicada's cry    
-How swift it is    
-Mountain-top jewels    
+Cold first winter rain    
+starving for fat fish or mice    
+Of faded daffodils    
 
