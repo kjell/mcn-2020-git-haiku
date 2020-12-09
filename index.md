@@ -1,4 +1,4 @@
-The rains of summer join together.    
-starving for fat fish or mice    
-Basho lines the moon    
+None is travelling    
+twin butterflies until, twice white    
+The Autumn wind.    
 
