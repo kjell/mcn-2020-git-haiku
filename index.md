@@ -1,4 +1,4 @@
-An old pond    
-soup, the salad, fish and all    
-Mogami River.    
+Lightning -    
+as I take my darkening path    
+Or backyard love?    
 
