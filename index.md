@@ -1,4 +1,4 @@
-Here, where a thousand    
-from cold streamlets for the sea    
-With tears.    
+Spring is passing.    
+Here along this way but I,    
+A solitary bird    
 
