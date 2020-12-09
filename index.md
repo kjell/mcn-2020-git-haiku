@@ -1,4 +1,4 @@
-First white snow of fall    
-The lips feel cold.    
-A solitary bird    
+Ballet in the air    
+There's no sign that can foretell    
+My moonlit pillow    
 
