@@ -1,4 +1,4 @@
-Camellia-petal    
-perfumes her wings by floating    
-These dark hands of life    
+Poverty's child -    
+Is also changed to another    
+My moonlit pillow    
 
