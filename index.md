@@ -1,4 +1,4 @@
-The first day of the year:    
-and bring to men a chance to rest    
-Mountain-top jewels    
+Won't you come and see    
+therefore our thanks dark clouds    
+Basho lines the moon    
 
