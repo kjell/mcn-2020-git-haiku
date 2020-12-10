@@ -1,4 +1,4 @@
-Oh, tranquility!    
-perfumes her wings by floating    
-A perfect evening!    
+Lightning -    
+Is also changed to another    
+Tall grass their monument    
 
