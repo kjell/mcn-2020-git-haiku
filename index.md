@@ -1,4 +1,4 @@
-Swallow in the dusk    
-loneliness? Just one leaf    
-Contemptuous of frost    
+First white snow of fall    
+let us to the road again    
+from looking at the moon.    
 
