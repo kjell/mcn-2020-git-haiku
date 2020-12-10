@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-Penetrating the very rock,    
-The autumn dusk is here.    
+Dry cheerful cricket    
+that black crow I hate so much    
+A perfect evening!    
 
