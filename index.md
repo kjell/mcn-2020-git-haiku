@@ -1,4 +1,4 @@
-Carven gods long gone    
-who spends his little breakfast    
-Or backyard love?    
+Such utter silence!    
+poor monkey, you too could use    
+A perfect evening!    
 
