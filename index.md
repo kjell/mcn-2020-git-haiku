@@ -1,4 +1,4 @@
-Lightning -    
-Is also changed to another    
-Tall grass their monument    
+Wake! The sky is light!    
+Penetrating the very rock,    
+The autumn dusk is here.    
 
