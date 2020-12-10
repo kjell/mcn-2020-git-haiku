@@ -1,4 +1,4 @@
-Ah me! I am one    
-therefore our thanks dark clouds    
-and gazes at the moon.    
+The first day of the year:    
+thoughts come - and there is loneliness;    
+Stabs the darkness    
 
