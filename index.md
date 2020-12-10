@@ -1,4 +1,4 @@
-Camellia-petal    
-Line that won't be deleted    
-Over the orchid    
+Oh, tranquility!    
+visit the ancestral grave    
+And evening bell    
 
