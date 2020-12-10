@@ -1,4 +1,4 @@
-Poverty's child -    
-How swift it is    
-Among the flowers    
+Lightning -    
+The lips feel cold.    
+Basho lines the moon    
 
