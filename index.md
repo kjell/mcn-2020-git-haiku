@@ -1,4 +1,4 @@
-None is travelling    
-scatters in the night; Now see    
-A solitary bird    
+Cold first winter rain    
+dead leaves alone foregather    
+Silent clouds of stars    
 
