@@ -1,4 +1,4 @@
-If there were fragrance    
-starving for fat fish or mice    
-A solitary bird    
+The river gathering may rains    
+All that remains    
+Muffled by hot rocks    
 
