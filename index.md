@@ -1,4 +1,4 @@
-Won't you come and see    
-captains swore grand conquest    
-Cold pale eyes pour tears    
+A owner of the old thatched hut    
+mingling with bright small shells    
+On the temple porch    
 
