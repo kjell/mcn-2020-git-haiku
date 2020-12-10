@@ -1,4 +1,4 @@
-The summer grasses.    
-poor monkey, you too could use    
-A perfect evening!    
+Lightning -    
+visit the ancestral grave    
+Contemptuous of frost    
 
