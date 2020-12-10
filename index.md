@@ -1,4 +1,4 @@
-Silent the old town    
-The birds cry, and the fishes’ eyes are     
-A cicada’s voice.    
+Camellia-petal    
+All that remains    
+and gazes at the moon.    
 
