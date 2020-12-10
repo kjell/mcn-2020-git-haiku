@@ -1,4 +1,4 @@
-Lightning -    
-that black crow I hate so much    
-and gazes at the moon.    
+If there were fragrance    
+starving for fat fish or mice    
+A solitary bird    
 
