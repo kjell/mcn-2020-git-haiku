@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-quick unexpected frog    
-Silent clouds of stars    
+Black cloudbank broken    
+just enough to bend the leaves    
+These dark hands of life    
 
