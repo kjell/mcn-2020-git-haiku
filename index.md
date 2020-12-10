@@ -1,4 +1,4 @@
 Won't you come and see    
-I am off to bed - but ah!    
-With tears.    
+captains swore grand conquest    
+Cold pale eyes pour tears    
 
