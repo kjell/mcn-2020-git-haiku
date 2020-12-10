@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-tolling twilight bell; Temple    
-the autumn dusk is here.    
+Dewdrop, let me cleanse    
+How swift it is    
+are darkened    
 
