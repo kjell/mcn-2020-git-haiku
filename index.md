@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-that black crow I hate so much    
-A perfect evening!    
+Oh, tranquility!    
+he starts to grind the rice,    
+From the kiri tree.    
 
