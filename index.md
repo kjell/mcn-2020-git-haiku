@@ -1,4 +1,4 @@
-Lady butterfly    
+Poverty's child -    
 How swift it is    
-Silent clouds of stars    
+Among the flowers    
 
