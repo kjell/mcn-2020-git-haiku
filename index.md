@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-as I take my darkening path    
+Black cloudbank broken    
+oh voices of the wild ducks    
 How soon it must die.    
 
