@@ -1,4 +1,4 @@
-White cloud of mist    
-in your brief sweet waters    
-A cicada’s voice.    
+The rains of summer join together.    
+these heavy snow-flakes settling    
+And evening bell    
 
