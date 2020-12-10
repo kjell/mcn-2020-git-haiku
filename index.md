@@ -1,4 +1,4 @@
-Won't you come and see    
-therefore our thanks dark clouds    
-Basho lines the moon    
+White cloud of mist    
+in your brief sweet waters    
+A cicada’s voice.    
 
