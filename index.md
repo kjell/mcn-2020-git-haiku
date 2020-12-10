@@ -1,4 +1,4 @@
-Chirping of the quails    
-let us arrange these flowers    
-Over the orchid    
+None is travelling    
+Heron's cry    
+Muffled by hot rocks    
 
