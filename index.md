@@ -1,4 +1,4 @@
-Now the swinging bridge    
-The birds cry, and the fishes’ eyes are     
-But he's beautiful!    
+Black cloudbank broken    
+Is also changed to another    
+Darting dragon-fly!    
 
