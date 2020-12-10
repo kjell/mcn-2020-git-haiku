@@ -1,4 +1,4 @@
-Oh, tranquility!    
-Is also changed to another    
-Like our tendrilled life    
+Lady butterfly    
+How swift it is    
+Silent clouds of stars    
 
