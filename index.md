@@ -1,4 +1,4 @@
-Seek on high bare trails    
-Line that won't be deleted    
-Moon-lighted mountains!    
+The river gathering may rains    
+in dusky night    
+The autumn dusk is here.    
 
