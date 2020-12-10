@@ -1,4 +1,4 @@
-Lightning -    
-visit the ancestral grave    
-Contemptuous of frost    
+Ah me! I am one    
+therefore our thanks dark clouds    
+and gazes at the moon.    
 
