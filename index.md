@@ -1,4 +1,4 @@
-Will we meet again    
-Is also changed to another    
-Murmuring Mogami    
+Dawn-shining mountains    
+the scent of flowers floating    
+Stabs the darkness    
 
