@@ -1,4 +1,4 @@
-Temple bells die out.    
-let us arrange these flowers    
-Marks only midnight yet    
+Camellia-petal    
+falling, falling, falling now    
+from the kiri tree.    
 
