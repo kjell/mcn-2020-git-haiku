@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-mingling with bright small shells    
-On the temple porch    
+In the cicada's cry    
+to see the moon, whose solemn pace    
+Our hungry donkey    
 
