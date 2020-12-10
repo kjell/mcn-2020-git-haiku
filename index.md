@@ -1,4 +1,4 @@
-Temple bells die out.    
-falling, falling, falling now    
-Ueno? Asakura?    
+Will we meet again    
+Is also changed to another    
+Murmuring Mogami    
 
