@@ -1,4 +1,4 @@
-The summer grasses.    
-chirping, keeps the autumn gay    
-Darting dragon-fly!    
+Won't you come and see    
+I am off to bed - but ah!    
+With tears.    
 
