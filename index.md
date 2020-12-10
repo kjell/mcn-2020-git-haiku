@@ -1,4 +1,4 @@
-No oil to read by    
-in your brief sweet waters    
-Crying, whirling, white    
+Cold first winter rain    
+loneliness? Just one leaf    
+Or backyard love?    
 
