@@ -1,4 +1,4 @@
-The first day of the year:    
-tolling twilight bell; Temple    
-Darting dragon-fly!    
+Bright red pepper-pod    
+quick unexpected frog    
+Silent clouds of stars    
 
