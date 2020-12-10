@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-the scent of flowers floating    
-Stabs the darkness    
+The river gathering may rains    
+A frog jumps in -    
+Seasoned with petals    
 
