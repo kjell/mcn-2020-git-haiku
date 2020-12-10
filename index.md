@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-The birds cry, and the fishes’ eyes are     
-Of faded daffodils    
+No oil to read by    
+in your brief sweet waters    
+Crying, whirling, white    
 
