@@ -1,4 +1,4 @@
-Poverty's child -    
-in dusky night    
-The Autumn wind.    
+Oh, tranquility!    
+Is also changed to another    
+Like our tendrilled life    
 
