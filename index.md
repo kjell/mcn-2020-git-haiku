@@ -1,4 +1,4 @@
-If there were fragrance    
-thoughts come - and there is loneliness;    
-Mogami River.    
+White cloud of mist    
+in your brief sweet waters    
+Marks only midnight yet    
 
