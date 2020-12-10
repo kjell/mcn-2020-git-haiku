@@ -1,4 +1,4 @@
-Camellia-petal    
-Twilight whippoorwill, whistle on, sweet deepener    
-Two white butterflies?    
+Clouds come from time to time -    
+as I take my darkening path    
+How soon it must die.    
 
