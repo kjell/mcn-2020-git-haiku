@@ -1,4 +1,4 @@
-Black cloudbank broken    
-oh voices of the wild ducks    
-How soon it must die.    
+Chirping of the quails    
+A frog jumps in -    
+cherry-blossoms . . .    
 
