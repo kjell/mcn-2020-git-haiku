@@ -1,4 +1,4 @@
-The rains of summer join together.    
-The fragrant blossoms remain.    
-And evening bell    
+Carven gods long gone    
+who spends his little breakfast    
+Or backyard love?    
 
