@@ -1,4 +1,4 @@
-First white snow of fall    
-let us to the road again    
-from looking at the moon.    
+Lightning -    
+that black crow I hate so much    
+and gazes at the moon.    
 
