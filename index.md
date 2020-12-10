@@ -1,4 +1,4 @@
-Cold first winter rain    
-loneliness? Just one leaf    
-Or backyard love?    
+Bright red pepper-pod    
+tolling twilight bell; Temple    
+the autumn dusk is here.    
 
