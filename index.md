@@ -1,4 +1,4 @@
-Seas are wild tonight    
-let us arrange these flowers    
-And evening bell    
+Silent the old town    
+The birds cry, and the fishes’ eyes are     
+A cicada’s voice.    
 
