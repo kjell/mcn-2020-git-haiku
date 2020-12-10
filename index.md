@@ -1,4 +1,4 @@
-The rains of summer join together.    
+Camellia-petal    
 these heavy snow-flakes settling    
-And evening bell    
+Of faded daffodils    
 
