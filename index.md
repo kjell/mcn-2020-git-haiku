@@ -1,4 +1,4 @@
-White cloud of mist    
-in your brief sweet waters    
-Marks only midnight yet    
+Too curious flower    
+and bring to men a chance to rest    
+from the kiri tree.    
 
