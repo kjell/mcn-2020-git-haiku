@@ -1,4 +1,4 @@
-None is travelling    
-A frog jumps in -    
-cherry-blossoms . . .    
+White cloud of mist    
+thoughts come - and there is loneliness;    
+It’s the Doll’s Festival.    
 
