@@ -1,4 +1,4 @@
-Black cloudbank broken    
-just enough to bend the leaves    
-These dark hands of life    
+The summer grasses.    
+chirping, keeps the autumn gay    
+Darting dragon-fly!    
 
