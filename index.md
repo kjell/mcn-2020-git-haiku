@@ -1,4 +1,4 @@
-The river gathering may rains    
-All that remains    
-Muffled by hot rocks    
+White cloud of mist    
+Heron's cry    
+A little woven cape    
 
