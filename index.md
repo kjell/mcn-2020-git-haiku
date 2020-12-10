@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-How swift it is    
-are darkened    
+Temple bells die out.    
+falling, falling, falling now    
+Ueno? Asakura?    
 
