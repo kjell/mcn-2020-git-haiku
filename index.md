@@ -1,4 +1,4 @@
 Camellia-petal    
-these heavy snow-flakes settling    
-Of faded daffodils    
+Line that won't be deleted    
+Over the orchid    
 
