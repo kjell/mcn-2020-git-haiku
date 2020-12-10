@@ -1,4 +1,4 @@
-The first day of the year:    
-thoughts come - and there is loneliness;    
-Stabs the darkness    
+Dawn-shining mountains    
+The birds cry, and the fishes’ eyes are     
+Of faded daffodils    
 
