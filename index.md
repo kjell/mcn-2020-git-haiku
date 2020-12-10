@@ -1,4 +1,4 @@
-The river gathering may rains    
-in dusky night    
-The autumn dusk is here.    
+The first day of the year:    
+tolling twilight bell; Temple    
+Darting dragon-fly!    
 
