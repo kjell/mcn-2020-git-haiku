@@ -1,4 +1,4 @@
-Cold first winter rain    
+Clouds come from time to time -    
 dead leaves alone foregather    
-Silent clouds of stars    
+and gazes at the moon.    
 
