@@ -1,4 +1,4 @@
-Chirping of the quails    
-A frog jumps in -    
-cherry-blossoms . . .    
+Seek on high bare trails    
+Line that won't be deleted    
+Moon-lighted mountains!    
 
