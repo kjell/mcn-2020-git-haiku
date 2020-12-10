@@ -1,4 +1,4 @@
-Oh, tranquility!    
-he starts to grind the rice,    
-From the kiri tree.    
+Spring is passing.    
+scatters in the night; Now see    
+Contemptuous of frost    
 
