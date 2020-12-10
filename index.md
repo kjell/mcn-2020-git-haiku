@@ -1,4 +1,4 @@
-Too curious flower    
-and bring to men a chance to rest    
-from the kiri tree.    
+Camellia-petal    
+perfumes her wings by floating    
+These dark hands of life    
 
