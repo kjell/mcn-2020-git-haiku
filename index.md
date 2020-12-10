@@ -1,4 +1,4 @@
-Ballet in the air    
-poor monkey, you too could use    
-Among the flowers    
+Here, where a thousand    
+sky-reflecting violets    
+Since there is no rice    
 
