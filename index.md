@@ -1,4 +1,4 @@
-The river gathering may rains    
-A frog jumps in -    
-Seasoned with petals    
+Ballet in the air    
+poor monkey, you too could use    
+Among the flowers    
 
