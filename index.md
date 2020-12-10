@@ -1,4 +1,4 @@
-Oh, tranquility!    
-visit the ancestral grave    
-And evening bell    
+Swallow in the dusk    
+loneliness? Just one leaf    
+Contemptuous of frost    
 
