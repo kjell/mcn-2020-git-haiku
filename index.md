@@ -1,4 +1,4 @@
-White cloud of mist    
-Heron's cry    
-A little woven cape    
+The sea darkening    
+starving for fat fish or mice    
+But he's beautiful!    
 
