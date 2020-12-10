@@ -1,4 +1,4 @@
-The sea darkening    
-starving for fat fish or mice    
-But he's beautiful!    
+Chirping of the quails    
+let us arrange these flowers    
+Over the orchid    
 
