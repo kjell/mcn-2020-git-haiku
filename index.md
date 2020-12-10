@@ -1,4 +1,4 @@
-Spring is passing.    
-scatters in the night; Now see    
-Contemptuous of frost    
+Will we meet again    
+even the crickets' singing    
+A water-jewel    
 
