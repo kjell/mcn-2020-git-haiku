@@ -1,4 +1,4 @@
-White cloud of mist    
-thoughts come - and there is loneliness;    
-It’s the Doll’s Festival.    
+Camellia-petal    
+Twilight whippoorwill, whistle on, sweet deepener    
+Two white butterflies?    
 
