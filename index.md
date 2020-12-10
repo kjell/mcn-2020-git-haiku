@@ -1,4 +1,4 @@
-Such utter silence!    
-poor monkey, you too could use    
-A perfect evening!    
+The first day of the year:    
+and bring to men a chance to rest    
+Mountain-top jewels    
 
