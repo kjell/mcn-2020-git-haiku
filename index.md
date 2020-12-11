@@ -1,4 +1,4 @@
-Seas are wild tonight    
-that black crow I hate so much    
-Of warriors’ dreams.    
+No oil to read by    
+Heron's cry    
+are darkened    
 
