@@ -1,4 +1,4 @@
-Temple bells die out.    
-Is also changed to another    
-Morning-glory gazing    
+If there were fragrance    
+April's air stirs in willow-leaves    
+and gazes at the moon.    
 
