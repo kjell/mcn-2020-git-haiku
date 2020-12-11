@@ -1,4 +1,4 @@
-Such utter silence!    
-just enough to bend the leaves    
-Moon-lighted mountains!    
+Now that eyes of hawks    
+that black crow I hate so much    
+Or backyard love?    
 
