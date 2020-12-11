@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-that black crow I hate so much    
-Or backyard love?    
+Poverty's child -    
+There's no sign that can foretell    
+The Autumn wind.    
 
