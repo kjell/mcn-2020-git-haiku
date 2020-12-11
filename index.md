@@ -1,4 +1,4 @@
-If there were fragrance    
-April's air stirs in willow-leaves    
-and gazes at the moon.    
+Here, where a thousand    
+even the crickets' singing    
+With tears.    
 
