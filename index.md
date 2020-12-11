@@ -1,4 +1,4 @@
-Temple bells die out.    
-watching us pass, met death    
-Bush-clover petals    
+For a lovely bowl    
+Here along this way but I,    
+are darkened . . .    
 
