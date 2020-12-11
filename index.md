@@ -1,4 +1,4 @@
-Such utter silence!    
-let us to the road again    
-These dark hands of life    
+The sea darkening    
+Heron's cry    
+Among the flowers    
 
