@@ -1,4 +1,4 @@
-The river gathering may rains    
-The lips feel cold.    
-A little woven cape    
+Now that eyes of hawks    
+just enough to bend the leaves    
+From the kiri tree.    
 
