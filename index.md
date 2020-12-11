@@ -1,4 +1,4 @@
-Poverty's child -    
-starving for fat fish or mice    
-from the kiri tree.    
+Wake! The sky is light!    
+The fragrant blossoms remain.    
+Our hungry donkey    
 
