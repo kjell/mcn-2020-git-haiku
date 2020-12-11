@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-the scent of flowers floating    
-Moon-lighted mountains!    
+First white snow of fall    
+captains swore grand conquest    
+Splash!    
 
