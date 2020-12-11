@@ -1,4 +1,4 @@
-Will we meet again    
-loneliness? Just one leaf    
-A lovely sunset    
+Temple bells die out.    
+watching us pass, met death    
+Bush-clover petals    
 
