@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-loneliness? Just one leaf    
-Come to rest our necks    
+Swallow in the dusk    
+All that remains    
+Bearded, with bent canes    
 
