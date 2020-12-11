@@ -1,4 +1,4 @@
 White cloud of mist    
-let us arrange these flowers    
-Two white butterflies?    
+therefore our thanks dark clouds    
+Murmuring Mogami    
 
