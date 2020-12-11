@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-is quieted with creepers    
-are darkened    
+The first day of the year:    
+it needs but shiny wings and look    
+A perfect evening!    
 
