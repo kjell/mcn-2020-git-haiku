@@ -1,4 +1,4 @@
-Such utter silence!    
-loneliness? Just one leaf    
-A butterfly floats and balances    
+See: surviving suns    
+Twilight whippoorwill, whistle on, sweet deepener    
+are darkened    
 
