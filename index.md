@@ -1,4 +1,4 @@
-Ah me! I am one    
-April's air stirs in willow-leaves    
-Murmuring Mogami    
+Nine times arising    
+and bring to men a chance to rest    
+are darkened    
 
