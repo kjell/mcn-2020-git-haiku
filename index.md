@@ -1,4 +1,4 @@
-Now in sad autumn    
-thoughts come - and there is loneliness;    
-Stabs the darkness    
+Lightning -    
+The lips feel cold.    
+Of warriors’ dreams.    
 
