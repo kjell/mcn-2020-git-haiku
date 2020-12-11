@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-A frog jumps in -    
-Basho lines the moon    
+Such utter silence!    
+loneliness? Just one leaf    
+A butterfly floats and balances    
 
