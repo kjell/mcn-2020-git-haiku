@@ -1,4 +1,4 @@
-In the cicada's cry    
-loneliness? Just one leaf    
-Mogami River.    
+White cloud of mist    
+thoughts come - and there is loneliness;    
+A perfect evening!    
 
