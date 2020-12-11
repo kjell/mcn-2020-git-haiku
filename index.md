@@ -1,4 +1,4 @@
-The first day of the year:    
-it needs but shiny wings and look    
-A perfect evening!    
+Temple bells die out.    
+Is also changed to another    
+Morning-glory gazing    
 
