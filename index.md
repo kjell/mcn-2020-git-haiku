@@ -1,4 +1,4 @@
-This snowy morning    
-let us arrange these flowers    
-Over the orchid    
+Will we meet again    
+above white    
+from looking at the moon.    
 
