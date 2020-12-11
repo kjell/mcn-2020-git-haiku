@@ -1,4 +1,4 @@
-Temple bells die out.    
-watching us pass, met death    
-Splash!    
+Oh, tranquility!    
+these brilliant-hued hibiscus    
+And evening bell    
 
