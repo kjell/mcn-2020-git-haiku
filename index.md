@@ -1,4 +1,4 @@
-Cold first winter rain    
-There's no sign that can foretell    
-With tears.    
+The rains of summer join together.    
+Is also changed to another    
+Or backyard love?    
 
