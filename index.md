@@ -1,4 +1,4 @@
-For a lovely bowl    
-Here along this way but I,    
-are darkened . . .    
+None is travelling    
+A frog jumps in -    
+A lovely sunset    
 
