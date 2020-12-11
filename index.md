@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-The fragrant blossoms remain.    
-Our hungry donkey    
+Now in sad autumn    
+Penetrating the very rock,    
+How soon it must die.    
 
