@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-just enough to bend the leaves    
-From the kiri tree.    
+First white snow of fall    
+dead leaves alone foregather    
+are darkened . . .    
 
