@@ -1,4 +1,4 @@
-White cloud of mist    
-thoughts come - and there is loneliness;    
-A perfect evening!    
+A owner of the old thatched hut    
+loneliness? Just one leaf    
+Come to rest our necks    
 
