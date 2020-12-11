@@ -1,4 +1,4 @@
-Won't you come and see    
-sky-reflecting violets    
-Come to rest our necks    
+Now that eyes of hawks    
+A frog jumps in -    
+Basho lines the moon    
 
