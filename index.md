@@ -1,4 +1,4 @@
-See: surviving suns    
-from cold streamlets for the sea    
-Bush-clover petals    
+Camellia-petal    
+is quieted with creepers    
+Of faded daffodils    
 
