@@ -1,4 +1,4 @@
-Here, where a thousand    
-even the crickets' singing    
-With tears.    
+Oh, tranquility!    
+fell in silent dawn, spilling    
+Two white butterflies?    
 
