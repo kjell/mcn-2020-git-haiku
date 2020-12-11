@@ -1,4 +1,4 @@
-When you say something,    
+Cloud of cherry-bloom    
 thoughts come - and there is loneliness;    
-Mountain-top jewels    
+With tears.    
 
