@@ -1,4 +1,4 @@
 Cold first winter rain    
-in dusky night    
-Among the flowers    
+There's no sign that can foretell    
+With tears.    
 
