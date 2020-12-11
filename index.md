@@ -1,4 +1,4 @@
-The sea darkening    
+The first day of the year:    
 Heron's cry    
-Among the flowers    
+Since there is no rice    
 
