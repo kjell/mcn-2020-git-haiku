@@ -1,4 +1,4 @@
-In the cicada's cry    
-visit the ancestral grave    
-But he's beautiful!    
+Poverty's child -    
+stretching over Sado Island    
+Or backyard love?    
 
