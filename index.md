@@ -1,4 +1,4 @@
-Poverty's child -    
-stretching over Sado Island    
-Or backyard love?    
+The river gathering may rains    
+the scent of flowers floating    
+They meet, they mate    
 
