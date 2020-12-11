@@ -1,4 +1,4 @@
-Now in sad autumn    
-Penetrating the very rock,    
-How soon it must die.    
+First white snow of fall    
+Here along this way but I,    
+Darting dragon-fly!    
 
