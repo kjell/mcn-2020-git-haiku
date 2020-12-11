@@ -1,4 +1,4 @@
-The river gathering may rains    
-the scent of flowers floating    
-They meet, they mate    
+Now in sad autumn    
+Line that won't be deleted    
+Goes plop! Watersplash!    
 
