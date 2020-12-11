@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Is also changed to another    
-Or backyard love?    
+Such utter silence!    
+let us to the road again    
+These dark hands of life    
 
