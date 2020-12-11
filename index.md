@@ -1,4 +1,4 @@
-Won't you come and see    
-Here along this way but I,    
-Of dark loneliness    
+See: surviving suns    
+from cold streamlets for the sea    
+Bush-clover petals    
 
