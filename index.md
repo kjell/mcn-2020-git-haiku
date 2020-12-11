@@ -1,4 +1,4 @@
-Poverty's child -    
-here at your flowering grave    
-and gazes at the moon.    
+Spring is passing.    
+chirping, keeps the autumn gay    
+A cicada’s voice.    
 
