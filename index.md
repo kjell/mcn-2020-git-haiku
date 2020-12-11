@@ -1,4 +1,4 @@
 Seas are wild tonight    
-who spends his little breakfast    
-A lovely sunset    
+that black crow I hate so much    
+Of warriors’ dreams.    
 
