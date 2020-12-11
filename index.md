@@ -1,4 +1,4 @@
-Now the swinging bridge    
-stretching over Sado Island    
-The autumn dusk is here.    
+Old dark sleepy pool    
+it needs but shiny wings and look    
+A cicada’s voice.    
 
