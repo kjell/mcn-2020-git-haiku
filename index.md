@@ -1,4 +1,4 @@
-See: surviving suns    
-is quieted with creepers    
-Of warriors’ dreams.    
+Old dark sleepy pool    
+the scent of flowers floating    
+Moon-lighted mountains!    
 
