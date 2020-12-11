@@ -1,4 +1,4 @@
-Nine times arising    
-and bring to men a chance to rest    
-are darkened    
+The first day of the year:    
+oh voices of the wild ducks    
+A solitary bird    
 
