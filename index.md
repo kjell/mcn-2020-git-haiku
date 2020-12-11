@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-Penetrating the very rock,    
-Among the flowers    
+Won't you come and see    
+Here along this way but I,    
+Of dark loneliness    
 
