@@ -1,4 +1,4 @@
-White cloud of mist    
-therefore our thanks dark clouds    
-Murmuring Mogami    
+Temple bells die out.    
+watching us pass, met death    
+Splash!    
 
