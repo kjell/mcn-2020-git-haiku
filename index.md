@@ -1,4 +1,4 @@
-First white snow of fall    
-dead leaves alone foregather    
-are darkened . . .    
+Ah me! I am one    
+April's air stirs in willow-leaves    
+Murmuring Mogami    
 
