@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-thoughts come - and there is loneliness;    
+Silent the old town    
+captains swore grand conquest    
 With tears.    
 
