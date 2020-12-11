@@ -1,4 +1,4 @@
-Will we meet again    
-above white    
-from looking at the moon.    
+Won't you come and see    
+scatters in the night; Now see    
+This autumn evening.    
 
