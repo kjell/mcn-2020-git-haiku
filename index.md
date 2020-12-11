@@ -1,4 +1,4 @@
-See: surviving suns    
-Twilight whippoorwill, whistle on, sweet deepener    
-are darkened    
+In the cicada's cry    
+loneliness? Just one leaf    
+Mogami River.    
 
