@@ -1,4 +1,4 @@
-Lightning -    
-The lips feel cold.    
-Basho lines the moon    
+Won't you come and see    
+sky-reflecting violets    
+Come to rest our necks    
 
