@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-A frog jumps in -    
-Splash!    
+Old dark sleepy pool    
+poor monkey, you too could use    
+Bush-clover petals    
 
