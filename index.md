@@ -1,4 +1,4 @@
-Spring is passing.    
-chirping, keeps the autumn gay    
-A cicada’s voice.    
+This snowy morning    
+let us arrange these flowers    
+Over the orchid    
 
