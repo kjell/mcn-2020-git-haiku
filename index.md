@@ -1,4 +1,4 @@
-The first day of the year:    
-Heron's cry    
-Since there is no rice    
+See: surviving suns    
+is quieted with creepers    
+Of warriors’ dreams.    
 
