@@ -1,4 +1,4 @@
-Here, where a thousand    
-stretching over Sado Island    
-Moon-lighted mountains!    
+Now in sad autumn    
+thoughts come - and there is loneliness;    
+Stabs the darkness    
 
