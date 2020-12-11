@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-Here along this way but I,    
-Among the flowers    
+Oh, tranquility!    
+Is also changed to another    
+Of warriors’ dreams.    
 
