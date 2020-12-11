@@ -1,4 +1,4 @@
-Temple bells die out.    
-soup, the salad, fish and all    
-My moonlit pillow    
+Here, where a thousand    
+stretching over Sado Island    
+Moon-lighted mountains!    
 
