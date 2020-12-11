@@ -1,4 +1,4 @@
-First white snow of fall    
-Here along this way but I,    
-Darting dragon-fly!    
+Poverty's child -    
+here at your flowering grave    
+and gazes at the moon.    
 
