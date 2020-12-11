@@ -1,4 +1,4 @@
-Camellia-petal    
-is quieted with creepers    
-Of faded daffodils    
+Bright red pepper-pod    
+thoughts come - and there is loneliness;    
+Basho lines the moon    
 
