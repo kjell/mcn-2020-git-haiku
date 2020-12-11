@@ -1,4 +1,4 @@
-Nine times arising    
-in your brief sweet waters    
-Tall grass their monument    
+Now the swinging bridge    
+stretching over Sado Island    
+The autumn dusk is here.    
 
