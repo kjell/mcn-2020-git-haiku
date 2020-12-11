@@ -1,4 +1,4 @@
-Swallow in the dusk    
-All that remains    
-Bearded, with bent canes    
+Clouds come from time to time -    
+Here along this way but I,    
+Among the flowers    
 
