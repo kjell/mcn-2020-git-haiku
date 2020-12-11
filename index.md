@@ -1,4 +1,4 @@
-Seas are wild tonight    
-loneliness? Just one leaf    
-are darkened    
+Cold first winter rain    
+in dusky night    
+Among the flowers    
 
