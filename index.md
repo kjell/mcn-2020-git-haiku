@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-thoughts come - and there is loneliness;    
-Basho lines the moon    
+Seas are wild tonight    
+who spends his little breakfast    
+A lovely sunset    
 
