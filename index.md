@@ -1,4 +1,4 @@
-Lightning -    
-The lips feel cold.    
-Of warriors’ dreams.    
+Poverty's child -    
+starving for fat fish or mice    
+from the kiri tree.    
 
