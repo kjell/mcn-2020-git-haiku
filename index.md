@@ -1,4 +1,4 @@
-Oh, tranquility!    
-these brilliant-hued hibiscus    
-And evening bell    
+Nine times arising    
+The birds cry, and the fishes’ eyes are     
+Of warriors’ dreams.    
 
