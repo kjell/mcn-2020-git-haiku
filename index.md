@@ -1,4 +1,4 @@
-The first day of the year:    
-A frog jumps in -    
-Of faded daffodils    
+Mountain-rose petals    
+stretching over Sado Island    
+from looking at the moon.    
 
