@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-Twilight whippoorwill, whistle on, sweet deepener    
-Darting dragon-fly!    
+Such utter silence!    
+Heron's cry    
+Like our tendrilled life    
 
