@@ -1,4 +1,4 @@
-Must springtime fade?    
-starving for fat fish or mice    
-A water-jewel    
+First white snow of fall    
+above white    
+It’s the Doll’s Festival.    
 
