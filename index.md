@@ -1,4 +1,4 @@
-Mountain-rose petals    
-stretching over Sado Island    
-from looking at the moon.    
+An old pond    
+twin butterflies until, twice white    
+The autumn dusk is here.    
 
