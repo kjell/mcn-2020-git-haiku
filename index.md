@@ -1,4 +1,4 @@
-Cold first winter rain    
-the scent of flowers floating    
+None is travelling    
+in dusky night    
 Seasoned with petals    
 
