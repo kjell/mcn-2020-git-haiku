@@ -1,4 +1,4 @@
-The sea darkening    
-The fragrant blossoms remain.    
-From the kiri tree.    
+Under cherry-trees    
+and bring to men a chance to rest    
+Come to rest our necks    
 
