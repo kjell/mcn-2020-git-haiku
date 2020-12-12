@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-stretching over Sado Island    
-Come to rest our necks    
+Spring is passing.    
+chirping, keeps the autumn gay    
+Like our tendrilled life    
 
