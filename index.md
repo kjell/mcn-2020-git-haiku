@@ -1,4 +1,4 @@
-The summer grasses.    
-then cry all birds and fishes    
-Splash!    
+Spring is passing.    
+loneliness? Just one leaf    
+Silent clouds of stars    
 
