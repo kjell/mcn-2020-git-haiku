@@ -1,4 +1,4 @@
-Nine times arising    
-let us to the road again    
-Moon-lighted mountains!    
+Lightning -    
+Here along this way but I,    
+are darkened . . .    
 
