@@ -1,4 +1,4 @@
-Spring is passing.    
-loneliness? Just one leaf    
-Silent clouds of stars    
+The first day of the year:    
+starving for fat fish or mice    
+from looking at the moon.    
 
