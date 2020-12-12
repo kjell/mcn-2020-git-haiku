@@ -1,4 +1,4 @@
-Temple bells die out.    
-loneliness? Just one leaf    
-Morning-glory gazing    
+Spring is passing.    
+dead leaves alone foregather    
+A cicada’s voice.    
 
