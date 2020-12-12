@@ -1,4 +1,4 @@
-Silent the old town    
-mingling with bright small shells    
-This autumn evening.    
+In the cicada's cry    
+How swift it is    
+from looking at the moon.    
 
