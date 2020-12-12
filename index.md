@@ -1,4 +1,4 @@
-Will we meet again    
-poor monkey, you too could use    
-Tall grass their monument    
+Lady butterfly    
+who spends his little breakfast    
+Moon-lighted mountains!    
 
