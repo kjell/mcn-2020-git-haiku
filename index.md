@@ -1,4 +1,4 @@
-Ballet in the air    
-who spends his little breakfast    
-With tears.    
+Mountain-rose petals    
+There's no sign that can foretell    
+Splash!    
 
