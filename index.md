@@ -1,4 +1,4 @@
-Now the swinging bridge    
-the scent of flowers floating    
-Splash!    
+Temple bells die out.    
+above white    
+Lilies on the rocks    
 
