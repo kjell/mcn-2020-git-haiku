@@ -1,4 +1,4 @@
-Ah me! I am one    
-fell in silent dawn, spilling    
-A perfect evening!    
+Here, where a thousand    
+Heron's cry    
+A cicada’s voice.    
 
