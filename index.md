@@ -1,4 +1,4 @@
-In the sea-surf edge    
-is quieted with creepers    
-Or backyard love?    
+The first day of the year:    
+A frog jumps in -    
+Of faded daffodils    
 
