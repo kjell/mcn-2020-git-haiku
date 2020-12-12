@@ -1,4 +1,4 @@
-Lightning -    
-in your brief sweet waters    
-Murmuring Mogami    
+Dry cheerful cricket    
+who spends his little breakfast    
+Like our tendrilled life    
 
