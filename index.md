@@ -1,4 +1,4 @@
-Oh, tranquility!    
-that black crow I hate so much    
-and gazes at the moon.    
+The sea darkening    
+The fragrant blossoms remain.    
+From the kiri tree.    
 
