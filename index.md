@@ -1,4 +1,4 @@
-Too curious flower    
-even the crickets' singing    
-A cicada’s voice.    
+Ah me! I am one    
+fell in silent dawn, spilling    
+A perfect evening!    
 
