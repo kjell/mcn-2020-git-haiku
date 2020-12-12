@@ -1,4 +1,4 @@
-First white snow of fall    
-The fragrant blossoms remain.    
-the autumn dusk is here.    
+Camellia-petal    
+Is also changed to another    
+With tears.    
 
