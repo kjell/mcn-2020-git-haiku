@@ -1,4 +1,4 @@
 Won't you come and see    
-There's no sign that can foretell    
-Companion butterfly!    
+visit the ancestral grave    
+Like our tendrilled life    
 
