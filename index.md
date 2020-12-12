@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-from cold streamlets for the sea    
-Over the orchid    
+A owner of the old thatched hut    
+who spends his little breakfast    
+Bearded, with bent canes    
 
