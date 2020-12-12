@@ -1,4 +1,4 @@
-This snowy morning    
-quick unexpected frog    
-These dark hands of life    
+Nine times arising    
+let us to the road again    
+Moon-lighted mountains!    
 
