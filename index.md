@@ -1,4 +1,4 @@
-In the twilight rain    
-Penetrating the very rock,    
-How soon it must die.    
+The summer grasses.    
+then cry all birds and fishes    
+Splash!    
 
