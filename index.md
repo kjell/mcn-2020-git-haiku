@@ -1,4 +1,4 @@
-Lightning -    
-Here along this way but I,    
-are darkened . . .    
+Won't you come and see    
+There's no sign that can foretell    
+Companion butterfly!    
 
