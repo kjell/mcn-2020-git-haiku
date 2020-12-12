@@ -1,4 +1,4 @@
-The rains of summer join together.    
-There's no sign that can foretell    
-Darting dragon-fly!    
+This snowy morning    
+mingling with bright small shells    
+A water-jewel    
 
