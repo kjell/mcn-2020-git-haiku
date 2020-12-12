@@ -1,4 +1,4 @@
-In the cicada's cry    
-he starts to grind the rice,    
-Come to rest our necks    
+Must springtime fade?    
+fell in silent dawn, spilling    
+A perfect evening!    
 
