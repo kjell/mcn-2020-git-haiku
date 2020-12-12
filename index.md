@@ -1,4 +1,4 @@
-None is travelling    
+Won't you come and see    
 in dusky night    
-Seasoned with petals    
+And evening bell    
 
