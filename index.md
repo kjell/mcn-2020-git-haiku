@@ -1,4 +1,4 @@
-If there were fragrance    
-as I take my darkening path    
-Stabs the darkness    
+Silent the old town    
+mingling with bright small shells    
+This autumn evening.    
 
