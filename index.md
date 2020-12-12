@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-watching us pass, met death    
-The autumn dusk is here.    
+Lightning -    
+in your brief sweet waters    
+Murmuring Mogami    
 
