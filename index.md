@@ -1,4 +1,4 @@
-Camellia-petal    
-Is also changed to another    
-With tears.    
+Will we meet again    
+Penetrating the very rock,    
+And evening bell    
 
