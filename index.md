@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-as I take my darkening path    
-Of faded daffodils    
+In the twilight rain    
+Penetrating the very rock,    
+How soon it must die.    
 
