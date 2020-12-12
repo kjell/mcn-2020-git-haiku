@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-Penetrating the very rock,    
-Splash!    
+If there were fragrance    
+as I take my darkening path    
+Stabs the darkness    
 
