@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-thoughts come - and there is loneliness;    
-With tears.    
+Now that eyes of hawks    
+as I take my darkening path    
+Of faded daffodils    
 
