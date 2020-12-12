@@ -1,4 +1,4 @@
-Spring is passing.    
-chirping, keeps the autumn gay    
-Like our tendrilled life    
+Temple bells die out.    
+loneliness? Just one leaf    
+Morning-glory gazing    
 
