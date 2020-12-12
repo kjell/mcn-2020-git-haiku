@@ -1,4 +1,4 @@
-White cloud of mist    
-and bring to men a chance to rest    
-On the temple porch    
+Cloud of cherry-bloom    
+Twilight whippoorwill, whistle on, sweet deepener    
+Darting dragon-fly!    
 
