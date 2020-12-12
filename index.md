@@ -1,4 +1,4 @@
-First white snow of fall    
-above white    
-It’s the Doll’s Festival.    
+The rains of summer join together.    
+Line that won't be deleted    
+are darkened . . .    
 
