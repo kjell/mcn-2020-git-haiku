@@ -1,4 +1,4 @@
-Oh, tranquility!    
-mingling with bright small shells    
-Mogami River.    
+The sea darkening    
+scatters in the night; Now see    
+A little woven cape    
 
