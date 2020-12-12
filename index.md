@@ -1,4 +1,4 @@
-Such utter silence!    
-Heron's cry    
-Like our tendrilled life    
+Now the swinging bridge    
+the scent of flowers floating    
+Splash!    
 
