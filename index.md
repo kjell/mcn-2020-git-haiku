@@ -1,4 +1,4 @@
-Lightning -    
-even the crickets' singing    
-are darkened    
+Clouds come from time to time -    
+thoughts come - and there is loneliness;    
+With tears.    
 
