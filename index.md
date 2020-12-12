@@ -1,4 +1,4 @@
-An old pond    
-twin butterflies until, twice white    
-The autumn dusk is here.    
+Now the swinging bridge    
+How swift it is    
+Or backyard love?    
 
