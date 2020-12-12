@@ -1,4 +1,4 @@
-Won't you come and see    
-in dusky night    
-And evening bell    
+White cloud of mist    
+and bring to men a chance to rest    
+On the temple porch    
 
