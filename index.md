@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-who spends his little breakfast    
-Like our tendrilled life    
+This snowy morning    
+tolling twilight bell; Temple    
+are darkened . . .    
 
