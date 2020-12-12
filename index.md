@@ -1,4 +1,4 @@
-No oil to read by    
-Heron's cry    
-are darkened    
+Dewdrop, let me cleanse    
+stretching over Sado Island    
+Come to rest our necks    
 
