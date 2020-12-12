@@ -1,4 +1,4 @@
-The rains of summer join together.    
-April's air stirs in willow-leaves    
-Goes plop! Watersplash!    
+The river gathering may rains    
+just enough to bend the leaves    
+A cicada’s voice.    
 
