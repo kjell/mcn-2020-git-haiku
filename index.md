@@ -1,4 +1,4 @@
-If there were fragrance    
-as I take my darkening path    
-Of faded daffodils    
+Must springtime fade?    
+starving for fat fish or mice    
+A water-jewel    
 
