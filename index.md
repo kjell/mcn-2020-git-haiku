@@ -1,4 +1,4 @@
-Won't you come and see    
-visit the ancestral grave    
-Like our tendrilled life    
+When you say something,    
+Heron's cry    
+Seasoned with petals    
 
