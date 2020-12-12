@@ -1,4 +1,4 @@
-Such utter silence!    
-twin butterflies until, twice white    
-It’s the Doll’s Festival.    
+This is the new line    
+All that remains    
+Stabs the darkness    
 
