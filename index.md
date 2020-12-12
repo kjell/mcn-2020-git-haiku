@@ -1,4 +1,4 @@
-Ballet in the air    
-The birds cry, and the fishes’ eyes are     
-Muffled by hot rocks    
+The first day of the year:    
+Heron's cry    
+With tears.    
 
