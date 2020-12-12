@@ -1,4 +1,4 @@
-Poverty's child -    
-I am off to bed - but ah!    
-Two white butterflies?    
+This snowy morning    
+quick unexpected frog    
+These dark hands of life    
 
