@@ -1,4 +1,4 @@
-Must springtime fade?    
-let us arrange these flowers    
-are darkened . . .    
+Will we meet again    
+poor monkey, you too could use    
+Tall grass their monument    
 
