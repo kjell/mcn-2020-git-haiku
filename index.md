@@ -1,4 +1,4 @@
-Under cherry-trees    
-and bring to men a chance to rest    
-Come to rest our necks    
+Such utter silence!    
+twin butterflies until, twice white    
+It’s the Doll’s Festival.    
 
