@@ -1,4 +1,4 @@
-Too curious flower    
-twin butterflies until, twice white    
-Crying, whirling, white    
+If there were fragrance    
+as I take my darkening path    
+Of faded daffodils    
 
