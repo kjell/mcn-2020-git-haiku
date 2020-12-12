@@ -1,4 +1,4 @@
-Temple bells die out.    
-above white    
-Lilies on the rocks    
+Must springtime fade?    
+let us arrange these flowers    
+are darkened . . .    
 
