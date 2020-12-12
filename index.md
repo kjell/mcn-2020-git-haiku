@@ -1,4 +1,4 @@
-The first day of the year:    
-Heron's cry    
-With tears.    
+Too curious flower    
+even the crickets' singing    
+A cicada’s voice.    
 
