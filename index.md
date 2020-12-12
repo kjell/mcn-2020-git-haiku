@@ -1,4 +1,4 @@
-Here, where a thousand    
-Heron's cry    
-A cicada’s voice.    
+The summer grasses.    
+to see the moon, whose solemn pace    
+from looking at the moon.    
 
