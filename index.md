@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Line that won't be deleted    
-are darkened . . .    
+Ballet in the air    
+The birds cry, and the fishes’ eyes are     
+Muffled by hot rocks    
 
