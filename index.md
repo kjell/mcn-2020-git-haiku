@@ -1,4 +1,4 @@
-Must springtime fade?    
-fell in silent dawn, spilling    
-A perfect evening!    
+Dry cheerful cricket    
+as I take my darkening path    
+Of faded daffodils    
 
