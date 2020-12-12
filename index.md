@@ -1,4 +1,4 @@
-In the cicada's cry    
-How swift it is    
-from looking at the moon.    
+Old dark sleepy pool    
+from cold streamlets for the sea    
+Over the orchid    
 
