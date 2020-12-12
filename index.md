@@ -1,4 +1,4 @@
-This is the new line    
-All that remains    
-Stabs the darkness    
+Oh, tranquility!    
+mingling with bright small shells    
+Mogami River.    
 
