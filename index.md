@@ -1,4 +1,4 @@
-The sea darkening    
-scatters in the night; Now see    
-A little woven cape    
+Won't you come and see    
+fell in silent dawn, spilling    
+Of warriors’ dreams.    
 
