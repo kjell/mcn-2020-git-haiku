@@ -1,4 +1,4 @@
-This snowy morning    
-tolling twilight bell; Temple    
-are darkened . . .    
+Cold first winter rain    
+the scent of flowers floating    
+Seasoned with petals    
 
