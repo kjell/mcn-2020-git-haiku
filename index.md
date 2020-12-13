@@ -1,4 +1,4 @@
-None is travelling    
-starving for fat fish or mice    
-Contemptuous of frost    
+Clouds come from time to time -    
+The fragrant blossoms remain.    
+The autumn dusk is here.    
 
