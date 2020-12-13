@@ -1,4 +1,4 @@
-Won't you come and see    
-here at your flowering grave    
-the autumn dusk is here.    
+Carven gods long gone    
+April's air stirs in willow-leaves    
+This autumn evening.    
 
