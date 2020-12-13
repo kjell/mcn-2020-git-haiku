@@ -1,4 +1,4 @@
-Nine times arising    
-just enough to bend the leaves    
-How soon it must die.    
+Won't you come and see    
+All that remains    
+cherry-blossoms . . .    
 
