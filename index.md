@@ -1,4 +1,4 @@
-Now the swinging bridge    
-visit the ancestral grave    
-With tears.    
+Oh, tranquility!    
+The birds cry, and the fishes’ eyes are     
+A perfect evening!    
 
