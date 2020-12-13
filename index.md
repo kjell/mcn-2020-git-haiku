@@ -1,4 +1,4 @@
-The summer grasses.    
-Is also changed to another    
-These dark hands of life    
+Carven gods long gone    
+Here along this way but I,    
+from the kiri tree.    
 
