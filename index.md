@@ -1,4 +1,4 @@
-Such utter silence!    
-let us to the road again    
-A cicada’s voice.    
+Will we meet again    
+soup, the salad, fish and all    
+It’s the Doll’s Festival.    
 
