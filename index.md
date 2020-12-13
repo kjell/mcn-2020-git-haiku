@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-loneliness? Just one leaf    
-Ueno? Asakura?    
+Camellia-petal    
+The birds cry, and the fishes’ eyes are     
+These dark hands of life    
 
