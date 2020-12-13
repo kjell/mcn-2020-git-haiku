@@ -1,4 +1,4 @@
-Oh, tranquility!    
-above white    
-the autumn dusk is here.    
+Seek on high bare trails    
+from cold streamlets for the sea    
+Mogami River.    
 
