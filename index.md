@@ -1,4 +1,4 @@
-In the twilight rain    
-let us arrange these flowers    
-Tall grass their monument    
+Must springtime fade?    
+The fragrant blossoms remain.    
+Stabs the darkness    
 
