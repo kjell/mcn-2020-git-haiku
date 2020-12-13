@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-A frog jumps in -    
-The autumn dusk is here.    
+Here, where a thousand    
+sky-reflecting violets    
+A solitary bird    
 
