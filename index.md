@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-Penetrating the very rock,    
-Mountain-top jewels    
+In the twilight rain    
+let us arrange these flowers    
+Tall grass their monument    
 
