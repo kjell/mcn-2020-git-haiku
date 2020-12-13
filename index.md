@@ -1,4 +1,4 @@
-Lightning -    
-then cry all birds and fishes    
-A perfect evening!    
+Swallow in the dusk    
+Twilight whippoorwill, whistle on, sweet deepener    
+Stabs the darkness    
 
