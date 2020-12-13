@@ -1,4 +1,4 @@
-In the cicada's cry    
-Twilight whippoorwill, whistle on, sweet deepener    
-Ueno? Asakura?    
+White cloud of mist    
+fell in silent dawn, spilling    
+Contemptuous of frost    
 
