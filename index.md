@@ -1,4 +1,4 @@
-Carven gods long gone    
-April's air stirs in willow-leaves    
-This autumn evening.    
+Black cloudbank broken    
+above white    
+The autumn dusk is here.    
 
