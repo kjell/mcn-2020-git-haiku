@@ -1,4 +1,4 @@
-Silent the old town    
-loneliness? Just one leaf    
-Bearded, with bent canes    
+The sea darkening    
+April's air stirs in willow-leaves    
+from looking at the moon.    
 
