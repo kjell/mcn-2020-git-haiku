@@ -1,4 +1,4 @@
-The summer grasses.    
-to see the moon, whose solemn pace    
-from looking at the moon.    
+Old dark sleepy pool    
+as I take my darkening path    
+Cold pale eyes pour tears    
 
