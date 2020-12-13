@@ -1,4 +1,4 @@
-The summer grasses.    
-loneliness? Just one leaf    
-A butterfly floats and balances    
+For a lovely bowl    
+Here along this way but I,    
+On the temple porch    
 
