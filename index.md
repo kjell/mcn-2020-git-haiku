@@ -1,4 +1,4 @@
-White cloud of mist    
-it needs but shiny wings and look    
-Of faded daffodils    
+In the cicada's cry    
+captains swore grand conquest    
+Or backyard love?    
 
