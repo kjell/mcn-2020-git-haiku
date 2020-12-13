@@ -1,4 +1,4 @@
-Nine times arising    
-fell in silent dawn, spilling    
-From the kiri tree.    
+Won't you come and see    
+There's no sign that can foretell    
+Bush-clover petals    
 
