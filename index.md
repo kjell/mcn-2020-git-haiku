@@ -1,4 +1,4 @@
-Here, where a thousand    
-I am off to bed - but ah!    
-How soon it must die.    
+If there were fragrance    
+the scent of flowers floating    
+Ueno? Asakura?    
 
