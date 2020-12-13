@@ -1,4 +1,4 @@
-The sea darkening    
-sky-reflecting violets    
-Marks only midnight yet    
+Too curious flower    
+A frog jumps in -    
+A butterfly floats and balances    
 
