@@ -1,4 +1,4 @@
-Seek on high bare trails    
-from cold streamlets for the sea    
-Mogami River.    
+In the sea-surf edge    
+Is also changed to another    
+The autumn dusk is here.    
 
