@@ -1,4 +1,4 @@
-For a lovely bowl    
-Here along this way but I,    
-On the temple porch    
+Dry cheerful cricket    
+and bring to men a chance to rest    
+Seasoned with petals    
 
