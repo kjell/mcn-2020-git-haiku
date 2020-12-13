@@ -1,4 +1,4 @@
-Nine times arising    
-A frog jumps in -    
-Murmuring Mogami    
+For a lovely bowl    
+quick unexpected frog    
+Mountain-top jewels    
 
