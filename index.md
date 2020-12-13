@@ -1,4 +1,4 @@
-This is the new line    
-let us arrange these flowers    
-Goes plop! Watersplash!    
+Nine times arising    
+just enough to bend the leaves    
+How soon it must die.    
 
