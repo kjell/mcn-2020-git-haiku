@@ -1,4 +1,4 @@
-Here, where a thousand    
-who spends his little breakfast    
-Goes plop! Watersplash!    
+The sea darkening    
+sky-reflecting violets    
+Marks only midnight yet    
 
