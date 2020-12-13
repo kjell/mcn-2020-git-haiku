@@ -1,4 +1,4 @@
-Too curious flower    
-A frog jumps in -    
-A butterfly floats and balances    
+Chirping of the quails    
+How swift it is    
+Our hungry donkey    
 
