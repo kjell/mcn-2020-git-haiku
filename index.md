@@ -1,4 +1,4 @@
 Carven gods long gone    
-Here along this way but I,    
-from the kiri tree.    
+oh voices of the wild ducks    
+A water-jewel    
 
