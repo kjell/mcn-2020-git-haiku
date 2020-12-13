@@ -1,4 +1,4 @@
-Oh, tranquility!    
-The birds cry, and the fishes’ eyes are     
-A perfect evening!    
+Seas are wild tonight    
+thoughts come - and there is loneliness;    
+Our hungry donkey    
 
