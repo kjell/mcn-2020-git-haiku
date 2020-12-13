@@ -1,4 +1,4 @@
-White cloud of mist    
-fell in silent dawn, spilling    
-Contemptuous of frost    
+This is the new line    
+let us arrange these flowers    
+Goes plop! Watersplash!    
 
