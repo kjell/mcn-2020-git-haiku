@@ -1,4 +1,4 @@
-Chirping of the quails    
-How swift it is    
-Our hungry donkey    
+Nine times arising    
+A frog jumps in -    
+Murmuring Mogami    
 
