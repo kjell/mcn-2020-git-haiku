@@ -1,4 +1,4 @@
-Temple bells die out.    
-quick unexpected frog    
-Bush-clover petals    
+Poverty's child -    
+to see the moon, whose solemn pace    
+from looking at the moon.    
 
