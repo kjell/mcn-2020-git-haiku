@@ -1,4 +1,4 @@
-Won't you come and see    
-All that remains    
-cherry-blossoms . . .    
+White cloud of mist    
+it needs but shiny wings and look    
+A butterfly floats and balances    
 
