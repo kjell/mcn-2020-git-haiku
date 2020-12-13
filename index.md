@@ -1,4 +1,4 @@
-In the cicada's cry    
-captains swore grand conquest    
-Or backyard love?    
+Lightning -    
+then cry all birds and fishes    
+A perfect evening!    
 
