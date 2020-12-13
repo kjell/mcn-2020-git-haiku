@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-from cold streamlets for the sea    
-Darting dragon-fly!    
+Here, where a thousand    
+who spends his little breakfast    
+Goes plop! Watersplash!    
 
