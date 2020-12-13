@@ -1,4 +1,4 @@
-For a lovely bowl    
-from cold streamlets for the sea    
-Mogami River.    
+Bright red pepper-pod    
+Heron's cry    
+Come to rest our necks    
 
