@@ -1,4 +1,4 @@
-Carven gods long gone    
-oh voices of the wild ducks    
-A water-jewel    
+Dawn-shining mountains    
+Penetrating the very rock,    
+Mountain-top jewels    
 
