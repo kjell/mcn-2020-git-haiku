@@ -1,4 +1,4 @@
-Poverty's child -    
-in dusky night    
-Basho lines the moon    
+The summer grasses.    
+loneliness? Just one leaf    
+A butterfly floats and balances    
 
