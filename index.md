@@ -1,4 +1,4 @@
-The sea darkening    
-April's air stirs in willow-leaves    
-from looking at the moon.    
+Now that eyes of hawks    
+even the crickets' singing    
+Crying, whirling, white    
 
