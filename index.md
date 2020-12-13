@@ -1,4 +1,4 @@
-Oh, tranquility!    
-thoughts come - and there is loneliness;    
-Of warriors’ dreams.    
+When you say something,    
+mingling with bright small shells    
+and gazes at the moon.    
 
