@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-The fragrant blossoms remain.    
-The autumn dusk is here.    
+Poverty's child -    
+in dusky night    
+Of faded daffodils    
 
