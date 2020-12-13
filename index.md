@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-and bring to men a chance to rest    
-On the temple porch    
+Now that eyes of hawks    
+A frog jumps in -    
+The autumn dusk is here.    
 
