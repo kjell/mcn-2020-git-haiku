@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-soup, the salad, fish and all    
-A cicada’s voice.    
+Will we meet again    
+chirping, keeps the autumn gay    
+Bush-clover petals    
 
