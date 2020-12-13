@@ -1,4 +1,4 @@
-When you say something,    
-mingling with bright small shells    
-and gazes at the moon.    
+None is travelling    
+starving for fat fish or mice    
+Contemptuous of frost    
 
