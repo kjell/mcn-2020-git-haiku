@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-Heron's cry    
-Come to rest our necks    
+Why so scrawny, cat?    
+loneliness? Just one leaf    
+Ueno? Asakura?    
 
