@@ -1,4 +1,4 @@
-Must springtime fade?    
-A frog jumps in -    
-the autumn dusk is here.    
+Swallow in the dusk    
+The fragrant blossoms remain.    
+Splash!    
 
