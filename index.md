@@ -1,4 +1,4 @@
-Will we meet again    
-chirping, keeps the autumn gay    
-Bush-clover petals    
+For a lovely bowl    
+quick unexpected frog    
+These dark hands of life    
 
