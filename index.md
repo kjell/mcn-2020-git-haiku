@@ -1,4 +1,4 @@
-If there were fragrance    
-the scent of flowers floating    
-Ueno? Asakura?    
+None is travelling    
+these heavy snow-flakes settling    
+Tall grass their monument    
 
