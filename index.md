@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-even the crickets' singing    
-Crying, whirling, white    
+Poverty's child -    
+in dusky night    
+Basho lines the moon    
 
