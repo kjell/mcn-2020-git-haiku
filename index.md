@@ -1,4 +1,4 @@
-Black cloudbank broken    
-April's air stirs in willow-leaves    
-Mountain-top jewels    
+Now the swinging bridge    
+visit the ancestral grave    
+With tears.    
 
