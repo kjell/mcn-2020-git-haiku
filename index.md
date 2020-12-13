@@ -1,4 +1,4 @@
-Poverty's child -    
-in dusky night    
-Of faded daffodils    
+Wake! The sky is light!    
+soup, the salad, fish and all    
+A cicada’s voice.    
 
