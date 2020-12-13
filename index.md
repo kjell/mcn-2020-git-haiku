@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-as I take my darkening path    
-Cold pale eyes pour tears    
+Silent the old town    
+loneliness? Just one leaf    
+Bearded, with bent canes    
 
