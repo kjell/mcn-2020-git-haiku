@@ -1,4 +1,4 @@
-Won't you come and see    
-There's no sign that can foretell    
-Bush-clover petals    
+A owner of the old thatched hut    
+from cold streamlets for the sea    
+Darting dragon-fly!    
 
