@@ -1,4 +1,4 @@
-Won't you come and see    
-Here along this way but I,    
-A cicada’s voice.    
+Must springtime fade?    
+A frog jumps in -    
+the autumn dusk is here.    
 
