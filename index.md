@@ -1,4 +1,4 @@
-Now in sad autumn    
-the scent of flowers floating    
-Basho lines the moon    
+Carven gods long gone    
+that black crow I hate so much    
+Murmuring Mogami    
 
