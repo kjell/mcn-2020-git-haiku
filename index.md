@@ -1,4 +1,4 @@
-Poverty's child -    
-to see the moon, whose solemn pace    
-from looking at the moon.    
+Won't you come and see    
+sky-reflecting violets    
+Bush-clover petals    
 
