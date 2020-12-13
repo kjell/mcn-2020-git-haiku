@@ -1,4 +1,4 @@
-Won't you come and see    
-sky-reflecting violets    
-Bush-clover petals    
+Oh, tranquility!    
+thoughts come - and there is loneliness;    
+Of warriors’ dreams.    
 
