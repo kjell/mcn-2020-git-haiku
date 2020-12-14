@@ -1,4 +1,4 @@
-Won't you come and see    
-The birds cry, and the fishes’ eyes are     
-Seasoned with petals    
+Carven gods long gone    
+to see the moon, whose solemn pace    
+Among the flowers    
 
