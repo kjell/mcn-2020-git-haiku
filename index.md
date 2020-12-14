@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-that black crow I hate so much    
-And evening bell    
+Nine times arising    
+then cry all birds and fishes    
+Waterfall music    
 
