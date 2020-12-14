@@ -1,4 +1,4 @@
-Oh, tranquility!    
-he starts to grind the rice,    
-A cicada’s voice.    
+Temple bells die out.    
+is quieted with creepers    
+Morning-glory gazing    
 
