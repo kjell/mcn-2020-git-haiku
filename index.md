@@ -1,4 +1,4 @@
-Lady butterfly    
-captains swore grand conquest    
-These dark hands of life    
+The sea darkening    
+therefore our thanks dark clouds    
+The Autumn wind.    
 
