@@ -1,4 +1,4 @@
-Poverty's child -    
-therefore our thanks dark clouds    
-cherry-blossoms . . .    
+Now in sad autumn    
+sky-reflecting violets    
+This autumn evening.    
 
