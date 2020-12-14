@@ -1,4 +1,4 @@
-None is travelling    
-is quieted with creepers    
-Come to rest our necks    
+Glorious the moon    
+The lips feel cold.    
+Marks only midnight yet    
 
