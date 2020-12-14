@@ -1,4 +1,4 @@
-Poverty's child -    
-A frog jumps in -    
-The Autumn wind.    
+Seas are wild tonight    
+that black crow I hate so much    
+Or backyard love?    
 
