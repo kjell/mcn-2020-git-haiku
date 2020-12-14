@@ -1,4 +1,4 @@
-No oil to read by    
+Under cherry-trees    
 in dusky night    
-A water-jewel    
+Mogami River.    
 
