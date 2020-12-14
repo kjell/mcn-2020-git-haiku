@@ -1,4 +1,4 @@
-White cloud of mist    
-There's no sign that can foretell    
-Our hungry donkey    
+Mountain-rose petals    
+then cry all birds and fishes    
+Bush-clover petals    
 
