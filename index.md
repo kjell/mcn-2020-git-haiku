@@ -1,4 +1,4 @@
-See: surviving suns    
-even the crickets' singing    
-This autumn evening.    
+First white snow of fall    
+starving for fat fish or mice    
+Two white butterflies?    
 
