@@ -1,4 +1,4 @@
-The sea darkening    
-therefore our thanks dark clouds    
-The Autumn wind.    
+Glorious the moon    
+There's no sign that can foretell    
+The autumn dusk is here.    
 
