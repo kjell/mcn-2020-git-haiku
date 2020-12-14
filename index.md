@@ -1,4 +1,4 @@
-Will we meet again    
-just enough to bend the leaves    
-Seasoned with petals    
+No oil to read by    
+How swift it is    
+Companion butterfly!    
 
