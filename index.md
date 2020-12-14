@@ -1,4 +1,4 @@
-Lady butterfly    
-to see the moon, whose solemn pace    
-Cherry-blossoms    
+White cloud of mist    
+perfumes her wings by floating    
+Of dark loneliness    
 
