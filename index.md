@@ -1,4 +1,4 @@
-If there were fragrance    
-All that remains    
-from looking at the moon.    
+Poverty's child -    
+The fragrant blossoms remain.    
+A cicada’s voice.    
 
