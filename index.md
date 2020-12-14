@@ -1,4 +1,4 @@
-Cold first winter rain    
-in dusky night    
-the autumn dusk is here.    
+This snowy morning    
+falling, falling, falling now    
+The Autumn wind.    
 
