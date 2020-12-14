@@ -1,4 +1,4 @@
-Lightning -    
-Line that won't be deleted    
-Since there is no rice    
+Will we meet again    
+There's no sign that can foretell    
+Muffled by hot rocks    
 
