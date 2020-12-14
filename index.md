@@ -1,4 +1,4 @@
-Spring is passing.    
-Penetrating the very rock,    
-Morning-glory gazing    
+Cold first winter rain    
+watching us pass, met death    
+Stabs the darkness    
 
