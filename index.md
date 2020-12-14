@@ -1,4 +1,4 @@
-Poverty's child -    
-The fragrant blossoms remain.    
-A cicada’s voice.    
+Won't you come and see    
+thoughts come - and there is loneliness;    
+from looking at the moon.    
 
