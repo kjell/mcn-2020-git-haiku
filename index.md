@@ -1,4 +1,4 @@
-In the cicada's cry    
-How swift it is    
-Cherry-blossoms    
+Now in sad autumn    
+The fragrant blossoms remain.    
+Marks only midnight yet    
 
