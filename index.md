@@ -1,4 +1,4 @@
-Glorious the moon    
-There's no sign that can foretell    
-The autumn dusk is here.    
+Spring is passing.    
+stretching over Sado Island    
+It’s the Doll’s Festival.    
 
