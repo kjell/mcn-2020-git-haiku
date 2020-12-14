@@ -1,4 +1,4 @@
-First white snow of fall    
-captains swore grand conquest    
-Two white butterflies?    
+Seek on high bare trails    
+Line that won't be deleted    
+Morning-glory gazing    
 
