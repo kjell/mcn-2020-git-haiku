@@ -1,4 +1,4 @@
-Carven gods long gone    
-to see the moon, whose solemn pace    
-Among the flowers    
+None is travelling    
+is quieted with creepers    
+Come to rest our necks    
 
