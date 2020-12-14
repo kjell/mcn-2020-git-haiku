@@ -1,4 +1,4 @@
-Seas are wild tonight    
-that black crow I hate so much    
-Or backyard love?    
+Too curious flower    
+loneliness? Just one leaf    
+This autumn evening.    
 
