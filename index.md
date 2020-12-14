@@ -1,4 +1,4 @@
-Nine times arising    
-How swift it is    
-are darkened    
+Spring is passing.    
+spare my little buzzing friends    
+Murmuring Mogami    
 
