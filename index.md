@@ -1,4 +1,4 @@
-No oil to read by    
-How swift it is    
-Companion butterfly!    
+See: surviving suns    
+even the crickets' singing    
+This autumn evening.    
 
