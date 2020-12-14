@@ -1,4 +1,4 @@
-The first day of the year:    
-and bring to men a chance to rest    
-Two white butterflies?    
+Won't you come and see    
+Is also changed to another    
+Among the flowers    
 
