@@ -1,4 +1,4 @@
-Now in sad autumn    
-sky-reflecting violets    
-This autumn evening.    
+Chirping of the quails    
+Penetrating the very rock,    
+Murmuring Mogami    
 
