@@ -1,4 +1,4 @@
-Temple bells die out.    
-loneliness? Just one leaf    
-Come to rest our necks    
+Seas are wild tonight    
+and bring to men a chance to rest    
+How soon it must die.    
 
