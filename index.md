@@ -1,4 +1,4 @@
-None is travelling    
-poor monkey, you too could use    
-A perfect evening!    
+In the cicada's cry    
+who spends his little breakfast    
+Two white butterflies?    
 
