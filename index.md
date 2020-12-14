@@ -1,4 +1,4 @@
-Seas are wild tonight    
-A frog jumps in -    
-How soon it must die.    
+Silent the old town    
+falling, falling, falling now    
+A water-jewel    
 
