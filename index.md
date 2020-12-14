@@ -1,4 +1,4 @@
-Mountain-rose petals    
-then cry all birds and fishes    
-Bush-clover petals    
+Lady butterfly    
+to see the moon, whose solemn pace    
+Cherry-blossoms    
 
