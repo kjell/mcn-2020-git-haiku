@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-loneliness? Just one leaf    
-Seasoned with petals    
+In the cicada's cry    
+How swift it is    
+Cherry-blossoms    
 
