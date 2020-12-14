@@ -1,4 +1,4 @@
-First white snow of fall    
-starving for fat fish or mice    
-Two white butterflies?    
+Nine times arising    
+How swift it is    
+are darkened    
 
