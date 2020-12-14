@@ -1,4 +1,4 @@
-In the cicada's cry    
-A frog jumps in -    
-Cold pale eyes pour tears    
+Wake! The sky is light!    
+that black crow I hate so much    
+And evening bell    
 
