@@ -1,4 +1,4 @@
-Seas are wild tonight    
-and bring to men a chance to rest    
-How soon it must die.    
+Spring is passing.    
+Penetrating the very rock,    
+Morning-glory gazing    
 
