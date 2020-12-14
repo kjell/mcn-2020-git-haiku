@@ -1,4 +1,4 @@
-Cold first winter rain    
-watching us pass, met death    
-Stabs the darkness    
+Bright red pepper-pod    
+Penetrating the very rock,    
+Crying, whirling, white    
 
