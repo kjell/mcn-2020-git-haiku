@@ -1,4 +1,4 @@
-In the sea-surf edge    
-Penetrating the very rock,    
-A lovely sunset    
+Lady butterfly    
+captains swore grand conquest    
+These dark hands of life    
 
