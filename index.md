@@ -1,4 +1,4 @@
-White cloud of mist    
-perfumes her wings by floating    
-Of dark loneliness    
+In the cicada's cry    
+A frog jumps in -    
+Cold pale eyes pour tears    
 
