@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-thoughts come - and there is loneliness;    
-and gazes at the moon.    
+The summer grasses.    
+let us arrange these flowers    
+A solitary bird    
 
