@@ -1,4 +1,4 @@
 Temple bells die out.    
-let us arrange these flowers    
-Stabs the darkness    
+loneliness? Just one leaf    
+Come to rest our necks    
 
