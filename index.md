@@ -1,4 +1,4 @@
-The summer grasses.    
-let us arrange these flowers    
-A solitary bird    
+Clouds come from time to time -    
+All that remains    
+With tears.    
 
