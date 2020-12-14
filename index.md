@@ -1,4 +1,4 @@
-Temple bells die out.    
-is quieted with creepers    
-Morning-glory gazing    
+The rains of summer join together.    
+from cold streamlets for the sea    
+Basho lines the moon    
 
