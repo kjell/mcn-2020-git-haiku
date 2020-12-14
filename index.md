@@ -1,4 +1,4 @@
-Chirping of the quails    
-Penetrating the very rock,    
-Murmuring Mogami    
+Will we meet again    
+just enough to bend the leaves    
+Seasoned with petals    
 
