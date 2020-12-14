@@ -1,4 +1,4 @@
-Spring is passing.    
-stretching over Sado Island    
-It’s the Doll’s Festival.    
+If there were fragrance    
+All that remains    
+from looking at the moon.    
 
