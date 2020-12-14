@@ -1,4 +1,4 @@
-Silent the old town    
-falling, falling, falling now    
-A water-jewel    
+Carven gods long gone    
+stretching over Sado Island    
+Contemptuous of frost    
 
