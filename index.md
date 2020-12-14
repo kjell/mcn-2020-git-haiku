@@ -1,4 +1,4 @@
-Cold first winter rain    
-tolling twilight bell; Temple    
-and gazes at the moon.    
+Cloud of cherry-bloom    
+loneliness? Just one leaf    
+Seasoned with petals    
 
