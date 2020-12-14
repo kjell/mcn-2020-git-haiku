@@ -1,4 +1,4 @@
-Spring is passing.    
-spare my little buzzing friends    
-Murmuring Mogami    
+Poverty's child -    
+the scent of flowers floating    
+are darkened    
 
