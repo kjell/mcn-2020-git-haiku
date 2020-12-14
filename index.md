@@ -1,4 +1,4 @@
-Spring is passing.    
-scatters in the night; Now see    
-These dark hands of life    
+In the sea-surf edge    
+poor monkey, you too could use    
+Or backyard love?    
 
