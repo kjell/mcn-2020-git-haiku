@@ -1,4 +1,4 @@
-Poverty's child -    
-the scent of flowers floating    
-are darkened    
+Lightning -    
+Line that won't be deleted    
+Since there is no rice    
 
