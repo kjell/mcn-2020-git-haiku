@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-that black crow I hate so much    
-Of faded daffodils    
+Clouds come from time to time -    
+Line that won't be deleted    
+are darkened    
 
