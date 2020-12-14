@@ -1,4 +1,4 @@
-Glorious the moon    
-The lips feel cold.    
-Marks only midnight yet    
+Dry cheerful cricket    
+A frog jumps in -    
+A water-jewel    
 
