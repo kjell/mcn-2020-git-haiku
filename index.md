@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-Line that won't be deleted    
-are darkened    
+White cloud of mist    
+There's no sign that can foretell    
+Our hungry donkey    
 
