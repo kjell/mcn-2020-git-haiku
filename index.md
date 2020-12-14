@@ -1,4 +1,4 @@
-The river gathering may rains    
-let us to the road again    
-It’s the Doll’s Festival.    
+In the sea-surf edge    
+Penetrating the very rock,    
+A lovely sunset    
 
