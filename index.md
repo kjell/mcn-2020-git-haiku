@@ -1,4 +1,4 @@
-This snowy morning    
-falling, falling, falling now    
-The Autumn wind.    
+None is travelling    
+poor monkey, you too could use    
+A perfect evening!    
 
