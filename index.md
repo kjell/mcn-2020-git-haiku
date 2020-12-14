@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-All that remains    
-With tears.    
+Oh, tranquility!    
+he starts to grind the rice,    
+A cicada’s voice.    
 
