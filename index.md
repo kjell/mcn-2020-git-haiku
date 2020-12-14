@@ -1,4 +1,4 @@
-The first day of the year:    
-these heavy snow-flakes settling    
-Our hungry donkey    
+Won't you come and see    
+The birds cry, and the fishes’ eyes are     
+Seasoned with petals    
 
