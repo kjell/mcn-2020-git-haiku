@@ -1,4 +1,4 @@
-Lightning -    
-just enough to bend the leaves    
-are darkened    
+First white snow of fall    
+mingling with bright small shells    
+It’s the Doll’s Festival.    
 
