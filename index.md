@@ -1,4 +1,4 @@
-Seek on high bare trails    
-Line that won't be deleted    
-Morning-glory gazing    
+Poverty's child -    
+A frog jumps in -    
+The Autumn wind.    
 
