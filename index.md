@@ -1,4 +1,4 @@
-None is travelling    
-soup, the salad, fish and all    
-Or backyard love?    
+No oil to read by    
+these brilliant-hued hibiscus    
+Darting dragon-fly!    
 
