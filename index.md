@@ -1,4 +1,4 @@
-Now the swinging bridge    
-visit the ancestral grave    
-Marks only midnight yet    
+Dawn-shining mountains    
+The lips feel cold.    
+They meet, they mate    
 
