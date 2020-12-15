@@ -1,4 +1,4 @@
-The rains of summer join together.    
-dead leaves alone foregather    
-Murmuring Mogami    
+Clouds come from time to time -    
+soup, the salad, fish and all    
+Of warriors’ dreams.    
 
