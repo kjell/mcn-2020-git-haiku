@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-to see the moon, whose solemn pace    
-Cold pale eyes pour tears    
+White cloud of mist    
+the scent of flowers floating    
+The Autumn wind.    
 
