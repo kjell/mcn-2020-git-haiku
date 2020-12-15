@@ -1,4 +1,4 @@
-First white snow of fall    
-There's no sign that can foretell    
-Waterfall music    
+Now that eyes of hawks    
+Heron's cry    
+How soon it must die.    
 
