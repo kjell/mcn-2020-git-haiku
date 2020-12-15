@@ -1,4 +1,4 @@
-This is the new line    
-poor monkey, you too could use    
-and gazes at the moon.    
+The sea darkening    
+in dusky night    
+It’s the Doll’s Festival.    
 
