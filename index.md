@@ -1,4 +1,4 @@
-White cloud of mist    
-the scent of flowers floating    
-The Autumn wind.    
+None is travelling    
+soup, the salad, fish and all    
+Or backyard love?    
 
