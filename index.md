@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-in your brief sweet waters    
+A owner of the old thatched hut    
+therefore our thanks dark clouds    
 A water-jewel    
 
