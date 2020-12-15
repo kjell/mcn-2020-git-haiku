@@ -1,4 +1,4 @@
-If there were fragrance    
-even the crickets' singing    
-Come to rest our necks    
+See: surviving suns    
+thoughts come - and there is loneliness;    
+Cold pale eyes pour tears    
 
