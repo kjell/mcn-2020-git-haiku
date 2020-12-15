@@ -1,4 +1,4 @@
-Now in sad autumn    
-perfumes her wings by floating    
-Waterfall music    
+Too curious flower    
+All that remains    
+A perfect evening!    
 
