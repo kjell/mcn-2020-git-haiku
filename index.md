@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-loneliness? Just one leaf    
-With tears.    
+Dewdrop, let me cleanse    
+The fragrant blossoms remain.    
+and gazes at the moon.    
 
