@@ -1,4 +1,4 @@
-Lightning -    
-There's no sign that can foretell    
-Over the orchid    
+Temple bells die out.    
+Twilight whippoorwill, whistle on, sweet deepener    
+Waterfall music    
 
