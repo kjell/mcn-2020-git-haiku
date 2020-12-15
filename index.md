@@ -1,4 +1,4 @@
-First white snow of fall    
-as I take my darkening path    
-Or backyard love?    
+Chirping of the quails    
+Here along this way but I,    
+Mogami River.    
 
