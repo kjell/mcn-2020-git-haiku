@@ -1,4 +1,4 @@
-Lightning -    
-I am off to bed - but ah!    
-How soon it must die.    
+Clouds come from time to time -    
+captains swore grand conquest    
+A butterfly floats and balances    
 
