@@ -1,4 +1,4 @@
-Now the swinging bridge    
-these heavy snow-flakes settling    
-Mogami River.    
+Lady butterfly    
+to see the moon, whose solemn pace    
+It’s the Doll’s Festival.    
 
