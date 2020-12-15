@@ -1,4 +1,4 @@
-See: surviving suns    
-thoughts come - and there is loneliness;    
-Cold pale eyes pour tears    
+Must springtime fade?    
+in your brief sweet waters    
+Crying, whirling, white    
 
