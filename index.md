@@ -1,4 +1,4 @@
-The sea darkening    
-in dusky night    
-It’s the Doll’s Festival.    
+For a lovely bowl    
+as I take my darkening path    
+But he's beautiful!    
 
