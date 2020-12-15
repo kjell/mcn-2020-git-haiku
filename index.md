@@ -1,4 +1,4 @@
-Too curious flower    
-All that remains    
-A perfect evening!    
+In the cicada's cry    
+just enough to bend the leaves    
+cherry-blossoms . . .    
 
