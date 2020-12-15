@@ -1,4 +1,4 @@
-Under cherry-trees    
-from cold streamlets for the sea    
+See: surviving suns    
+it needs but shiny wings and look    
 A perfect evening!    
 
