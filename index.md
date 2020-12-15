@@ -1,4 +1,4 @@
-Under cherry-trees    
-and bring to men a chance to rest    
-cherry-blossoms . . .    
+Wake! The sky is light!    
+loneliness? Just one leaf    
+With tears.    
 
