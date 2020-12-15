@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-therefore our thanks dark clouds    
-A water-jewel    
+See: surviving suns    
+Is also changed to another    
+Lilies on the rocks    
 
