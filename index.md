@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-soup, the salad, fish and all    
-Of warriors’ dreams.    
+In the sea-surf edge    
+A frog jumps in -    
+With tears.    
 
