@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-captains swore grand conquest    
-A butterfly floats and balances    
+Dawn-shining mountains    
+scatters in the night; Now see    
+Of warriors’ dreams.    
 
