@@ -1,4 +1,4 @@
-Now in sad autumn    
-Penetrating the very rock,    
-Of faded daffodils    
+Dewdrop, let me cleanse    
+captains swore grand conquest    
+Splash!    
 
