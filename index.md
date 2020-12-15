@@ -1,4 +1,4 @@
-See: surviving suns    
-oh voices of the wild ducks    
-Or backyard love?    
+None is travelling    
+scatters in the night; Now see    
+Come to rest our necks    
 
