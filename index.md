@@ -1,4 +1,4 @@
-In the twilight rain    
-Heron's cry    
-Mountain-top jewels    
+See: surviving suns    
+oh voices of the wild ducks    
+Or backyard love?    
 
