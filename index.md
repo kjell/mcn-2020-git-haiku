@@ -1,4 +1,4 @@
-If there were fragrance    
-just enough to bend the leaves    
-Waterfall music    
+The first day of the year:    
+starving for fat fish or mice    
+Crying, whirling, white    
 
