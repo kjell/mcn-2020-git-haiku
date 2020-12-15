@@ -1,4 +1,4 @@
-In the cicada's cry    
-captains swore grand conquest    
-Marks only midnight yet    
+This is the new line    
+poor monkey, you too could use    
+and gazes at the moon.    
 
