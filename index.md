@@ -1,4 +1,4 @@
-Cold first winter rain    
-then cry all birds and fishes    
-Cherry-blossoms    
+An old pond    
+therefore our thanks dark clouds    
+Over the orchid    
 
