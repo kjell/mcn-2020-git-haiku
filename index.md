@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-I am off to bed - but ah!    
-Mogami River.    
+Dawn-shining mountains    
+Is also changed to another    
+Like our tendrilled life    
 
