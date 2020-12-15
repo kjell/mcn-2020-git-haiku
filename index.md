@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-even the crickets' singing    
-How soon it must die.    
+Now in sad autumn    
+it needs but shiny wings and look    
+With tears.    
 
