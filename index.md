@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-captains swore grand conquest    
-Splash!    
+Such utter silence!    
+starving for fat fish or mice    
+A lovely sunset    
 
