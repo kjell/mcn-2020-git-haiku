@@ -1,4 +1,4 @@
-See: surviving suns    
-Is also changed to another    
-Lilies on the rocks    
+Mountain-rose petals    
+visit the ancestral grave    
+Mogami River.    
 
