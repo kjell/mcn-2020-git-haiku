@@ -1,4 +1,4 @@
-Lightning -    
-April's air stirs in willow-leaves    
-Of faded daffodils    
+The rains of summer join together.    
+loneliness? Just one leaf    
+It’s the Doll’s Festival.    
 
