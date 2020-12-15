@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-even the crickets' singing    
-A perfect evening!    
+Cold first winter rain    
+then cry all birds and fishes    
+Cherry-blossoms    
 
