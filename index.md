@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-Is also changed to another    
-Like our tendrilled life    
+If there were fragrance    
+just enough to bend the leaves    
+Waterfall music    
 
