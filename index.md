@@ -1,4 +1,4 @@
-Temple bells die out.    
-Twilight whippoorwill, whistle on, sweet deepener    
-Waterfall music    
+The rains of summer join together.    
+dead leaves alone foregather    
+Murmuring Mogami    
 
