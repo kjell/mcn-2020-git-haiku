@@ -1,4 +1,4 @@
-In the sea-surf edge    
-A frog jumps in -    
-With tears.    
+Spring is passing.    
+There's no sign that can foretell    
+Bearded, with bent canes    
 
