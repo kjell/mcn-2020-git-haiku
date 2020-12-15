@@ -1,4 +1,4 @@
-Now in sad autumn    
-it needs but shiny wings and look    
-With tears.    
+First white snow of fall    
+There's no sign that can foretell    
+Waterfall music    
 
