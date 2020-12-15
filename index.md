@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-The lips feel cold.    
-They meet, they mate    
+None is travelling    
+the scent of flowers floating    
+Marks only midnight yet    
 
