@@ -1,4 +1,4 @@
-In the sea-surf edge    
-The birds cry, and the fishes’ eyes are     
-This autumn evening.    
+Bright red pepper-pod    
+even the crickets' singing    
+How soon it must die.    
 
