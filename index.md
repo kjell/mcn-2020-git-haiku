@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-The fragrant blossoms remain.    
-and gazes at the moon.    
+Under cherry-trees    
+from cold streamlets for the sea    
+A perfect evening!    
 
