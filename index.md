@@ -1,4 +1,4 @@
-First white snow of fall    
-fell in silent dawn, spilling    
-Bearded, with bent canes    
+The first day of the year:    
+loneliness? Just one leaf    
+Stabs the darkness    
 
