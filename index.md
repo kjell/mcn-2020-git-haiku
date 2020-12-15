@@ -1,4 +1,4 @@
-Lady butterfly    
-to see the moon, whose solemn pace    
-It’s the Doll’s Festival.    
+Now the swinging bridge    
+visit the ancestral grave    
+Marks only midnight yet    
 
