@@ -1,4 +1,4 @@
-Chirping of the quails    
-A frog jumps in -    
-Moon-lighted mountains!    
+Cold first winter rain    
+captains swore grand conquest    
+Or backyard love?    
 
