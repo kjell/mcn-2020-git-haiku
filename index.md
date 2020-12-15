@@ -1,4 +1,4 @@
-Such utter silence!    
-starving for fat fish or mice    
-A lovely sunset    
+Cold first winter rain    
+and bring to men a chance to rest    
+Of warriors’ dreams.    
 
