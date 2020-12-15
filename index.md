@@ -1,4 +1,4 @@
-In the cicada's cry    
-Here along this way but I,    
-Of dark loneliness    
+Under cherry-trees    
+these brilliant-hued hibiscus    
+And evening bell    
 
