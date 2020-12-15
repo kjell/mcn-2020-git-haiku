@@ -1,4 +1,4 @@
-Black cloudbank broken    
-here at your flowering grave    
-Among the flowers    
+Lightning -    
+I am off to bed - but ah!    
+How soon it must die.    
 
