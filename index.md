@@ -1,4 +1,4 @@
-An old pond    
-and bring to men a chance to rest    
-Stabs the darkness    
+Cold first winter rain    
+is quieted with creepers    
+Bush-clover petals    
 
