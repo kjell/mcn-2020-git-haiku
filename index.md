@@ -1,4 +1,4 @@
-Nine times arising    
-then cry all birds and fishes    
-Waterfall music    
+Chirping of the quails    
+A frog jumps in -    
+Moon-lighted mountains!    
 
