@@ -1,4 +1,4 @@
-In the cicada's cry    
-poor monkey, you too could use    
-A water-jewel    
+Lightning -    
+There's no sign that can foretell    
+Over the orchid    
 
