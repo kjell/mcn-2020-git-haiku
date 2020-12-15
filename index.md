@@ -1,4 +1,4 @@
-Chirping of the quails    
-Here along this way but I,    
-Mogami River.    
+Now in sad autumn    
+Penetrating the very rock,    
+Of faded daffodils    
 
