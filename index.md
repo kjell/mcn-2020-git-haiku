@@ -1,4 +1,4 @@
-An old pond    
-therefore our thanks dark clouds    
-Over the orchid    
+In the cicada's cry    
+captains swore grand conquest    
+Marks only midnight yet    
 
