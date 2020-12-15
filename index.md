@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-that black crow I hate so much    
-It’s the Doll’s Festival.    
+Why so scrawny, cat?    
+in your brief sweet waters    
+A water-jewel    
 
