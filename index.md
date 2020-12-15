@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-Heron's cry    
-How soon it must die.    
+Black cloudbank broken    
+here at your flowering grave    
+Among the flowers    
 
