@@ -1,4 +1,4 @@
-Cold first winter rain    
-captains swore grand conquest    
-Or backyard love?    
+Clouds come from time to time -    
+I am off to bed - but ah!    
+Mogami River.    
 
