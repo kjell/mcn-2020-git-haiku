@@ -1,4 +1,4 @@
-Cold first winter rain    
-is quieted with creepers    
-Bush-clover petals    
+Now that eyes of hawks    
+even the crickets' singing    
+A perfect evening!    
 
