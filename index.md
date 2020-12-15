@@ -1,4 +1,4 @@
-See: surviving suns    
-it needs but shiny wings and look    
-A perfect evening!    
+Under cherry-trees    
+to see the moon, whose solemn pace    
+With tears.    
 
