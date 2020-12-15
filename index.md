@@ -1,4 +1,4 @@
-In the cicada's cry    
-just enough to bend the leaves    
-cherry-blossoms . . .    
+If there were fragrance    
+even the crickets' singing    
+Come to rest our necks    
 
