@@ -1,4 +1,4 @@
-The first day of the year:    
-starving for fat fish or mice    
-Crying, whirling, white    
+Wake! The sky is light!    
+falling, falling, falling now    
+Muffled by hot rocks    
 
