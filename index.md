@@ -1,4 +1,4 @@
-Won't you come and see    
-The fragrant blossoms remain.    
-Come to rest our necks    
+In the sea-surf edge    
+The birds cry, and the fishes’ eyes are     
+This autumn evening.    
 
