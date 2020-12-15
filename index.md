@@ -1,4 +1,4 @@
-Spring is passing.    
-There's no sign that can foretell    
-Bearded, with bent canes    
+Swallow in the dusk    
+Is also changed to another    
+from the kiri tree.    
 
