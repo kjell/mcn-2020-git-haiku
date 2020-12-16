@@ -1,4 +1,4 @@
-Oh, tranquility!    
-scatters in the night; Now see    
-Mogami River.    
+Clouds come from time to time -    
+above white    
+A cicada’s voice.    
 
