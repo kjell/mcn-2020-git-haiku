@@ -1,4 +1,4 @@
-Too curious flower    
-There's no sign that can foretell    
-Bush-clover petals    
+Old dark sleepy pool    
+dead leaves alone foregather    
+This autumn evening.    
 
