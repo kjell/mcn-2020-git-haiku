@@ -1,4 +1,4 @@
-First white snow of fall    
-above white    
-How soon it must die.    
+Dry cheerful cricket    
+the scent of flowers floating    
+Tall grass their monument    
 
