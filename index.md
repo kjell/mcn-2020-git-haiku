@@ -1,4 +1,4 @@
 Temple bells die out.    
-therefore our thanks dark clouds    
-The Autumn wind.    
+from cold streamlets for the sea    
+Come to rest our necks    
 
