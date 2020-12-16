@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-sky-reflecting violets    
-Like our tendrilled life    
+In the cicada's cry    
+Heron's cry    
+A cicada’s voice.    
 
