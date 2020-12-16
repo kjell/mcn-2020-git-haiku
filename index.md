@@ -1,4 +1,4 @@
-Won't you come and see    
-perfumes her wings by floating    
-Ueno? Asakura?    
+First white snow of fall    
+above white    
+How soon it must die.    
 
