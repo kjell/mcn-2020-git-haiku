@@ -1,4 +1,4 @@
-Poverty's child -    
-spare my little buzzing friends    
-A cicada’s voice.    
+First white snow of fall    
+even the crickets' singing    
+Mogami River.    
 
