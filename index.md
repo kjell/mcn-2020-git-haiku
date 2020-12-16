@@ -1,4 +1,4 @@
-Black cloudbank broken    
-the scent of flowers floating    
-Marks only midnight yet    
+Temple bells die out.    
+visit the ancestral grave    
+Like our tendrilled life    
 
