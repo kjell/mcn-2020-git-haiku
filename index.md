@@ -1,4 +1,4 @@
-Must springtime fade?    
-Penetrating the very rock,    
-are darkened    
+Dawn-shining mountains    
+tolling twilight bell; Temple    
+Seasoned with petals    
 
