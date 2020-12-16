@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-Line that won't be deleted    
-are darkened    
+Ah me! I am one    
+April's air stirs in willow-leaves    
+from looking at the moon.    
 
