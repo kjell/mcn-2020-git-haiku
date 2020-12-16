@@ -1,4 +1,4 @@
-Poverty's child -    
-spare my little buzzing friends    
-Mountain-top jewels    
+Why so scrawny, cat?    
+The fragrant blossoms remain.    
+Of warriors’ dreams.    
 
