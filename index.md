@@ -1,4 +1,4 @@
-The river gathering may rains    
-that black crow I hate so much    
-A water-jewel    
+Black cloudbank broken    
+the scent of flowers floating    
+Marks only midnight yet    
 
