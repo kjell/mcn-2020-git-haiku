@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-The fragrant blossoms remain.    
-from looking at the moon.    
+The river gathering may rains    
+that black crow I hate so much    
+A water-jewel    
 
