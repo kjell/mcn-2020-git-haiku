@@ -1,4 +1,4 @@
-This snowy morning    
-and bring to men a chance to rest    
-Companion butterfly!    
+The rains of summer join together.    
+Penetrating the very rock,    
+A water-jewel    
 
