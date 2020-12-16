@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-There's no sign that can foretell    
-They meet, they mate    
+The first day of the year:    
+quick unexpected frog    
+Among the flowers    
 
