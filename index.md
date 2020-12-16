@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-tolling twilight bell; Temple    
-Seasoned with petals    
+When you say something,    
+in your brief sweet waters    
+Basho lines the moon    
 
