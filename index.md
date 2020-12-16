@@ -1,4 +1,4 @@
-Under cherry-trees    
-just enough to bend the leaves    
-This autumn evening.    
+Clouds come from time to time -    
+Twilight whippoorwill, whistle on, sweet deepener    
+It’s the Doll’s Festival.    
 
