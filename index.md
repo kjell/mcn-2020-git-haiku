@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-thoughts come - and there is loneliness;    
-This autumn evening.    
+The river gathering may rains    
+he starts to grind the rice,    
+are darkened . . .    
 
