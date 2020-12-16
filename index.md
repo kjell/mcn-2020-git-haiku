@@ -1,4 +1,4 @@
-Black cloudbank broken    
-he starts to grind the rice,    
-Cherry-blossoms    
+Poverty's child -    
+spare my little buzzing friends    
+Mountain-top jewels    
 
