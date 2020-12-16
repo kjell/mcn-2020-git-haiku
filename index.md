@@ -1,4 +1,4 @@
-The sea darkening    
-How swift it is    
-A perfect evening!    
+The rains of summer join together.    
+above white    
+Stabs the darkness    
 
