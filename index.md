@@ -1,4 +1,4 @@
-Temple bells die out.    
-from cold streamlets for the sea    
+Dawn-shining mountains    
+thoughts come - and there is loneliness;    
 Come to rest our necks    
 
