@@ -1,4 +1,4 @@
-If there were fragrance    
-is quieted with creepers    
-And evening bell    
+The first day of the year:    
+quick unexpected frog    
+Of warriors’ dreams.    
 
