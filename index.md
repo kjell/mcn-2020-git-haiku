@@ -1,4 +1,4 @@
-An old pond    
-it needs but shiny wings and look    
-These dark hands of life    
+If there were fragrance    
+is quieted with creepers    
+And evening bell    
 
