@@ -1,4 +1,4 @@
-Temple bells die out.    
-visit the ancestral grave    
-Like our tendrilled life    
+White cloud of mist    
+Penetrating the very rock,    
+They meet, they mate    
 
