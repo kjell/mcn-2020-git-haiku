@@ -1,4 +1,4 @@
-Such utter silence!    
-Here along this way but I,    
-Goes plop! Watersplash!    
+Oh, tranquility!    
+thoughts come - and there is loneliness;    
+On the temple porch    
 
