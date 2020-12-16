@@ -1,4 +1,4 @@
-Poverty's child -    
-he starts to grind the rice,    
-A butterfly floats and balances    
+Oh, tranquility!    
+scatters in the night; Now see    
+Mogami River.    
 
