@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-perfumes her wings by floating    
-A perfect evening!    
+When you say something,    
+who spends his little breakfast    
+And evening bell    
 
