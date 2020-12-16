@@ -1,4 +1,4 @@
-Here, where a thousand    
-just enough to bend the leaves    
-Stabs the darkness    
+Temple bells die out.    
+thoughts come - and there is loneliness;    
+Cherry-blossoms    
 
