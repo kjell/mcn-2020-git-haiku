@@ -1,4 +1,4 @@
-Here, where a thousand    
-thoughts come - and there is loneliness;    
-But he's beautiful!    
+This is the new line    
+perfumes her wings by floating    
+These dark hands of life    
 
