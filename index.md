@@ -1,4 +1,4 @@
-Lightning -    
-these brilliant-hued hibiscus    
-Of warriors’ dreams.    
+Dry cheerful cricket    
+sky-reflecting violets    
+Like our tendrilled life    
 
