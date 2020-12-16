@@ -1,4 +1,4 @@
-White cloud of mist    
-Penetrating the very rock,    
-They meet, they mate    
+Temple bells die out.    
+let us to the road again    
+Waterfall music    
 
