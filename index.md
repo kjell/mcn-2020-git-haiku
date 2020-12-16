@@ -1,4 +1,4 @@
-An old pond    
-the scent of flowers floating    
-How soon it must die.    
+Under cherry-trees    
+just enough to bend the leaves    
+This autumn evening.    
 
