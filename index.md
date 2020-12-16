@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-thoughts come - and there is loneliness;    
-Since there is no rice    
+Must springtime fade?    
+spare my little buzzing friends    
+Of warriors’ dreams.    
 
