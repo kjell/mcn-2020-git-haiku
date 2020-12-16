@@ -1,4 +1,4 @@
-Seas are wild tonight    
+A owner of the old thatched hut    
 thoughts come - and there is loneliness;    
-From the kiri tree.    
+This autumn evening.    
 
