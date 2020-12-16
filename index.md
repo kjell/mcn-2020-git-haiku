@@ -1,4 +1,4 @@
-This is the new line    
-perfumes her wings by floating    
-These dark hands of life    
+Now in sad autumn    
+The fragrant blossoms remain.    
+Crying, whirling, white    
 
