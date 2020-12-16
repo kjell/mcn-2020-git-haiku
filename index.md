@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-scatters in the night; Now see    
-Of warriors’ dreams.    
+Must springtime fade?    
+Penetrating the very rock,    
+are darkened    
 
