@@ -1,4 +1,4 @@
-The rains of summer join together.    
-therefore our thanks dark clouds    
-Morning-glory gazing    
+Here, where a thousand    
+just enough to bend the leaves    
+Stabs the darkness    
 
