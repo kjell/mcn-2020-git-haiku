@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-who spends his little breakfast    
-Tall grass their monument    
+Black cloudbank broken    
+he starts to grind the rice,    
+Cherry-blossoms    
 
