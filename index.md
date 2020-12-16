@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-oh voices of the wild ducks    
-Basho lines the moon    
+The rains of summer join together.    
+therefore our thanks dark clouds    
+Morning-glory gazing    
 
