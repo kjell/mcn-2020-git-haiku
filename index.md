@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-the scent of flowers floating    
-Tall grass their monument    
+Cold first winter rain    
+captains swore grand conquest    
+Darting dragon-fly!    
 
