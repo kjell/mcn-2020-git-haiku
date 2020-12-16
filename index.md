@@ -1,4 +1,4 @@
-Now in sad autumn    
+In the cicada's cry    
 The fragrant blossoms remain.    
-Crying, whirling, white    
+A little woven cape    
 
