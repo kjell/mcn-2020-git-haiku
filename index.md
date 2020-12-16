@@ -1,4 +1,4 @@
 Old dark sleepy pool    
-even the crickets' singing    
-Stabs the darkness    
+There's no sign that can foretell    
+They meet, they mate    
 
