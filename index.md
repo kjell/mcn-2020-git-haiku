@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
+Dawn-shining mountains    
 The fragrant blossoms remain.    
-Of warriors’ dreams.    
+from looking at the moon.    
 
