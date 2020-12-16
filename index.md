@@ -1,4 +1,4 @@
-Must springtime fade?    
-spare my little buzzing friends    
-Of warriors’ dreams.    
+Cold first winter rain    
+April's air stirs in willow-leaves    
+Like our tendrilled life    
 
