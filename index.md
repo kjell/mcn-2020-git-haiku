@@ -1,4 +1,4 @@
 Clouds come from time to time -    
-above white    
-A cicada’s voice.    
+April's air stirs in willow-leaves    
+A perfect evening!    
 
