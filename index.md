@@ -1,4 +1,4 @@
-Cold first winter rain    
-captains swore grand conquest    
-Darting dragon-fly!    
+Poverty's child -    
+he starts to grind the rice,    
+A butterfly floats and balances    
 
