@@ -1,4 +1,4 @@
-The first day of the year:    
-quick unexpected frog    
-Of warriors’ dreams.    
+Spring is passing.    
+starving for fat fish or mice    
+A cicada’s voice.    
 
