@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-here at your flowering grave    
-the autumn dusk is here.    
+Dewdrop, let me cleanse    
+perfumes her wings by floating    
+A perfect evening!    
 
