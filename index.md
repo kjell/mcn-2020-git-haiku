@@ -1,4 +1,4 @@
-Temple bells die out.    
-let us to the road again    
-Waterfall music    
+Spring is passing.    
+watching us pass, met death    
+Basho lines the moon    
 
