@@ -1,4 +1,4 @@
-Cold first winter rain    
-April's air stirs in willow-leaves    
-Like our tendrilled life    
+Here, where a thousand    
+thoughts come - and there is loneliness;    
+But he's beautiful!    
 
