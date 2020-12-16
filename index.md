@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-thoughts come - and there is loneliness;    
-Come to rest our necks    
+This snowy morning    
+and bring to men a chance to rest    
+Companion butterfly!    
 
