@@ -1,4 +1,4 @@
-When you say something,    
-who spends his little breakfast    
-And evening bell    
+Won't you come and see    
+perfumes her wings by floating    
+Ueno? Asakura?    
 
