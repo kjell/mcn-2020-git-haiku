@@ -1,4 +1,4 @@
-Temple bells die out.    
-thoughts come - and there is loneliness;    
-Cherry-blossoms    
+Lightning -    
+these brilliant-hued hibiscus    
+Of warriors’ dreams.    
 
