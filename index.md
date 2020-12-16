@@ -1,4 +1,4 @@
-When you say something,    
-in your brief sweet waters    
-Basho lines the moon    
+The sea darkening    
+How swift it is    
+A perfect evening!    
 
