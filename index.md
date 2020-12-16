@@ -1,4 +1,4 @@
-First white snow of fall    
-even the crickets' singing    
-Mogami River.    
+Clouds come from time to time -    
+thoughts come - and there is loneliness;    
+Since there is no rice    
 
