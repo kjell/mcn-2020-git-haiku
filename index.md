@@ -1,4 +1,4 @@
-The rains of summer join together.    
-above white    
-Stabs the darkness    
+An old pond    
+it needs but shiny wings and look    
+These dark hands of life    
 
