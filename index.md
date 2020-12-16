@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-Twilight whippoorwill, whistle on, sweet deepener    
+Under cherry-trees    
+the scent of flowers floating    
 It’s the Doll’s Festival.    
 
