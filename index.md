@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-here at your flowering grave    
-Muffled by hot rocks    
+Such utter silence!    
+Here along this way but I,    
+Goes plop! Watersplash!    
 
