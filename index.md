@@ -1,4 +1,4 @@
-None is travelling    
-and bring to men a chance to rest    
-A cicada’s voice.    
+First white snow of fall    
+Twilight whippoorwill, whistle on, sweet deepener    
+Bush-clover petals    
 
