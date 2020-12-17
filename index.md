@@ -1,4 +1,4 @@
-No oil to read by    
-to see the moon, whose solemn pace    
-Lilies on the rocks    
+Carven gods long gone    
+How swift it is    
+From the kiri tree.    
 
