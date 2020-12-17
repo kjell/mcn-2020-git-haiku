@@ -1,4 +1,4 @@
-Carven gods long gone    
+Now that eyes of hawks    
 captains swore grand conquest    
-Mogami River.    
+Ueno? Asakura?    
 
