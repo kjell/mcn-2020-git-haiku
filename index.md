@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-then cry all birds and fishes    
-And evening bell    
+No oil to read by    
+to see the moon, whose solemn pace    
+Lilies on the rocks    
 
