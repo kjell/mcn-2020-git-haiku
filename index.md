@@ -1,4 +1,4 @@
-Carven gods long gone    
-visit the ancestral grave    
+Black cloudbank broken    
+let us to the road again    
 Mogami River.    
 
