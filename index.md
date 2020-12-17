@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-Heron's cry    
-How soon it must die.    
+Won't you come and see    
+just enough to bend the leaves    
+They meet, they mate    
 
