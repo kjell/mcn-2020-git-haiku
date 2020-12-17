@@ -1,4 +1,4 @@
-White cloud of mist    
-mingling with bright small shells    
+In the twilight rain    
+Here along this way but I,    
 Since there is no rice    
 
