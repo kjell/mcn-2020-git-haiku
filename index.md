@@ -1,4 +1,4 @@
-Nine times arising    
-Is also changed to another    
-Since there is no rice    
+A owner of the old thatched hut    
+then cry all birds and fishes    
+And evening bell    
 
