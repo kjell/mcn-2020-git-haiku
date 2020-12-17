@@ -1,4 +1,4 @@
-When you say something,    
-is quieted with creepers    
-are darkened    
+Such utter silence!    
+captains swore grand conquest    
+from looking at the moon.    
 
