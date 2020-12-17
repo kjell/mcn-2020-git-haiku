@@ -1,4 +1,4 @@
-This is the new line    
-falling, falling, falling now    
-Like our tendrilled life    
+Wake! The sky is light!    
+chirping, keeps the autumn gay    
+Over the orchid    
 
