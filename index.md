@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-perfumes her wings by floating    
-Splash!    
+This snowy morning    
+April's air stirs in willow-leaves    
+With tears.    
 
