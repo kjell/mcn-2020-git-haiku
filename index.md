@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-captains swore grand conquest    
-Ueno? Asakura?    
+In the twilight rain    
+oh voices of the wild ducks    
+Like our tendrilled life    
 
