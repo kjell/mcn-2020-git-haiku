@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-oh voices of the wild ducks    
-Muffled by hot rocks    
+When you say something,    
+let us to the road again    
+Cherry-blossoms    
 
