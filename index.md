@@ -1,4 +1,4 @@
-Swallow in the dusk    
-watching us pass, met death    
-From the kiri tree.    
+Poverty's child -    
+chirping, keeps the autumn gay    
+It’s the Doll’s Festival.    
 
