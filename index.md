@@ -1,4 +1,4 @@
-Won't you come and see    
-just enough to bend the leaves    
-They meet, they mate    
+Ah me! I am one    
+the scent of flowers floating    
+Waterfall music    
 
