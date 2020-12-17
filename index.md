@@ -1,4 +1,4 @@
-Nine times arising    
-that black crow I hate so much    
-The autumn dusk is here.    
+Carven gods long gone    
+visit the ancestral grave    
+Mogami River.    
 
