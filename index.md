@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-let us to the road again    
-But he's beautiful!    
+An old pond    
+and bring to men a chance to rest    
+How soon it must die.    
 
