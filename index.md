@@ -1,4 +1,4 @@
-Poverty's child -    
-scatters in the night; Now see    
-Silent clouds of stars    
+Too curious flower    
+loneliness? Just one leaf    
+Seasoned with petals    
 
