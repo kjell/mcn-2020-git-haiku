@@ -1,4 +1,4 @@
-First white snow of fall    
-Twilight whippoorwill, whistle on, sweet deepener    
-Bush-clover petals    
+Won't you come and see    
+that black crow I hate so much    
+From the kiri tree.    
 
