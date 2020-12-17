@@ -1,4 +1,4 @@
-Temple bells die out.    
-as I take my darkening path    
-Over the orchid    
+A owner of the old thatched hut    
+Heron's cry    
+A cicada’s voice.    
 
