@@ -1,4 +1,4 @@
-Cold first winter rain    
-scatters in the night; Now see    
-Marks only midnight yet    
+White cloud of mist    
+visit the ancestral grave    
+are darkened    
 
