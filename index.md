@@ -1,4 +1,4 @@
-First white snow of fall    
-and bring to men a chance to rest    
-Tall grass their monument    
+Poverty's child -    
+scatters in the night; Now see    
+Silent clouds of stars    
 
