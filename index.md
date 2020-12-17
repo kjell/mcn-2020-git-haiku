@@ -1,4 +1,4 @@
-The river gathering may rains    
-these heavy snow-flakes settling    
-are darkened . . .    
+Clouds come from time to time -    
+oh voices of the wild ducks    
+Muffled by hot rocks    
 
