@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-he starts to grind the rice,    
-Ueno? Asakura?    
+Clouds come from time to time -    
+Heron's cry    
+Silent clouds of stars    
 
