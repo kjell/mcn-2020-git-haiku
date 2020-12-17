@@ -1,4 +1,4 @@
-Chirping of the quails    
-Heron's cry    
-It’s the Doll’s Festival.    
+Black cloudbank broken    
+visit the ancestral grave    
+Two white butterflies?    
 
