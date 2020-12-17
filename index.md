@@ -1,4 +1,4 @@
-Camellia-petal    
-captains swore grand conquest    
-Mountain-top jewels    
+None is travelling    
+and bring to men a chance to rest    
+A cicada’s voice.    
 
