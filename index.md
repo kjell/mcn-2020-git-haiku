@@ -1,4 +1,4 @@
-In the sea-surf edge    
-The birds cry, and the fishes’ eyes are     
-A little woven cape    
+The river gathering may rains    
+these heavy snow-flakes settling    
+are darkened . . .    
 
