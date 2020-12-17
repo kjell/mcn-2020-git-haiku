@@ -1,4 +1,4 @@
-Carven gods long gone    
-How swift it is    
-From the kiri tree.    
+Glorious the moon    
+and bring to men a chance to rest    
+A perfect evening!    
 
