@@ -1,4 +1,4 @@
-White cloud of mist    
-visit the ancestral grave    
-are darkened    
+A owner of the old thatched hut    
+Heron's cry    
+How soon it must die.    
 
