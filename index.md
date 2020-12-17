@@ -1,4 +1,4 @@
-Ballet in the air    
-even the crickets' singing    
-Bearded, with bent canes    
+A owner of the old thatched hut    
+he starts to grind the rice,    
+Ueno? Asakura?    
 
