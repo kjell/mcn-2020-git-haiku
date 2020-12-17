@@ -1,4 +1,4 @@
-In the twilight rain    
-Here along this way but I,    
-Since there is no rice    
+Chirping of the quails    
+then cry all birds and fishes    
+Muffled by hot rocks    
 
