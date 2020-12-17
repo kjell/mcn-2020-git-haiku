@@ -1,4 +1,4 @@
-Oh, tranquility!    
-twin butterflies until, twice white    
-Companion butterfly!    
+Swallow in the dusk    
+let us arrange these flowers    
+It’s the Doll’s Festival.    
 
