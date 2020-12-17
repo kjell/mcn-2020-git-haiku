@@ -1,4 +1,4 @@
-Swallow in the dusk    
-let us arrange these flowers    
-It’s the Doll’s Festival.    
+First white snow of fall    
+and bring to men a chance to rest    
+Tall grass their monument    
 
