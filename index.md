@@ -1,4 +1,4 @@
-Black cloudbank broken    
-visit the ancestral grave    
-Two white butterflies?    
+Old dark sleepy pool    
+perfumes her wings by floating    
+Splash!    
 
