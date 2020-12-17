@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Penetrating the very rock,    
-A water-jewel    
+Temple bells die out.    
+as I take my darkening path    
+Over the orchid    
 
