@@ -1,4 +1,4 @@
-Won't you come and see    
-falling, falling, falling now    
-Over the orchid    
+None is travelling    
+Is also changed to another    
+the autumn dusk is here.    
 
