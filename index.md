@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-The fragrant blossoms remain.    
-from looking at the moon.    
+Chirping of the quails    
+Heron's cry    
+It’s the Doll’s Festival.    
 
