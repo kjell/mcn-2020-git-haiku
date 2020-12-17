@@ -1,4 +1,4 @@
-Chirping of the quails    
-then cry all birds and fishes    
-Muffled by hot rocks    
+Bright red pepper-pod    
+The fragrant blossoms remain.    
+from looking at the moon.    
 
