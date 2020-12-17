@@ -1,4 +1,4 @@
-First white snow of fall    
-falling, falling, falling now    
+Too curious flower    
+April's air stirs in willow-leaves    
 It’s the Doll’s Festival.    
 
