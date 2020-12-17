@@ -1,4 +1,4 @@
-Now in sad autumn    
-soup, the salad, fish and all    
-cherry-blossoms . . .    
+Carven gods long gone    
+captains swore grand conquest    
+Mogami River.    
 
