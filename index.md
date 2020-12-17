@@ -1,4 +1,4 @@
-Black cloudbank broken    
-let us to the road again    
-Mogami River.    
+None is travelling    
+in your brief sweet waters    
+Bush-clover petals    
 
