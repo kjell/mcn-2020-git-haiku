@@ -1,4 +1,4 @@
-Poverty's child -    
-chirping, keeps the autumn gay    
-It’s the Doll’s Festival.    
+Seas are wild tonight    
+tolling twilight bell; Temple    
+How soon it must die.    
 
