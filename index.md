@@ -1,4 +1,4 @@
-When you say something,    
-let us to the road again    
-Cherry-blossoms    
+Oh, tranquility!    
+twin butterflies until, twice white    
+Companion butterfly!    
 
