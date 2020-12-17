@@ -1,4 +1,4 @@
-Ah me! I am one    
-the scent of flowers floating    
-Waterfall music    
+White cloud of mist    
+mingling with bright small shells    
+Since there is no rice    
 
