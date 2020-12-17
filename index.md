@@ -1,4 +1,4 @@
-Under cherry-trees    
-from cold streamlets for the sea    
-Muffled by hot rocks    
+In the sea-surf edge    
+The birds cry, and the fishes’ eyes are     
+A little woven cape    
 
