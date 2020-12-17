@@ -1,4 +1,4 @@
-Seas are wild tonight    
-tolling twilight bell; Temple    
-How soon it must die.    
+The rains of summer join together.    
+April's air stirs in willow-leaves    
+Two white butterflies?    
 
