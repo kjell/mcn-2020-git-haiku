@@ -1,4 +1,4 @@
-Won't you come and see    
-that black crow I hate so much    
-From the kiri tree.    
+When you say something,    
+is quieted with creepers    
+are darkened    
 
