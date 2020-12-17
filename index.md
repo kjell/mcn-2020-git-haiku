@@ -1,4 +1,4 @@
-Glorious the moon    
-and bring to men a chance to rest    
-A perfect evening!    
+Carven gods long gone    
+There's no sign that can foretell    
+Among the flowers    
 
