@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-chirping, keeps the autumn gay    
-Over the orchid    
+Nine times arising    
+Is also changed to another    
+Since there is no rice    
 
