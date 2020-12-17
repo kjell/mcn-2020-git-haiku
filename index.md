@@ -1,4 +1,4 @@
-Such utter silence!    
-captains swore grand conquest    
-from looking at the moon.    
+First white snow of fall    
+falling, falling, falling now    
+It’s the Doll’s Festival.    
 
