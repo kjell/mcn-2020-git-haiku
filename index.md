@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-Heron's cry    
-A cicada’s voice.    
+Under cherry-trees    
+from cold streamlets for the sea    
+Muffled by hot rocks    
 
