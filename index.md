@@ -1,4 +1,4 @@
-This snowy morning    
-April's air stirs in willow-leaves    
-With tears.    
+Camellia-petal    
+captains swore grand conquest    
+Mountain-top jewels    
 
