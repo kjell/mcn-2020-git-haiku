@@ -1,4 +1,4 @@
 Will we meet again    
-he starts to grind the rice,    
-Seasoned with petals    
+therefore our thanks dark clouds    
+From the kiri tree.    
 
