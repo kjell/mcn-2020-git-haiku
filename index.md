@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-perfumes her wings by floating    
-Come to rest our necks    
+The sea darkening    
+I am off to bed - but ah!    
+Goes plop! Watersplash!    
 
