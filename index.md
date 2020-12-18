@@ -1,4 +1,4 @@
-Chirping of the quails    
-All that remains    
-Of faded daffodils    
+In the twilight rain    
+How swift it is    
+A perfect evening!    
 
