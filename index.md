@@ -1,4 +1,4 @@
-In the twilight rain    
-How swift it is    
-A perfect evening!    
+Dry cheerful cricket    
+starving for fat fish or mice    
+Lilies on the rocks    
 
