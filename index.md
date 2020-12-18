@@ -1,4 +1,4 @@
-Temple bells die out.    
-thoughts come - and there is loneliness;    
-cherry-blossoms . . .    
+Carven gods long gone    
+mingling with bright small shells    
+Of faded daffodils    
 
