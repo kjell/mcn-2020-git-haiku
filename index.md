@@ -1,4 +1,4 @@
-The first day of the year:    
-Heron's cry    
-A cicada’s voice.    
+A owner of the old thatched hut    
+Here along this way but I,    
+the autumn dusk is here.    
 
