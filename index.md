@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-let us arrange these flowers    
-The autumn dusk is here.    
+Now the swinging bridge    
+Heron's cry    
+Morning-glory gazing    
 
