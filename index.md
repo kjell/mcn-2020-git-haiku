@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-he starts to grind the rice,    
-Of warriors’ dreams.    
+Poverty's child -    
+thoughts come - and there is loneliness;    
+It’s the Doll’s Festival.    
 
