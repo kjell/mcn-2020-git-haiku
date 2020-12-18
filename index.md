@@ -1,4 +1,4 @@
-The rains of summer join together.    
-just enough to bend the leaves    
-A little woven cape    
+Temple bells die out.    
+thoughts come - and there is loneliness;    
+cherry-blossoms . . .    
 
