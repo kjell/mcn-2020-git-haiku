@@ -1,4 +1,4 @@
-When you say something,    
-from cold streamlets for the sea    
-This autumn evening.    
+Lightning -    
+that black crow I hate so much    
+A butterfly floats and balances    
 
