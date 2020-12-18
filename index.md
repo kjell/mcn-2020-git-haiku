@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
+Lightning -    
 he starts to grind the rice,    
-Since there is no rice    
+Bush-clover petals    
 
