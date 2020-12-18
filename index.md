@@ -1,4 +1,4 @@
-Poverty's child -    
-thoughts come - and there is loneliness;    
-It’s the Doll’s Festival.    
+Bright red pepper-pod    
+oh voices of the wild ducks    
+Goes plop! Watersplash!    
 
