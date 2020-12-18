@@ -1,4 +1,4 @@
-Silent the old town    
-Penetrating the very rock,    
-Marks only midnight yet    
+When you say something,    
+from cold streamlets for the sea    
+This autumn evening.    
 
