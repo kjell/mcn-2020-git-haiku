@@ -1,4 +1,4 @@
-Nine times arising    
-falling, falling, falling now    
-Companion butterfly!    
+None is travelling    
+therefore our thanks dark clouds    
+Bush-clover petals    
 
