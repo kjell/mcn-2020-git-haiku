@@ -1,4 +1,4 @@
-Will we meet again    
-therefore our thanks dark clouds    
-From the kiri tree.    
+Silent the old town    
+Penetrating the very rock,    
+Marks only midnight yet    
 
