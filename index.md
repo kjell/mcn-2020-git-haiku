@@ -1,4 +1,4 @@
-Spring is passing.    
-fell in silent dawn, spilling    
-Of warriors’ dreams.    
+Ballet in the air    
+above white    
+Muffled by hot rocks    
 
