@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-loneliness? Just one leaf    
-On the temple porch    
+Old dark sleepy pool    
+tolling twilight bell; Temple    
+A cicada’s voice.    
 
