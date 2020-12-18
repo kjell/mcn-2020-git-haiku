@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-sky-reflecting violets    
-Seasoned with petals    
+A owner of the old thatched hut    
+from cold streamlets for the sea    
+Mogami River.    
 
