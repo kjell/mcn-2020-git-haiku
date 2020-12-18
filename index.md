@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-Here along this way but I,    
-the autumn dusk is here.    
+Now the swinging bridge    
+loneliness? Just one leaf    
+Splash!    
 
