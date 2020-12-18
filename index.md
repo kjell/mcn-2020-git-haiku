@@ -1,4 +1,4 @@
-First white snow of fall    
-A frog jumps in -    
-And evening bell    
+When you say something,    
+in dusky night    
+My moonlit pillow    
 
