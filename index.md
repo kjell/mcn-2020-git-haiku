@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-tolling twilight bell; Temple    
-A cicada’s voice.    
+A owner of the old thatched hut    
+The fragrant blossoms remain.    
+My moonlit pillow    
 
