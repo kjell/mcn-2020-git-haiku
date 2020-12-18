@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-All that remains    
-are darkened    
+Dewdrop, let me cleanse    
+he starts to grind the rice,    
+Since there is no rice    
 
