@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-How swift it is    
-Or backyard love?    
+White cloud of mist    
+twin butterflies until, twice white    
+A butterfly floats and balances    
 
