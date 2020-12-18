@@ -1,4 +1,4 @@
-Won't you come and see    
-Is also changed to another    
-Mogami River.    
+The sea darkening    
+and bring to men a chance to rest    
+With tears.    
 
