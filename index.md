@@ -1,4 +1,4 @@
-Glorious the moon    
-tolling twilight bell; Temple    
-Moon-lighted mountains!    
+Chirping of the quails    
+All that remains    
+Of faded daffodils    
 
