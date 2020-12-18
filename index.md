@@ -1,4 +1,4 @@
-Lightning -    
-that black crow I hate so much    
-A butterfly floats and balances    
+Spring is passing.    
+then cry all birds and fishes    
+From the kiri tree.    
 
