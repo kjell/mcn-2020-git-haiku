@@ -1,4 +1,4 @@
-An old pond    
-Line that won't be deleted    
-And evening bell    
+Clouds come from time to time -    
+poor monkey, you too could use    
+With tears.    
 
