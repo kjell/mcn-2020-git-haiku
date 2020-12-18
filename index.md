@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-from cold streamlets for the sea    
-Mogami River.    
+Ballet in the air    
+How swift it is    
+Darting dragon-fly!    
 
