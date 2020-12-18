@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-starving for fat fish or mice    
-Lilies on the rocks    
+White cloud of mist    
+spare my little buzzing friends    
+Morning-glory gazing    
 
