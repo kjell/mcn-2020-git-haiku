@@ -1,4 +1,4 @@
-White cloud of mist    
-twin butterflies until, twice white    
-A butterfly floats and balances    
+Too curious flower    
+sky-reflecting violets    
+A cicada’s voice.    
 
