@@ -1,4 +1,4 @@
-No oil to read by    
-the scent of flowers floating    
-Of warriors’ dreams.    
+Poverty's child -    
+All that remains    
+Mogami River.    
 
