@@ -1,4 +1,4 @@
-Lightning -    
+Will we meet again    
 he starts to grind the rice,    
-Bush-clover petals    
+Seasoned with petals    
 
