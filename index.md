@@ -1,4 +1,4 @@
-None is travelling    
-therefore our thanks dark clouds    
-Bush-clover petals    
+The river gathering may rains    
+Is also changed to another    
+This autumn evening.    
 
