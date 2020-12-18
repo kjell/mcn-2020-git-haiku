@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-All that remains    
-Marks only midnight yet    
+Won't you come and see    
+let us to the road again    
+Or backyard love?    
 
