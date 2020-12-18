@@ -1,4 +1,4 @@
-Now the swinging bridge    
-Heron's cry    
-Morning-glory gazing    
+Seas are wild tonight    
+above white    
+Stabs the darkness    
 
