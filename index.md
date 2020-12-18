@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-The fragrant blossoms remain.    
-My moonlit pillow    
+Now the swinging bridge    
+sky-reflecting violets    
+A perfect evening!    
 
