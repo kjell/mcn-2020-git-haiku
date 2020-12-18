@@ -1,4 +1,4 @@
-Won't you come and see    
-let us to the road again    
-Or backyard love?    
+Clouds come from time to time -    
+thoughts come - and there is loneliness;    
+This autumn evening.    
 
