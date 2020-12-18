@@ -1,4 +1,4 @@
-Too curious flower    
-sky-reflecting violets    
-A cicada’s voice.    
+Dawn-shining mountains    
+loneliness? Just one leaf    
+On the temple porch    
 
