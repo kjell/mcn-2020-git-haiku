@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-chirping, keeps the autumn gay    
-from the kiri tree.    
+No oil to read by    
+the scent of flowers floating    
+Of warriors’ dreams.    
 
