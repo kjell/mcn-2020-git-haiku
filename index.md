@@ -1,4 +1,4 @@
-The sea darkening    
-I am off to bed - but ah!    
-Goes plop! Watersplash!    
+Now that eyes of hawks    
+All that remains    
+Marks only midnight yet    
 
