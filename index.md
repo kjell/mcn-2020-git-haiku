@@ -1,4 +1,4 @@
-Ballet in the air    
-How swift it is    
-Darting dragon-fly!    
+Poverty's child -    
+stretching over Sado Island    
+Of warriors’ dreams.    
 
