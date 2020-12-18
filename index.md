@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-oh voices of the wild ducks    
-Goes plop! Watersplash!    
+Dawn-shining mountains    
+chirping, keeps the autumn gay    
+from the kiri tree.    
 
