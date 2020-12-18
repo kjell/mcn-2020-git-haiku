@@ -1,4 +1,4 @@
-In the sea-surf edge    
-quick unexpected frog    
-It’s the Doll’s Festival.    
+Won't you come and see    
+Is also changed to another    
+Mogami River.    
 
