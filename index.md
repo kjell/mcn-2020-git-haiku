@@ -1,4 +1,4 @@
-Seas are wild tonight    
-above white    
-Stabs the darkness    
+Dry cheerful cricket    
+perfumes her wings by floating    
+Come to rest our necks    
 
