@@ -1,4 +1,4 @@
-Here, where a thousand    
-There's no sign that can foretell    
-Muffled by hot rocks    
+First white snow of fall    
+A frog jumps in -    
+And evening bell    
 
