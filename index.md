@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-poor monkey, you too could use    
-With tears.    
+Why so scrawny, cat?    
+sky-reflecting violets    
+Seasoned with petals    
 
