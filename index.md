@@ -1,4 +1,4 @@
-Now the swinging bridge    
-loneliness? Just one leaf    
-Splash!    
+Nine times arising    
+falling, falling, falling now    
+Companion butterfly!    
 
