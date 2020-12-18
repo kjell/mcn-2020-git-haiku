@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-thoughts come - and there is loneliness;    
-This autumn evening.    
+Seek on high bare trails    
+scatters in the night; Now see    
+From the kiri tree.    
 
