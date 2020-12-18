@@ -1,4 +1,4 @@
-The sea darkening    
-and bring to men a chance to rest    
-With tears.    
+The rains of summer join together.    
+just enough to bend the leaves    
+A little woven cape    
 
