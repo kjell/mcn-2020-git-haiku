@@ -1,4 +1,4 @@
-When you say something,    
-in dusky night    
-My moonlit pillow    
+Now that eyes of hawks    
+let us arrange these flowers    
+The autumn dusk is here.    
 
