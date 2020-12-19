@@ -1,4 +1,4 @@
-Spring is passing.    
-in dusky night    
-Of warriors’ dreams.    
+In the cicada's cry    
+loneliness? Just one leaf    
+Seasoned with petals    
 
