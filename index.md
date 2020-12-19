@@ -1,4 +1,4 @@
-The first day of the year:    
-is quieted with creepers    
-Mountain-top jewels    
+Lightning -    
+and bring to men a chance to rest    
+Basho lines the moon    
 
