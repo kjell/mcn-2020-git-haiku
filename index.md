@@ -1,4 +1,4 @@
-Seek on high bare trails    
-who spends his little breakfast    
-This autumn evening.    
+See: surviving suns    
+these heavy snow-flakes settling    
+Tall grass their monument    
 
