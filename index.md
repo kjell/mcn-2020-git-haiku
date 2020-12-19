@@ -1,4 +1,4 @@
-Nine times arising    
-let us to the road again    
-It’s the Doll’s Festival.    
+Clouds come from time to time -    
+Line that won't be deleted    
+Stabs the darkness    
 
