@@ -1,4 +1,4 @@
-Mountain-rose petals    
-let us to the road again    
-the autumn dusk is here.    
+The rains of summer join together.    
+perfumes her wings by floating    
+Bearded, with bent canes    
 
