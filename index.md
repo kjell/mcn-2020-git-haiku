@@ -1,4 +1,4 @@
-White cloud of mist    
-spare my little buzzing friends    
-Morning-glory gazing    
+An old pond    
+starving for fat fish or mice    
+from looking at the moon.    
 
