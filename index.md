@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-oh voices of the wild ducks    
-Mogami River.    
+Must springtime fade?    
+Heron's cry    
+Muffled by hot rocks    
 
