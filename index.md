@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-All that remains    
-Bush-clover petals    
+In the twilight rain    
+Here along this way but I,    
+are darkened . . .    
 
