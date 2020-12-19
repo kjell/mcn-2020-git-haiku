@@ -1,4 +1,4 @@
-Silent the old town    
-Is also changed to another    
-Bearded, with bent canes    
+Seek on high bare trails    
+who spends his little breakfast    
+This autumn evening.    
 
