@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-falling, falling, falling now    
-How soon it must die.    
+Cloud of cherry-bloom    
+Line that won't be deleted    
+Morning-glory gazing    
 
