@@ -1,4 +1,4 @@
-In the twilight rain    
-Here along this way but I,    
-are darkened . . .    
+Dry cheerful cricket    
+falling, falling, falling now    
+How soon it must die.    
 
