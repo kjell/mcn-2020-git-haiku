@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-even the crickets' singing    
-Basho lines the moon    
+The summer grasses.    
+Twilight whippoorwill, whistle on, sweet deepener    
+from looking at the moon.    
 
