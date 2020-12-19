@@ -1,4 +1,4 @@
-The sea darkening    
-poor monkey, you too could use    
-Murmuring Mogami    
+Seas are wild tonight    
+loneliness? Just one leaf    
+A cicada’s voice.    
 
