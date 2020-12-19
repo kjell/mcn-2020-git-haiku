@@ -1,4 +1,4 @@
-Must springtime fade?    
-and bring to men a chance to rest    
-cherry-blossoms . . .    
+Mountain-rose petals    
+let us to the road again    
+the autumn dusk is here.    
 
