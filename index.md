@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-that black crow I hate so much    
-Of faded daffodils    
+The first day of the year:    
+is quieted with creepers    
+Mountain-top jewels    
 
