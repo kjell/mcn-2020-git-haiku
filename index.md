@@ -1,4 +1,4 @@
-Must springtime fade?    
-captains swore grand conquest    
-Of warriors’ dreams.    
+Won't you come and see    
+falling, falling, falling now    
+Splash!    
 
