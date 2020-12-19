@@ -1,4 +1,4 @@
-An old pond    
-Is also changed to another    
-Silent clouds of stars    
+Under cherry-trees    
+Twilight whippoorwill, whistle on, sweet deepener    
+Goes plop! Watersplash!    
 
