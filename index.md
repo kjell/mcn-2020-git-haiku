@@ -1,4 +1,4 @@
-Glorious the moon    
-twin butterflies until, twice white    
-the autumn dusk is here.    
+Clouds come from time to time -    
+The fragrant blossoms remain.    
+How soon it must die.    
 
