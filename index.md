@@ -1,4 +1,4 @@
-Nine times arising    
-let us to the road again    
-My moonlit pillow    
+Ah me! I am one    
+oh voices of the wild ducks    
+A perfect evening!    
 
