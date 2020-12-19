@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-scatters in the night; Now see    
-With tears.    
+Clouds come from time to time -    
+oh voices of the wild ducks    
+Mogami River.    
 
