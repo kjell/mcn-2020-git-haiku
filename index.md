@@ -1,4 +1,4 @@
-Seas are wild tonight    
-loneliness? Just one leaf    
-A cicada’s voice.    
+Glorious the moon    
+The fragrant blossoms remain.    
+Of dark loneliness    
 
