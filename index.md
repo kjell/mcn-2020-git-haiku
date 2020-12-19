@@ -1,4 +1,4 @@
-The sea darkening    
-Line that won't be deleted    
-Moon-lighted mountains!    
+This is the new line    
+All that remains    
+The Autumn wind.    
 
