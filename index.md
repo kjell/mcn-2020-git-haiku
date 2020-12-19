@@ -1,4 +1,4 @@
-The sea darkening    
-The lips feel cold.    
-Two white butterflies?    
+White cloud of mist    
+A frog jumps in -    
+Waterfall music    
 
