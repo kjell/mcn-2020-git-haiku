@@ -1,4 +1,4 @@
-Black cloudbank broken    
-chirping, keeps the autumn gay    
-A water-jewel    
+Cold first winter rain    
+the scent of flowers floating    
+These dark hands of life    
 
