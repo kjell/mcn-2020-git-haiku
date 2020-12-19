@@ -1,4 +1,4 @@
-Here, where a thousand    
-to see the moon, whose solemn pace    
-My moonlit pillow    
+Black cloudbank broken    
+chirping, keeps the autumn gay    
+A water-jewel    
 
