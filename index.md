@@ -1,4 +1,4 @@
-This is the new line    
-All that remains    
-The Autumn wind.    
+Cloud of cherry-bloom    
+that black crow I hate so much    
+Of faded daffodils    
 
