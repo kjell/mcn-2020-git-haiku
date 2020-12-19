@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-Line that won't be deleted    
-Morning-glory gazing    
+First white snow of fall    
+How swift it is    
+cherry-blossoms . . .    
 
