@@ -1,4 +1,4 @@
-The first day of the year:    
-watching us pass, met death    
-It’s the Doll’s Festival.    
+Must springtime fade?    
+and bring to men a chance to rest    
+cherry-blossoms . . .    
 
