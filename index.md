@@ -1,4 +1,4 @@
-The sea darkening    
-poor monkey, you too could use    
-Or backyard love?    
+Dawn-shining mountains    
+How swift it is    
+The Autumn wind.    
 
