@@ -1,4 +1,4 @@
-Under cherry-trees    
-to see the moon, whose solemn pace    
-Our hungry donkey    
+Dry cheerful cricket    
+All that remains    
+Bush-clover petals    
 
