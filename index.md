@@ -1,4 +1,4 @@
-In the cicada's cry    
-Twilight whippoorwill, whistle on, sweet deepener    
-The autumn dusk is here.    
+This snowy morning    
+these brilliant-hued hibiscus    
+With tears.    
 
