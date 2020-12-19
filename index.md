@@ -1,4 +1,4 @@
-The summer grasses.    
-scatters in the night; Now see    
-On the temple porch    
+Spring is passing.    
+in dusky night    
+Of warriors’ dreams.    
 
