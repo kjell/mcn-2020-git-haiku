@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-in dusky night    
-From the kiri tree.    
+Clouds come from time to time -    
+dead leaves alone foregather    
+Bush-clover petals    
 
