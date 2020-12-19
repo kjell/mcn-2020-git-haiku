@@ -1,4 +1,4 @@
-Cold first winter rain    
-in your brief sweet waters    
-Companion butterfly!    
+The sea darkening    
+poor monkey, you too could use    
+Or backyard love?    
 
