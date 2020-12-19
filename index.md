@@ -1,4 +1,4 @@
-See: surviving suns    
-these heavy snow-flakes settling    
-Tall grass their monument    
+Old dark sleepy pool    
+Line that won't be deleted    
+are darkened . . .    
 
