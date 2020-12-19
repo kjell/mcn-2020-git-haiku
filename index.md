@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-The fragrant blossoms remain.    
-How soon it must die.    
+In the sea-surf edge    
+How swift it is    
+Darting dragon-fly!    
 
