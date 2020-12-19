@@ -1,4 +1,4 @@
-An old pond    
-starving for fat fish or mice    
-from looking at the moon.    
+Silent the old town    
+captains swore grand conquest    
+Mountain-top jewels    
 
