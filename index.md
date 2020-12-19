@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-dead leaves alone foregather    
-Bush-clover petals    
+Nine times arising    
+let us to the road again    
+It’s the Doll’s Festival.    
 
