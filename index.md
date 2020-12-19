@@ -1,4 +1,4 @@
-Carven gods long gone    
-just enough to bend the leaves    
-They meet, they mate    
+A owner of the old thatched hut    
+here at your flowering grave    
+Stabs the darkness    
 
