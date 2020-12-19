@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-How swift it is    
-The Autumn wind.    
+White cloud of mist    
+Heron's cry    
+Of dark loneliness    
 
