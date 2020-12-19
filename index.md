@@ -1,4 +1,4 @@
-None is travelling    
-in your brief sweet waters    
-Contemptuous of frost    
+Old dark sleepy pool    
+here at your flowering grave    
+But he's beautiful!    
 
