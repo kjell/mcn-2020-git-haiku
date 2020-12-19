@@ -1,4 +1,4 @@
-Glorious the moon    
-The fragrant blossoms remain.    
-Of dark loneliness    
+The first day of the year:    
+watching us pass, met death    
+It’s the Doll’s Festival.    
 
