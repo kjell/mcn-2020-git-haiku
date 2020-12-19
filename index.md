@@ -1,4 +1,4 @@
-Cold first winter rain    
-the scent of flowers floating    
-These dark hands of life    
+When you say something,    
+sky-reflecting violets    
+Crying, whirling, white    
 
