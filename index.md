@@ -1,4 +1,4 @@
-Lightning -    
-and bring to men a chance to rest    
-Basho lines the moon    
+The sea darkening    
+poor monkey, you too could use    
+Murmuring Mogami    
 
