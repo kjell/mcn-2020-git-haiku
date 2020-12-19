@@ -1,4 +1,4 @@
-Must springtime fade?    
-Heron's cry    
-Muffled by hot rocks    
+Cloud of cherry-bloom    
+even the crickets' singing    
+Basho lines the moon    
 
