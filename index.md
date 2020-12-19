@@ -1,4 +1,4 @@
-The rains of summer join together.    
-poor monkey, you too could use    
-Like our tendrilled life    
+Nine times arising    
+let us to the road again    
+My moonlit pillow    
 
