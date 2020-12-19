@@ -1,4 +1,4 @@
-In the cicada's cry    
-loneliness? Just one leaf    
-Seasoned with petals    
+The sea darkening    
+Line that won't be deleted    
+Moon-lighted mountains!    
 
