@@ -1,4 +1,4 @@
-Now the swinging bridge    
-spare my little buzzing friends    
-These dark hands of life    
+Glorious the moon    
+twin butterflies until, twice white    
+the autumn dusk is here.    
 
