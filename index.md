@@ -1,4 +1,4 @@
-The summer grasses.    
-Twilight whippoorwill, whistle on, sweet deepener    
-from looking at the moon.    
+Carven gods long gone    
+just enough to bend the leaves    
+They meet, they mate    
 
