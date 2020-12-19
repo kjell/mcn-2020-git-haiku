@@ -1,4 +1,4 @@
-The summer grasses.    
-in dusky night    
-Among the flowers    
+Must springtime fade?    
+captains swore grand conquest    
+Of warriors’ dreams.    
 
