@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-Heron's cry    
-Stabs the darkness    
+Must springtime fade?    
+There's no sign that can foretell    
+Marks only midnight yet    
 
