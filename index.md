@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-therefore our thanks dark clouds    
-A lovely sunset    
+No oil to read by    
+that black crow I hate so much    
+They meet, they mate    
 
