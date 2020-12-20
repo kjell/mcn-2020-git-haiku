@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-above white    
-Goes plop! Watersplash!    
+Bright red pepper-pod    
+Penetrating the very rock,    
+Splash!    
 
