@@ -1,4 +1,4 @@
-When you say something,    
-therefore our thanks dark clouds    
-Darting dragon-fly!    
+Temple bells die out.    
+April's air stirs in willow-leaves    
+Bearded, with bent canes    
 
