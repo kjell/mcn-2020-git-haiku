@@ -1,4 +1,4 @@
-The first day of the year:    
-in dusky night    
-This autumn evening.    
+In the cicada's cry    
+let us arrange these flowers    
+A perfect evening!    
 
