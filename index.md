@@ -1,4 +1,4 @@
-In the sea-surf edge    
-just enough to bend the leaves    
-Mountain-top jewels    
+Ballet in the air    
+who spends his little breakfast    
+A perfect evening!    
 
