@@ -1,4 +1,4 @@
-Spring is passing.    
-A frog jumps in -    
-And evening bell    
+Silent the old town    
+who spends his little breakfast    
+This autumn evening.    
 
