@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-Is also changed to another    
-A cicada’s voice.    
+Now that eyes of hawks    
+therefore our thanks dark clouds    
+Of warriors’ dreams.    
 
