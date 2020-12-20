@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-then cry all birds and fishes    
-Cherry-blossoms    
+White cloud of mist    
+just enough to bend the leaves    
+Over the orchid    
 
