@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-let us to the road again    
-The Autumn wind.    
+Temple bells die out.    
+mingling with bright small shells    
+Basho lines the moon    
 
