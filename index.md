@@ -1,4 +1,4 @@
-The river gathering may rains    
-scatters in the night; Now see    
-the autumn dusk is here.    
+Carven gods long gone    
+soup, the salad, fish and all    
+Over the orchid    
 
