@@ -1,4 +1,4 @@
-Now the swinging bridge    
-he starts to grind the rice,    
-are darkened    
+For a lovely bowl    
+A frog jumps in -    
+How soon it must die.    
 
