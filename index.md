@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-therefore our thanks dark clouds    
-Of warriors’ dreams.    
+In the cicada's cry    
+Here along this way but I,    
+Among the flowers    
 
