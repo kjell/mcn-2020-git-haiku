@@ -1,4 +1,4 @@
-Camellia-petal    
-I am off to bed - but ah!    
-Marks only midnight yet    
+Lightning -    
+scatters in the night; Now see    
+Morning-glory gazing    
 
