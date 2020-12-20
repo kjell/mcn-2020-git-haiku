@@ -1,4 +1,4 @@
-Silent the old town    
-Penetrating the very rock,    
-Or backyard love?    
+Camellia-petal    
+scatters in the night; Now see    
+How soon it must die.    
 
