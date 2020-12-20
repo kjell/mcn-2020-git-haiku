@@ -1,4 +1,4 @@
-Such utter silence!    
-Here along this way but I,    
-From the kiri tree.    
+If there were fragrance    
+just enough to bend the leaves    
+But he's beautiful!    
 
