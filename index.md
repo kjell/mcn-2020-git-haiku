@@ -1,4 +1,4 @@
-In the sea-surf edge    
-A frog jumps in -    
-Of warriors’ dreams.    
+Too curious flower    
+poor monkey, you too could use    
+Over the orchid    
 
