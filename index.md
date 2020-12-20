@@ -1,4 +1,4 @@
-White cloud of mist    
-just enough to bend the leaves    
-Over the orchid    
+Bright red pepper-pod    
+The fragrant blossoms remain.    
+A cicada’s voice.    
 
