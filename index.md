@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-dead leaves alone foregather    
-With tears.    
+The river gathering may rains    
+scatters in the night; Now see    
+the autumn dusk is here.    
 
