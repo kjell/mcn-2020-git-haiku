@@ -1,4 +1,4 @@
-The rains of summer join together.    
-The lips feel cold.    
-With tears.    
+See: surviving suns    
+poor monkey, you too could use    
+and gazes at the moon.    
 
