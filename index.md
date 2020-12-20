@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-The birds cry, and the fishes’ eyes are     
-The Autumn wind.    
+Now that eyes of hawks    
+to see the moon, whose solemn pace    
+From the kiri tree.    
 
