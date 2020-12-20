@@ -1,4 +1,4 @@
-Lightning -    
-Here along this way but I,    
-Goes plop! Watersplash!    
+Spring is passing.    
+is quieted with creepers    
+A butterfly floats and balances    
 
