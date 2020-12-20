@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-Heron's cry    
-Mountain-top jewels    
+Dry cheerful cricket    
+in your brief sweet waters    
+Goes plop! Watersplash!    
 
