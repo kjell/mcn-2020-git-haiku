@@ -1,4 +1,4 @@
-Swallow in the dusk    
-loneliness? Just one leaf    
-Contemptuous of frost    
+The river gathering may rains    
+thoughts come - and there is loneliness;    
+Stabs the darkness    
 
