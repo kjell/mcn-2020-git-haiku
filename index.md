@@ -1,4 +1,4 @@
-None is travelling    
-thoughts come - and there is loneliness;    
-Marks only midnight yet    
+Such utter silence!    
+Here along this way but I,    
+From the kiri tree.    
 
