@@ -1,4 +1,4 @@
-Cold first winter rain    
-even the crickets' singing    
-Of faded daffodils    
+The rains of summer join together.    
+The lips feel cold.    
+With tears.    
 
