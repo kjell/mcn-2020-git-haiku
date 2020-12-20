@@ -1,4 +1,4 @@
-The river gathering may rains    
-thoughts come - and there is loneliness;    
-Stabs the darkness    
+Cold first winter rain    
+even the crickets' singing    
+Of faded daffodils    
 
