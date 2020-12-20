@@ -1,4 +1,4 @@
-If there were fragrance    
-just enough to bend the leaves    
-But he's beautiful!    
+Seas are wild tonight    
+fell in silent dawn, spilling    
+From the kiri tree.    
 
