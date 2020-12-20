@@ -1,4 +1,4 @@
-Spring is passing.    
-dead leaves alone foregather    
-The autumn dusk is here.    
+Will we meet again    
+that black crow I hate so much    
+Basho lines the moon    
 
