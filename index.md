@@ -1,4 +1,4 @@
-Spring is passing.    
-therefore our thanks dark clouds    
-Ueno? Asakura?    
+Now that eyes of hawks    
+Heron's cry    
+Stabs the darkness    
 
