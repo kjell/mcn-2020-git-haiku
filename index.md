@@ -1,4 +1,4 @@
-Must springtime fade?    
-There's no sign that can foretell    
-Marks only midnight yet    
+The first day of the year:    
+in dusky night    
+This autumn evening.    
 
