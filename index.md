@@ -1,4 +1,4 @@
-No oil to read by    
-that black crow I hate so much    
-They meet, they mate    
+In the sea-surf edge    
+A frog jumps in -    
+Of warriors’ dreams.    
 
