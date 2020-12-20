@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-to see the moon, whose solemn pace    
-From the kiri tree.    
+Spring is passing.    
+dead leaves alone foregather    
+The autumn dusk is here.    
 
