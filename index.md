@@ -1,4 +1,4 @@
-The first day of the year:    
-fell in silent dawn, spilling    
-But he's beautiful!    
+None is travelling    
+thoughts come - and there is loneliness;    
+Marks only midnight yet    
 
