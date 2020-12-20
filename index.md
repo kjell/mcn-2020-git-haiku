@@ -1,4 +1,4 @@
-In the cicada's cry    
-it needs but shiny wings and look    
-Our hungry donkey    
+Spring is passing.    
+therefore our thanks dark clouds    
+Ueno? Asakura?    
 
