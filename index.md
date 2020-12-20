@@ -1,4 +1,4 @@
-Camellia-petal    
-scatters in the night; Now see    
-How soon it must die.    
+This snowy morning    
+who spends his little breakfast    
+Bush-clover petals    
 
