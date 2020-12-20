@@ -1,4 +1,4 @@
-Won't you come and see    
-even the crickets' singing    
-Crying, whirling, white    
+Too curious flower    
+The lips feel cold.    
+Tall grass their monument    
 
