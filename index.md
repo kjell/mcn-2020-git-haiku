@@ -1,4 +1,4 @@
-See: surviving suns    
-poor monkey, you too could use    
-and gazes at the moon.    
+A owner of the old thatched hut    
+therefore our thanks dark clouds    
+A lovely sunset    
 
