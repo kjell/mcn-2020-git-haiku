@@ -1,4 +1,4 @@
-Lightning -    
-scatters in the night; Now see    
-Morning-glory gazing    
+Cloud of cherry-bloom    
+above white    
+Goes plop! Watersplash!    
 
