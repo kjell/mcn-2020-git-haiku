@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-in your brief sweet waters    
-Goes plop! Watersplash!    
+Poverty's child -    
+soup, the salad, fish and all    
+Moon-lighted mountains!    
 
