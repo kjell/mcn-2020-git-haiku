@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-Penetrating the very rock,    
-Splash!    
+In the cicada's cry    
+it needs but shiny wings and look    
+Our hungry donkey    
 
