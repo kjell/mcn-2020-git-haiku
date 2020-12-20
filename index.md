@@ -1,4 +1,4 @@
-An old pond    
-just enough to bend the leaves    
-Basho lines the moon    
+If there were fragrance    
+above white    
+Of faded daffodils    
 
