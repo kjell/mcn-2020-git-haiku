@@ -1,4 +1,4 @@
-For a lovely bowl    
-A frog jumps in -    
-How soon it must die.    
+When you say something,    
+therefore our thanks dark clouds    
+Darting dragon-fly!    
 
