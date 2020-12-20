@@ -1,4 +1,4 @@
-Carven gods long gone    
-soup, the salad, fish and all    
-Over the orchid    
+Silent the old town    
+Penetrating the very rock,    
+Or backyard love?    
 
