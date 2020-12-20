@@ -1,4 +1,4 @@
-In the cicada's cry    
-Here along this way but I,    
-Among the flowers    
+Now that eyes of hawks    
+then cry all birds and fishes    
+Cherry-blossoms    
 
