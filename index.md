@@ -1,4 +1,4 @@
-Poverty's child -    
-soup, the salad, fish and all    
-Moon-lighted mountains!    
+Seek on high bare trails    
+There's no sign that can foretell    
+How soon it must die.    
 
