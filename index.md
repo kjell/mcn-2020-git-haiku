@@ -1,4 +1,4 @@
-Won't you come and see    
-in dusky night    
-How soon it must die.    
+This is the new line    
+to see the moon, whose solemn pace    
+It’s the Doll’s Festival.    
 
