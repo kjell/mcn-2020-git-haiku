@@ -1,4 +1,4 @@
-In the cicada's cry    
-let us arrange these flowers    
-A perfect evening!    
+Bright red pepper-pod    
+let us to the road again    
+The Autumn wind.    
 
