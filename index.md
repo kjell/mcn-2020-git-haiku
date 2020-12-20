@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-here at your flowering grave    
-Stabs the darkness    
+Won't you come and see    
+in dusky night    
+How soon it must die.    
 
