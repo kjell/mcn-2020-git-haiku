@@ -1,4 +1,4 @@
-Too curious flower    
-The lips feel cold.    
-Tall grass their monument    
+Why so scrawny, cat?    
+even the crickets' singing    
+Basho lines the moon    
 
