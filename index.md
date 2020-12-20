@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-The fragrant blossoms remain.    
-A cicada’s voice.    
+The first day of the year:    
+fell in silent dawn, spilling    
+But he's beautiful!    
 
