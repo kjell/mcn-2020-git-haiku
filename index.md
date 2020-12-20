@@ -1,4 +1,4 @@
-Too curious flower    
-poor monkey, you too could use    
-Over the orchid    
+An old pond    
+just enough to bend the leaves    
+Basho lines the moon    
 
