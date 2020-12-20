@@ -1,4 +1,4 @@
-Silent the old town    
-who spends his little breakfast    
-This autumn evening.    
+In the sea-surf edge    
+just enough to bend the leaves    
+Mountain-top jewels    
 
