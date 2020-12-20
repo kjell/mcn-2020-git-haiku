@@ -1,4 +1,4 @@
-Seas are wild tonight    
-fell in silent dawn, spilling    
-From the kiri tree.    
+Old dark sleepy pool    
+The birds cry, and the fishes’ eyes are     
+The Autumn wind.    
 
