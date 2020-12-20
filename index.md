@@ -1,4 +1,4 @@
-Seek on high bare trails    
-There's no sign that can foretell    
-How soon it must die.    
+Won't you come and see    
+even the crickets' singing    
+Crying, whirling, white    
 
