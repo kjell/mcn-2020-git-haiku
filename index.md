@@ -1,4 +1,4 @@
-Glorious the moon    
-he starts to grind the rice,    
-How soon it must die.    
+This is the new line    
+here at your flowering grave    
+Tall grass their monument    
 
