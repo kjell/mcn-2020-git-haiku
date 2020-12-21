@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-I am off to bed - but ah!    
-A little woven cape    
+Clouds come from time to time -    
+Penetrating the very rock,    
+Since there is no rice    
 
