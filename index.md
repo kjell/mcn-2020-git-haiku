@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-that black crow I hate so much    
-The autumn dusk is here.    
+A owner of the old thatched hut    
+A frog jumps in -    
+A cicada’s voice.    
 
