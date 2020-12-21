@@ -1,4 +1,4 @@
-Spring is passing.    
-in dusky night    
-Our hungry donkey    
+An old pond    
+is quieted with creepers    
+Muffled by hot rocks    
 
