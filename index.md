@@ -1,4 +1,4 @@
-The rains of summer join together.    
-loneliness? Just one leaf    
-Among the flowers    
+An old pond    
+tolling twilight bell; Temple    
+Goes plop! Watersplash!    
 
