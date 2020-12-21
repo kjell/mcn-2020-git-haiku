@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-perfumes her wings by floating    
-A cicada’s voice.    
+The first day of the year:    
+I am off to bed - but ah!    
+and gazes at the moon.    
 
