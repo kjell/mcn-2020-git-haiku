@@ -1,4 +1,4 @@
-The rains of summer join together.    
-above white    
-Lilies on the rocks    
+First white snow of fall    
+sky-reflecting violets    
+A lovely sunset    
 
