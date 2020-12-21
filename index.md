@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-loneliness? Just one leaf    
-They meet, they mate    
+Now the swinging bridge    
+let us to the road again    
+Two white butterflies?    
 
