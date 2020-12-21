@@ -1,4 +1,4 @@
-When you say something,    
-let us to the road again    
-cherry-blossoms . . .    
+Must springtime fade?    
+soup, the salad, fish and all    
+These dark hands of life    
 
