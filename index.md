@@ -1,4 +1,4 @@
-When you say something,    
+Won't you come and see    
 falling, falling, falling now    
-Cherry-blossoms    
+Muffled by hot rocks    
 
