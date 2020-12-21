@@ -1,4 +1,4 @@
-Won't you come and see    
-There's no sign that can foretell    
-A lovely sunset    
+Lady butterfly    
+in your brief sweet waters    
+With tears.    
 
