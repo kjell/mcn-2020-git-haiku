@@ -1,4 +1,4 @@
-An old pond    
-is quieted with creepers    
-Muffled by hot rocks    
+Under cherry-trees    
+Here along this way but I,    
+Morning-glory gazing    
 
