@@ -1,4 +1,4 @@
-Silent the old town    
-and bring to men a chance to rest    
-Two white butterflies?    
+Poverty's child -    
+Twilight whippoorwill, whistle on, sweet deepener    
+Our hungry donkey    
 
