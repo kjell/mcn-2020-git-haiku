@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-here at your flowering grave    
-This autumn evening.    
+The first day of the year:    
+How swift it is    
+A cicada’s voice.    
 
