@@ -1,4 +1,4 @@
-Under cherry-trees    
-Here along this way but I,    
-Morning-glory gazing    
+The sea darkening    
+and bring to men a chance to rest    
+Basho lines the moon    
 
