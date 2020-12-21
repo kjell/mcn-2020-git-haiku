@@ -1,4 +1,4 @@
-Spring is passing.    
-thoughts come - and there is loneliness;    
-Bush-clover petals    
+A owner of the old thatched hut    
+here at your flowering grave    
+This autumn evening.    
 
