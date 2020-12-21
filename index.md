@@ -1,4 +1,4 @@
-The first day of the year:    
-How swift it is    
-A cicada’s voice.    
+In the sea-surf edge    
+thoughts come - and there is loneliness;    
+Two white butterflies?    
 
