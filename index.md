@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-Penetrating the very rock,    
-Since there is no rice    
+Silent the old town    
+and bring to men a chance to rest    
+Two white butterflies?    
 
