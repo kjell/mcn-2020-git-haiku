@@ -1,4 +1,4 @@
-See: surviving suns    
-Is also changed to another    
-Ueno? Asakura?    
+The summer grasses.    
+soup, the salad, fish and all    
+A cicada’s voice.    
 
