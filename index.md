@@ -1,4 +1,4 @@
-No oil to read by    
-tolling twilight bell; Temple    
-A cicada’s voice.    
+Bright red pepper-pod    
+that black crow I hate so much    
+The autumn dusk is here.    
 
