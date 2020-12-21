@@ -1,4 +1,4 @@
-Now the swinging bridge    
-let us to the road again    
-Two white butterflies?    
+The rains of summer join together.    
+above white    
+Lilies on the rocks    
 
