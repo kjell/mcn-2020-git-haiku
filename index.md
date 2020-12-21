@@ -1,4 +1,4 @@
-Ah me! I am one    
-The birds cry, and the fishes’ eyes are     
-On the temple porch    
+The rains of summer join together.    
+loneliness? Just one leaf    
+Among the flowers    
 
