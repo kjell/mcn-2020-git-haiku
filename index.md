@@ -1,4 +1,4 @@
-Black cloudbank broken    
-here at your flowering grave    
-Like our tendrilled life    
+No oil to read by    
+tolling twilight bell; Temple    
+A cicada’s voice.    
 
