@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-How swift it is    
-Cherry-blossoms    
+No oil to read by    
+All that remains    
+It’s the Doll’s Festival.    
 
