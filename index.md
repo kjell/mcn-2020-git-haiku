@@ -1,4 +1,4 @@
-First white snow of fall    
-sky-reflecting violets    
-A lovely sunset    
+In the cicada's cry    
+even the crickets' singing    
+A perfect evening!    
 
