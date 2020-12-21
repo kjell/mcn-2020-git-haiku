@@ -1,4 +1,4 @@
-Black cloudbank broken    
-loneliness? Just one leaf    
-Basho lines the moon    
+Won't you come and see    
+Twilight whippoorwill, whistle on, sweet deepener    
+A cicada’s voice.    
 
