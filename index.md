@@ -1,4 +1,4 @@
-Lady butterfly    
-spare my little buzzing friends    
-These dark hands of life    
+Black cloudbank broken    
+here at your flowering grave    
+Like our tendrilled life    
 
