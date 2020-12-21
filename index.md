@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-April's air stirs in willow-leaves    
-Over the orchid    
+When you say something,    
+falling, falling, falling now    
+Cherry-blossoms    
 
