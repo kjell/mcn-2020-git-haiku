@@ -1,4 +1,4 @@
-First white snow of fall    
-The fragrant blossoms remain.    
-With tears.    
+Dry cheerful cricket    
+thoughts come - and there is loneliness;    
+A butterfly floats and balances    
 
