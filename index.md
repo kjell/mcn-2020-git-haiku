@@ -1,4 +1,4 @@
-Too curious flower    
-the scent of flowers floating    
-are darkened . . .    
+Spring is passing.    
+thoughts come - and there is loneliness;    
+Bush-clover petals    
 
