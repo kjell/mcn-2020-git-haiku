@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-The fragrant blossoms remain.    
-Cold pale eyes pour tears    
+This snowy morning    
+mingling with bright small shells    
+A cicada’s voice.    
 
