@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-thoughts come - and there is loneliness;    
-A butterfly floats and balances    
+Spring is passing.    
+and bring to men a chance to rest    
+cherry-blossoms . . .    
 
