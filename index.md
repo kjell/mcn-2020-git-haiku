@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-A frog jumps in -    
-A cicada’s voice.    
+Oh, tranquility!    
+dead leaves alone foregather    
+Cherry-blossoms    
 
