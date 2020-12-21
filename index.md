@@ -1,4 +1,4 @@
-No oil to read by    
-All that remains    
-It’s the Doll’s Festival.    
+An old pond    
+who spends his little breakfast    
+from looking at the moon.    
 
