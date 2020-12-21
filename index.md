@@ -1,4 +1,4 @@
-In the sea-surf edge    
-thoughts come - and there is loneliness;    
-Two white butterflies?    
+Won't you come and see    
+There's no sign that can foretell    
+A lovely sunset    
 
