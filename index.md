@@ -1,4 +1,4 @@
-The summer grasses.    
-in your brief sweet waters    
-It’s the Doll’s Festival.    
+When you say something,    
+let us to the road again    
+cherry-blossoms . . .    
 
