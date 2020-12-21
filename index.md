@@ -1,4 +1,4 @@
 Lady butterfly    
-in your brief sweet waters    
-With tears.    
+spare my little buzzing friends    
+These dark hands of life    
 
