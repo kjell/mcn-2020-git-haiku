@@ -1,4 +1,4 @@
-None is travelling    
-he starts to grind the rice,    
-Come to rest our necks    
+Too curious flower    
+the scent of flowers floating    
+are darkened . . .    
 
