@@ -1,4 +1,4 @@
-In the cicada's cry    
-even the crickets' singing    
-A perfect evening!    
+Dry cheerful cricket    
+How swift it is    
+Cherry-blossoms    
 
