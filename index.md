@@ -1,4 +1,4 @@
-Glorious the moon    
+Bright red pepper-pod    
 perfumes her wings by floating    
-Cold pale eyes pour tears    
+A cicada’s voice.    
 
