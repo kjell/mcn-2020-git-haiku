@@ -1,4 +1,4 @@
-This is the new line    
-here at your flowering grave    
-Tall grass their monument    
+When you say something,    
+scatters in the night; Now see    
+Bearded, with bent canes    
 
