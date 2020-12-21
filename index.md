@@ -1,4 +1,4 @@
-Must springtime fade?    
-soup, the salad, fish and all    
-These dark hands of life    
+Cloud of cherry-bloom    
+The fragrant blossoms remain.    
+Cold pale eyes pour tears    
 
