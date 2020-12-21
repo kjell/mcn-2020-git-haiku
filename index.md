@@ -1,4 +1,4 @@
-When you say something,    
-scatters in the night; Now see    
-Bearded, with bent canes    
+A owner of the old thatched hut    
+April's air stirs in willow-leaves    
+Over the orchid    
 
