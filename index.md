@@ -1,4 +1,4 @@
-This snowy morning    
-mingling with bright small shells    
-A cicada’s voice.    
+Black cloudbank broken    
+loneliness? Just one leaf    
+Basho lines the moon    
 
