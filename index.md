@@ -1,4 +1,4 @@
-If there were fragrance    
-and bring to men a chance to rest    
-cherry-blossoms . . .    
+Will we meet again    
+to see the moon, whose solemn pace    
+Moon-lighted mountains!    
 
