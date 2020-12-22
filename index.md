@@ -1,4 +1,4 @@
-The first day of the year:    
-mingling with bright small shells    
-A perfect evening!    
+In the twilight rain    
+Heron's cry    
+From the kiri tree.    
 
