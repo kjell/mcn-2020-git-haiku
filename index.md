@@ -1,4 +1,4 @@
-Such utter silence!    
-above white    
-Basho lines the moon    
+Lady butterfly    
+Here along this way but I,    
+Mogami River.    
 
