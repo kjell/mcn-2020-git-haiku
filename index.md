@@ -1,4 +1,4 @@
-Lady butterfly    
-Here along this way but I,    
-Mogami River.    
+Ballet in the air    
+Line that won't be deleted    
+On the temple porch    
 
