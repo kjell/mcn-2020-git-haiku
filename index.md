@@ -1,4 +1,4 @@
-The first day of the year:    
-perfumes her wings by floating    
-This autumn evening.    
+Cold first winter rain    
+Line that won't be deleted    
+Like our tendrilled life    
 
