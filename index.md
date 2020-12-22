@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-in dusky night    
-Contemptuous of frost    
+Black cloudbank broken    
+The fragrant blossoms remain.    
+Since there is no rice    
 
