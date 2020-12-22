@@ -1,4 +1,4 @@
-Carven gods long gone    
-There's no sign that can foretell    
-Waterfall music    
+White cloud of mist    
+who spends his little breakfast    
+Of warriors’ dreams.    
 
