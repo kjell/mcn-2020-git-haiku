@@ -1,4 +1,4 @@
-For a lovely bowl    
-The lips feel cold.    
-Mogami River.    
+In the cicada's cry    
+that black crow I hate so much    
+With tears.    
 
