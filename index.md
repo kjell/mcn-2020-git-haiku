@@ -1,4 +1,4 @@
-When you say something,    
-it needs but shiny wings and look    
-Moon-lighted mountains!    
+An old pond    
+Is also changed to another    
+Mogami River.    
 
