@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-Penetrating the very rock,    
-Ueno? Asakura?    
+White cloud of mist    
+he starts to grind the rice,    
+Mountain-top jewels    
 
