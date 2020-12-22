@@ -1,4 +1,4 @@
-In the twilight rain    
-dead leaves alone foregather    
-Moon-lighted mountains!    
+Won't you come and see    
+these brilliant-hued hibiscus    
+Bearded, with bent canes    
 
