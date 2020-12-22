@@ -1,4 +1,4 @@
-Black cloudbank broken    
-The fragrant blossoms remain.    
-Since there is no rice    
+An old pond    
+these brilliant-hued hibiscus    
+Lilies on the rocks    
 
