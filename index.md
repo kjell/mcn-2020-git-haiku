@@ -1,4 +1,4 @@
-Seek on high bare trails    
-Line that won't be deleted    
-Of faded daffodils    
+If there were fragrance    
+and bring to men a chance to rest    
+cherry-blossoms . . .    
 
