@@ -1,4 +1,4 @@
-Won't you come and see    
-these brilliant-hued hibiscus    
-Bearded, with bent canes    
+Clouds come from time to time -    
+in dusky night    
+Contemptuous of frost    
 
