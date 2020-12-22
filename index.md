@@ -1,4 +1,4 @@
-Temple bells die out.    
-twin butterflies until, twice white    
-Basho lines the moon    
+Silent the old town    
+Line that won't be deleted    
+Bush-clover petals    
 
