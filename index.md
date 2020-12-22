@@ -1,4 +1,4 @@
-Poverty's child -    
-oh voices of the wild ducks    
-Splash!    
+Glorious the moon    
+Heron's cry    
+from looking at the moon.    
 
