@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-Line that won't be deleted    
-A cicada’s voice.    
+No oil to read by    
+There's no sign that can foretell    
+A butterfly floats and balances    
 
