@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-even the crickets' singing    
-A water-jewel    
+Nine times arising    
+quick unexpected frog    
+Waterfall music    
 
