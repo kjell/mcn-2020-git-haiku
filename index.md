@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-Penetrating the very rock,    
-A perfect evening!    
+The rains of summer join together.    
+these heavy snow-flakes settling    
+With tears.    
 
