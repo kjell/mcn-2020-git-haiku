@@ -1,4 +1,4 @@
-Lady butterfly    
-who spends his little breakfast    
+Cloud of cherry-bloom    
+All that remains    
 A butterfly floats and balances    
 
