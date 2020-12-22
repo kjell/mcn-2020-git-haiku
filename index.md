@@ -1,4 +1,4 @@
-Now in sad autumn    
-soup, the salad, fish and all    
-On the temple porch    
+Mountain-rose petals    
+here at your flowering grave    
+Companion butterfly!    
 
