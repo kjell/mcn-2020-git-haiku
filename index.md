@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-All that remains    
-A butterfly floats and balances    
+Dewdrop, let me cleanse    
+then cry all birds and fishes    
+from looking at the moon.    
 
