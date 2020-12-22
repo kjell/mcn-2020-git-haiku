@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-thoughts come - and there is loneliness;    
-Contemptuous of frost    
+White cloud of mist    
+therefore our thanks dark clouds    
+from looking at the moon.    
 
