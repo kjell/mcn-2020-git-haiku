@@ -1,4 +1,4 @@
-Oh, tranquility!    
-who spends his little breakfast    
-The autumn dusk is here.    
+The first day of the year:    
+mingling with bright small shells    
+A perfect evening!    
 
