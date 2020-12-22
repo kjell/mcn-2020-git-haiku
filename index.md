@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-There's no sign that can foretell    
-Splash!    
+Why so scrawny, cat?    
+loneliness? Just one leaf    
+A perfect evening!    
 
