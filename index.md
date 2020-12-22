@@ -1,4 +1,4 @@
-White cloud of mist    
-who spends his little breakfast    
-Of warriors’ dreams.    
+Now that eyes of hawks    
+even the crickets' singing    
+A water-jewel    
 
