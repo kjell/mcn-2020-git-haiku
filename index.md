@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
+In the twilight rain    
 then cry all birds and fishes    
-from looking at the moon.    
+On the temple porch    
 
