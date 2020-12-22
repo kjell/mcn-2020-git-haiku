@@ -1,4 +1,4 @@
-Lightning -    
-tolling twilight bell; Temple    
+The first day of the year:    
+perfumes her wings by floating    
 This autumn evening.    
 
