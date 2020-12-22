@@ -1,4 +1,4 @@
-Silent the old town    
-Line that won't be deleted    
-Bush-clover petals    
+Poverty's child -    
+oh voices of the wild ducks    
+Splash!    
 
