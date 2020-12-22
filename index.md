@@ -1,4 +1,4 @@
-Under cherry-trees    
-it needs but shiny wings and look    
-How soon it must die.    
+Lady butterfly    
+who spends his little breakfast    
+A butterfly floats and balances    
 
