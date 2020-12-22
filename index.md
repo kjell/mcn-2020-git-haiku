@@ -1,4 +1,4 @@
-Cold first winter rain    
-Line that won't be deleted    
-Like our tendrilled life    
+The summer grasses.    
+stretching over Sado Island    
+How soon it must die.    
 
