@@ -1,4 +1,4 @@
-An old pond    
-these brilliant-hued hibiscus    
-Lilies on the rocks    
+Temple bells die out.    
+twin butterflies until, twice white    
+Basho lines the moon    
 
