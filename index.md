@@ -1,4 +1,4 @@
-Glorious the moon    
-Heron's cry    
-from looking at the moon.    
+Will we meet again    
+The fragrant blossoms remain.    
+A solitary bird    
 
