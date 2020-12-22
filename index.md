@@ -1,4 +1,4 @@
-Mountain-rose petals    
-here at your flowering grave    
-Companion butterfly!    
+An old pond    
+even the crickets' singing    
+Of faded daffodils    
 
