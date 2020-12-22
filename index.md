@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-loneliness? Just one leaf    
-A perfect evening!    
+Lightning -    
+tolling twilight bell; Temple    
+This autumn evening.    
 
