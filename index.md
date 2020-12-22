@@ -1,4 +1,4 @@
-An old pond    
-Is also changed to another    
-Mogami River.    
+Under cherry-trees    
+it needs but shiny wings and look    
+How soon it must die.    
 
