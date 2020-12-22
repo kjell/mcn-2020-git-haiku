@@ -1,4 +1,4 @@
-White cloud of mist    
-therefore our thanks dark clouds    
-from looking at the moon.    
+Carven gods long gone    
+There's no sign that can foretell    
+Waterfall music    
 
