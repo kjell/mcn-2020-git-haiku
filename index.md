@@ -1,4 +1,4 @@
-No oil to read by    
-There's no sign that can foretell    
-A butterfly floats and balances    
+In the twilight rain    
+dead leaves alone foregather    
+Moon-lighted mountains!    
 
