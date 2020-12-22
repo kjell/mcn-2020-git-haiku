@@ -1,4 +1,4 @@
-White cloud of mist    
-he starts to grind the rice,    
-Mountain-top jewels    
+Now in sad autumn    
+soup, the salad, fish and all    
+On the temple porch    
 
