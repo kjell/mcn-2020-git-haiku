@@ -1,4 +1,4 @@
-Ballet in the air    
-Line that won't be deleted    
-On the temple porch    
+Oh, tranquility!    
+who spends his little breakfast    
+The autumn dusk is here.    
 
