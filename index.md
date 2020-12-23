@@ -1,4 +1,4 @@
 White cloud of mist    
-and bring to men a chance to rest    
-Mogami River.    
+oh voices of the wild ducks    
+Tall grass their monument    
 
