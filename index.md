@@ -1,4 +1,4 @@
-The sea darkening    
-fell in silent dawn, spilling    
-They meet, they mate    
+Why so scrawny, cat?    
+The fragrant blossoms remain.    
+A perfect evening!    
 
