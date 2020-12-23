@@ -1,4 +1,4 @@
-In the cicada's cry    
-How swift it is    
-A perfect evening!    
+Mountain-rose petals    
+thoughts come - and there is loneliness;    
+from looking at the moon.    
 
