@@ -1,4 +1,4 @@
-Here, where a thousand    
-scatters in the night; Now see    
-Of faded daffodils    
+Too curious flower    
+tolling twilight bell; Temple    
+Over the orchid    
 
