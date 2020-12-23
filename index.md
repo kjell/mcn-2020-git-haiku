@@ -1,4 +1,4 @@
-First white snow of fall    
-mingling with bright small shells    
-Splash!    
+In the cicada's cry    
+How swift it is    
+A perfect evening!    
 
