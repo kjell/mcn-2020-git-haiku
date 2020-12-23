@@ -1,4 +1,4 @@
-For a lovely bowl    
-loneliness? Just one leaf    
-The Autumn wind.    
+Spring is passing.    
+spare my little buzzing friends    
+A lovely sunset    
 
