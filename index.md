@@ -1,4 +1,4 @@
-Now the swinging bridge    
-visit the ancestral grave    
-Marks only midnight yet    
+Carven gods long gone    
+watching us pass, met death    
+Tall grass their monument    
 
