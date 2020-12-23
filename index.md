@@ -1,4 +1,4 @@
-Too curious flower    
-tolling twilight bell; Temple    
-Over the orchid    
+Oh, tranquility!    
+Heron's cry    
+Our hungry donkey    
 
