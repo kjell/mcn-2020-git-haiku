@@ -1,4 +1,4 @@
-The first day of the year:    
-poor monkey, you too could use    
-This autumn evening.    
+Ballet in the air    
+Is also changed to another    
+A perfect evening!    
 
