@@ -1,4 +1,4 @@
-No oil to read by    
-watching us pass, met death    
-But he's beautiful!    
+Clouds come from time to time -    
+the scent of flowers floating    
+A butterfly floats and balances    
 
