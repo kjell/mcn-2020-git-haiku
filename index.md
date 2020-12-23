@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-The fragrant blossoms remain.    
-A perfect evening!    
+The summer grasses.    
+therefore our thanks dark clouds    
+Darting dragon-fly!    
 
