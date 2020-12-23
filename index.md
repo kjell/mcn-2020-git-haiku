@@ -1,4 +1,4 @@
-Poverty's child -    
-these brilliant-hued hibiscus    
-Lilies on the rocks    
+Chirping of the quails    
+in your brief sweet waters    
+are darkened . . .    
 
