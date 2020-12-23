@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-Penetrating the very rock,    
-Goes plop! Watersplash!    
+The rains of summer join together.    
+soup, the salad, fish and all    
+A lovely sunset    
 
