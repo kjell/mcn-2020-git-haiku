@@ -1,4 +1,4 @@
-Ballet in the air    
-Is also changed to another    
-A perfect evening!    
+The sea darkening    
+it needs but shiny wings and look    
+Of warriors’ dreams.    
 
