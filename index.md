@@ -1,4 +1,4 @@
-Chirping of the quails    
-in your brief sweet waters    
-are darkened . . .    
+Lady butterfly    
+even the crickets' singing    
+The Autumn wind.    
 
