@@ -1,4 +1,4 @@
-When you say something,    
-stretching over Sado Island    
-Ueno? Asakura?    
+Mountain-rose petals    
+Heron's cry    
+My moonlit pillow    
 
