@@ -1,4 +1,4 @@
-Spring is passing.    
-Here along this way but I,    
-Basho lines the moon    
+Oh, tranquility!    
+soup, the salad, fish and all    
+A perfect evening!    
 
