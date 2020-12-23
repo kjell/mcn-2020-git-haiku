@@ -1,4 +1,4 @@
-The sea darkening    
-The lips feel cold.    
-My moonlit pillow    
+Now the swinging bridge    
+visit the ancestral grave    
+Marks only midnight yet    
 
