@@ -1,4 +1,4 @@
-Lady butterfly    
-even the crickets' singing    
-The Autumn wind.    
+Oh, tranquility!    
+the scent of flowers floating    
+from looking at the moon.    
 
