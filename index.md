@@ -1,4 +1,4 @@
-The rains of summer join together.    
-these heavy snow-flakes settling    
-With tears.    
+The sea darkening    
+The lips feel cold.    
+My moonlit pillow    
 
