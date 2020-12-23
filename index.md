@@ -1,4 +1,4 @@
-None is travelling    
-he starts to grind the rice,    
-Of dark loneliness    
+The first day of the year:    
+poor monkey, you too could use    
+This autumn evening.    
 
