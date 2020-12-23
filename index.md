@@ -1,4 +1,4 @@
-Spring is passing.    
-spare my little buzzing friends    
-A lovely sunset    
+Such utter silence!    
+oh voices of the wild ducks    
+Or backyard love?    
 
