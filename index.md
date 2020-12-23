@@ -1,4 +1,4 @@
-Oh, tranquility!    
-the scent of flowers floating    
-from looking at the moon.    
+Seek on high bare trails    
+All that remains    
+Murmuring Mogami    
 
