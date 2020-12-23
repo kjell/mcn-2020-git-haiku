@@ -1,4 +1,4 @@
-Oh, tranquility!    
-Is also changed to another    
-A water-jewel    
+In the sea-surf edge    
+captains swore grand conquest    
+A cicada’s voice.    
 
