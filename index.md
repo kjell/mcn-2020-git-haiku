@@ -1,4 +1,4 @@
-Carven gods long gone    
-watching us pass, met death    
-Tall grass their monument    
+Poverty's child -    
+perfumes her wings by floating    
+The autumn dusk is here.    
 
