@@ -1,4 +1,4 @@
-In the sea-surf edge    
-captains swore grand conquest    
-A cicada’s voice.    
+The sea darkening    
+fell in silent dawn, spilling    
+They meet, they mate    
 
