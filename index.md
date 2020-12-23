@@ -1,4 +1,4 @@
-Poverty's child -    
-perfumes her wings by floating    
-The autumn dusk is here.    
+Swallow in the dusk    
+The fragrant blossoms remain.    
+Of dark loneliness    
 
