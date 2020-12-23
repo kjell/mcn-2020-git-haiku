@@ -1,4 +1,4 @@
-Swallow in the dusk    
-The fragrant blossoms remain.    
-Of dark loneliness    
+An old pond    
+as I take my darkening path    
+Two white butterflies?    
 
