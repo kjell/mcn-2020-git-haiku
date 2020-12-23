@@ -1,4 +1,4 @@
-The sea darkening    
-it needs but shiny wings and look    
-Of warriors’ dreams.    
+Here, where a thousand    
+scatters in the night; Now see    
+Of faded daffodils    
 
