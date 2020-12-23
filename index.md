@@ -1,4 +1,4 @@
-Such utter silence!    
-oh voices of the wild ducks    
-Or backyard love?    
+No oil to read by    
+watching us pass, met death    
+But he's beautiful!    
 
