@@ -1,4 +1,4 @@
-Camellia-petal    
-The birds cry, and the fishes’ eyes are     
+White cloud of mist    
+and bring to men a chance to rest    
 Mogami River.    
 
