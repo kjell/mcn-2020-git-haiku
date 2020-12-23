@@ -1,4 +1,4 @@
-An old pond    
-as I take my darkening path    
-Two white butterflies?    
+Camellia-petal    
+The birds cry, and the fishes’ eyes are     
+Mogami River.    
 
