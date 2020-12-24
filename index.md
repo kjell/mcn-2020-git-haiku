@@ -1,4 +1,4 @@
-In the cicada's cry    
-above white    
-They meet, they mate    
+Swallow in the dusk    
+to see the moon, whose solemn pace    
+Over the orchid    
 
