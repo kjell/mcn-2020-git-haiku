@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-scatters in the night; Now see    
-Like our tendrilled life    
+Now the swinging bridge    
+Twilight whippoorwill, whistle on, sweet deepener    
+cherry-blossoms . . .    
 
