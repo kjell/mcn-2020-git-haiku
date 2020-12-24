@@ -1,4 +1,4 @@
-Mountain-rose petals    
+When you say something,    
 oh voices of the wild ducks    
-Like our tendrilled life    
+This autumn evening.    
 
