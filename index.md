@@ -1,4 +1,4 @@
-For a lovely bowl    
-is quieted with creepers    
-Silent clouds of stars    
+Bright red pepper-pod    
+The fragrant blossoms remain.    
+Basho lines the moon    
 
