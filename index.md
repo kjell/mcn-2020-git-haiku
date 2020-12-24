@@ -1,4 +1,4 @@
-Temple bells die out.    
-visit the ancestral grave    
-Murmuring Mogami    
+Such utter silence!    
+Heron's cry    
+Stabs the darkness    
 
