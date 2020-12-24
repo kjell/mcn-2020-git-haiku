@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-Here along this way but I,    
-Tall grass their monument    
+Clouds come from time to time -    
+dead leaves alone foregather    
+Lilies on the rocks    
 
