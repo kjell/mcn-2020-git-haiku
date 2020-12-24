@@ -1,4 +1,4 @@
-Now the swinging bridge    
-Twilight whippoorwill, whistle on, sweet deepener    
-cherry-blossoms . . .    
+Dry cheerful cricket    
+watching us pass, met death    
+are darkened    
 
