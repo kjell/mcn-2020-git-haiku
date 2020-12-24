@@ -1,4 +1,4 @@
-Mountain-rose petals    
-loneliness? Just one leaf    
-Like our tendrilled life    
+Here, where a thousand    
+above white    
+These dark hands of life    
 
