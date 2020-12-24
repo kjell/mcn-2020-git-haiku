@@ -1,4 +1,4 @@
-In the cicada's cry    
-he starts to grind the rice,    
-Stabs the darkness    
+The first day of the year:    
+thoughts come - and there is loneliness;    
+With tears.    
 
