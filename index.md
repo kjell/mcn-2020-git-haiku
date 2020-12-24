@@ -1,4 +1,4 @@
-Poverty's child -    
-in dusky night    
-Murmuring Mogami    
+Wake! The sky is light!    
+scatters in the night; Now see    
+Of dark loneliness    
 
