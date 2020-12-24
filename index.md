@@ -1,4 +1,4 @@
-Poverty's child -    
-who spends his little breakfast    
-From the kiri tree.    
+Mountain-rose petals    
+loneliness? Just one leaf    
+Like our tendrilled life    
 
