@@ -1,4 +1,4 @@
-Here, where a thousand    
-Twilight whippoorwill, whistle on, sweet deepener    
-from the kiri tree.    
+Poverty's child -    
+who spends his little breakfast    
+From the kiri tree.    
 
