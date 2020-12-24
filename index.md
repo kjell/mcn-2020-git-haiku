@@ -1,4 +1,4 @@
-The summer grasses.    
-Penetrating the very rock,    
-Splash!    
+White cloud of mist    
+watching us pass, met death    
+from looking at the moon.    
 
