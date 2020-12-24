@@ -1,4 +1,4 @@
-For a lovely bowl    
-falling, falling, falling now    
-Goes plop! Watersplash!    
+An old pond    
+let us to the road again    
+Basho lines the moon    
 
