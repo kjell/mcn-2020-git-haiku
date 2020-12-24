@@ -1,4 +1,4 @@
-Swallow in the dusk    
-to see the moon, whose solemn pace    
-Over the orchid    
+For a lovely bowl    
+is quieted with creepers    
+Silent clouds of stars    
 
