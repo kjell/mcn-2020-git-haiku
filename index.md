@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Is also changed to another    
-Among the flowers    
+Now the swinging bridge    
+thoughts come - and there is loneliness;    
+How soon it must die.    
 
