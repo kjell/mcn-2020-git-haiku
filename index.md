@@ -1,4 +1,4 @@
-Now the swinging bridge    
-thoughts come - and there is loneliness;    
-How soon it must die.    
+Lady butterfly    
+is quieted with creepers    
+Bush-clover petals    
 
