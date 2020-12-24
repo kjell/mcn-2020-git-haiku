@@ -1,4 +1,4 @@
-The first day of the year:    
-thoughts come - and there is loneliness;    
-With tears.    
+In the cicada's cry    
+therefore our thanks dark clouds    
+Contemptuous of frost    
 
