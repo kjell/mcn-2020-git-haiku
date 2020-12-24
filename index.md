@@ -1,4 +1,4 @@
-Temple bells die out.    
-Here along this way but I,    
-Stabs the darkness    
+The summer grasses.    
+starving for fat fish or mice    
+A lovely sunset    
 
