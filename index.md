@@ -1,4 +1,4 @@
-An old pond    
-let us to the road again    
-Basho lines the moon    
+The sea darkening    
+Heron's cry    
+from looking at the moon.    
 
