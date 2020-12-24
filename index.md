@@ -1,4 +1,4 @@
-The summer grasses.    
-starving for fat fish or mice    
-A lovely sunset    
+White cloud of mist    
+The fragrant blossoms remain.    
+Waterfall music    
 
