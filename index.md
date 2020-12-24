@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-in dusky night    
-A little woven cape    
+The summer grasses.    
+Here along this way but I,    
+With tears.    
 
