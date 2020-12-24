@@ -1,4 +1,4 @@
-The rains of summer join together.    
-above white    
-A perfect evening!    
+In the sea-surf edge    
+The fragrant blossoms remain.    
+How soon it must die.    
 
