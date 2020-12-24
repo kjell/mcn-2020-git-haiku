@@ -1,4 +1,4 @@
-Too curious flower    
-tolling twilight bell; Temple    
-Darting dragon-fly!    
+Spring is passing.    
+A frog jumps in -    
+cherry-blossoms . . .    
 
