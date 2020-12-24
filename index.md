@@ -1,4 +1,4 @@
-Temple bells die out.    
-The lips feel cold.    
-Two white butterflies?    
+A owner of the old thatched hut    
+loneliness? Just one leaf    
+A lovely sunset    
 
