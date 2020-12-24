@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-loneliness? Just one leaf    
-A lovely sunset    
+The rains of summer join together.    
+above white    
+A perfect evening!    
 
