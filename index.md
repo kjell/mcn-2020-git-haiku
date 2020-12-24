@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-watching us pass, met death    
-are darkened    
+This snowy morning    
+is quieted with creepers    
+Contemptuous of frost    
 
