@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-dead leaves alone foregather    
-Lilies on the rocks    
+In the cicada's cry    
+he starts to grind the rice,    
+Stabs the darkness    
 
