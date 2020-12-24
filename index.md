@@ -1,4 +1,4 @@
-This snowy morning    
-is quieted with creepers    
-Contemptuous of frost    
+The summer grasses.    
+Penetrating the very rock,    
+Splash!    
 
