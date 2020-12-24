@@ -1,4 +1,4 @@
-Lady butterfly    
-is quieted with creepers    
-Bush-clover petals    
+Ballet in the air    
+watching us pass, met death    
+from the kiri tree.    
 
