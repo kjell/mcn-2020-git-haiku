@@ -1,4 +1,4 @@
-Here, where a thousand    
-above white    
-These dark hands of life    
+The river gathering may rains    
+The birds cry, and the fishes’ eyes are     
+It’s the Doll’s Festival.    
 
