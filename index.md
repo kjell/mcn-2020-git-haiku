@@ -1,4 +1,4 @@
-The sea darkening    
-Heron's cry    
-from looking at the moon.    
+Temple bells die out.    
+Here along this way but I,    
+Stabs the darkness    
 
