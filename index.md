@@ -1,4 +1,4 @@
-Ballet in the air    
-watching us pass, met death    
+Here, where a thousand    
+Twilight whippoorwill, whistle on, sweet deepener    
 from the kiri tree.    
 
