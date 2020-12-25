@@ -1,4 +1,4 @@
-The sea darkening    
-above white    
-A cicada’s voice.    
+Poverty's child -    
+There's no sign that can foretell    
+This autumn evening.    
 
