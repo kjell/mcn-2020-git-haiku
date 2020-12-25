@@ -1,4 +1,4 @@
-In the cicada's cry    
-above white    
-and gazes at the moon.    
+Must springtime fade?    
+The birds cry, and the fishes’ eyes are     
+A cicada’s voice.    
 
