@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-Twilight whippoorwill, whistle on, sweet deepener    
-How soon it must die.    
+Nine times arising    
+perfumes her wings by floating    
+It’s the Doll’s Festival.    
 
