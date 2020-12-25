@@ -1,4 +1,4 @@
-Spring is passing.    
-April's air stirs in willow-leaves    
-A lovely sunset    
+Oh, tranquility!    
+and bring to men a chance to rest    
+Muffled by hot rocks    
 
