@@ -1,4 +1,4 @@
-See: surviving suns    
-Is also changed to another    
-Mountain-top jewels    
+The summer grasses.    
+these brilliant-hued hibiscus    
+Ueno? Asakura?    
 
