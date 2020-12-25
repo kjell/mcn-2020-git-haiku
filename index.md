@@ -1,4 +1,4 @@
-Chirping of the quails    
-loneliness? Just one leaf    
-On the temple porch    
+A owner of the old thatched hut    
+these heavy snow-flakes settling    
+Basho lines the moon    
 
