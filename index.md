@@ -1,4 +1,4 @@
-This snowy morning    
-twin butterflies until, twice white    
-The autumn dusk is here.    
+Oh, tranquility!    
+The lips feel cold.    
+This autumn evening.    
 
