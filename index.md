@@ -1,4 +1,4 @@
-Will we meet again    
-thoughts come - and there is loneliness;    
-The Autumn wind.    
+Cloud of cherry-bloom    
+in dusky night    
+the autumn dusk is here.    
 
