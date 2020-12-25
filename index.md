@@ -1,4 +1,4 @@
-In the sea-surf edge    
-perfumes her wings by floating    
-Goes plop! Watersplash!    
+When you say something,    
+All that remains    
+Marks only midnight yet    
 
