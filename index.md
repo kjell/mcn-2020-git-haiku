@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-in dusky night    
-the autumn dusk is here.    
+Lightning -    
+captains swore grand conquest    
+It’s the Doll’s Festival.    
 
