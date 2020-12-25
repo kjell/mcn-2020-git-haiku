@@ -1,4 +1,4 @@
-Now in sad autumn    
-The birds cry, and the fishes’ eyes are     
-This autumn evening.    
+In the twilight rain    
+The fragrant blossoms remain.    
+Or backyard love?    
 
