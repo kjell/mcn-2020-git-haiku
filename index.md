@@ -1,4 +1,4 @@
-If there were fragrance    
-Twilight whippoorwill, whistle on, sweet deepener    
-and gazes at the moon.    
+Here, where a thousand    
+these brilliant-hued hibiscus    
+A perfect evening!    
 
