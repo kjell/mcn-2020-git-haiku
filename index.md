@@ -1,4 +1,4 @@
-White cloud of mist    
-the scent of flowers floating    
-from looking at the moon.    
+Dewdrop, let me cleanse    
+The birds cry, and the fishes’ eyes are     
+It’s the Doll’s Festival.    
 
