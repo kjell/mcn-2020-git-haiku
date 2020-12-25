@@ -1,4 +1,4 @@
-In the cicada's cry    
-loneliness? Just one leaf    
-Goes plop! Watersplash!    
+Spring is passing.    
+April's air stirs in willow-leaves    
+A lovely sunset    
 
