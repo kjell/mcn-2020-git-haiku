@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-The birds cry, and the fishes’ eyes are     
-It’s the Doll’s Festival.    
+Black cloudbank broken    
+dead leaves alone foregather    
+They meet, they mate    
 
