@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-visit the ancestral grave    
-cherry-blossoms . . .    
+Lightning -    
+There's no sign that can foretell    
+Splash!    
 
