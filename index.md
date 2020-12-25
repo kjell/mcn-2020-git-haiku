@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-captains swore grand conquest    
-It’s the Doll’s Festival.    
+Now that eyes of hawks    
+visit the ancestral grave    
+cherry-blossoms . . .    
 
