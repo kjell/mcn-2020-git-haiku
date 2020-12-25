@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-let us arrange these flowers    
-Mogami River.    
+A owner of the old thatched hut    
+mingling with bright small shells    
+Marks only midnight yet    
 
