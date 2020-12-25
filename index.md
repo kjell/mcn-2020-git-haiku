@@ -1,4 +1,4 @@
-The summer grasses.    
-falling, falling, falling now    
-This autumn evening.    
+Dry cheerful cricket    
+from cold streamlets for the sea    
+Moon-lighted mountains!    
 
