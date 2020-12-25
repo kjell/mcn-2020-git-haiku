@@ -1,4 +1,4 @@
-Under cherry-trees    
-The fragrant blossoms remain.    
-Crying, whirling, white    
+Lady butterfly    
+poor monkey, you too could use    
+Goes plop! Watersplash!    
 
