@@ -1,4 +1,4 @@
-Must springtime fade?    
-and bring to men a chance to rest    
-Bearded, with bent canes    
+The first day of the year:    
+A frog jumps in -    
+Bush-clover petals    
 
