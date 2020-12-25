@@ -1,4 +1,4 @@
-Oh, tranquility!    
-and bring to men a chance to rest    
-Muffled by hot rocks    
+Wake! The sky is light!    
+here at your flowering grave    
+How soon it must die.    
 
