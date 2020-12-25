@@ -1,4 +1,4 @@
-This is the new line    
-that black crow I hate so much    
-And evening bell    
+Dry cheerful cricket    
+Twilight whippoorwill, whistle on, sweet deepener    
+How soon it must die.    
 
