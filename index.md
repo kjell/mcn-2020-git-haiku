@@ -1,4 +1,4 @@
-Will we meet again    
-oh voices of the wild ducks    
-Muffled by hot rocks    
+Won't you come and see    
+as I take my darkening path    
+The autumn dusk is here.    
 
