@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-these heavy snow-flakes settling    
-Basho lines the moon    
+This snowy morning    
+twin butterflies until, twice white    
+The autumn dusk is here.    
 
