@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-here at your flowering grave    
-How soon it must die.    
+See: surviving suns    
+Is also changed to another    
+Mountain-top jewels    
 
