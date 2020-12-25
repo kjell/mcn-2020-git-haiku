@@ -1,4 +1,4 @@
-In the twilight rain    
-The fragrant blossoms remain.    
-Or backyard love?    
+Clouds come from time to time -    
+let us arrange these flowers    
+Mogami River.    
 
