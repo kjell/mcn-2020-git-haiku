@@ -1,4 +1,4 @@
-When you say something,    
-All that remains    
-Marks only midnight yet    
+Black cloudbank broken    
+The fragrant blossoms remain.    
+from the kiri tree.    
 
