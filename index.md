@@ -1,4 +1,4 @@
-The summer grasses.    
-these brilliant-hued hibiscus    
-Ueno? Asakura?    
+Chirping of the quails    
+loneliness? Just one leaf    
+On the temple porch    
 
