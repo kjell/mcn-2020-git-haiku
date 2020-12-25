@@ -1,4 +1,4 @@
-Seek on high bare trails    
-Here along this way but I,    
-These dark hands of life    
+The sea darkening    
+above white    
+A cicada’s voice.    
 
