@@ -1,4 +1,4 @@
-Chirping of the quails    
-let us arrange these flowers    
-A little woven cape    
+In the sea-surf edge    
+perfumes her wings by floating    
+Goes plop! Watersplash!    
 
