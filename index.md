@@ -1,4 +1,4 @@
-White cloud of mist    
-The fragrant blossoms remain.    
-How soon it must die.    
+The summer grasses.    
+falling, falling, falling now    
+This autumn evening.    
 
