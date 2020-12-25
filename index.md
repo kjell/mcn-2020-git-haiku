@@ -1,4 +1,4 @@
-For a lovely bowl    
-and bring to men a chance to rest    
-Like our tendrilled life    
+Poverty's child -    
+All that remains    
+A butterfly floats and balances    
 
