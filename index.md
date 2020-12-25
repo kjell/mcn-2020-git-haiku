@@ -1,4 +1,4 @@
-Nine times arising    
-perfumes her wings by floating    
-It’s the Doll’s Festival.    
+Under cherry-trees    
+The fragrant blossoms remain.    
+Crying, whirling, white    
 
