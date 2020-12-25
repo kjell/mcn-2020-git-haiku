@@ -1,4 +1,4 @@
-The rains of summer join together.    
-All that remains    
-The autumn dusk is here.    
+In the cicada's cry    
+loneliness? Just one leaf    
+Goes plop! Watersplash!    
 
