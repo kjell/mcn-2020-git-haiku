@@ -1,4 +1,4 @@
-Must springtime fade?    
-The birds cry, and the fishes’ eyes are     
-A cicada’s voice.    
+Will we meet again    
+thoughts come - and there is loneliness;    
+The Autumn wind.    
 
