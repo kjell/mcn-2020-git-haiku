@@ -1,4 +1,4 @@
-Poverty's child -    
-All that remains    
-A butterfly floats and balances    
+In the cicada's cry    
+above white    
+and gazes at the moon.    
 
