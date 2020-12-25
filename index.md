@@ -1,4 +1,4 @@
-Lady butterfly    
-poor monkey, you too could use    
-Goes plop! Watersplash!    
+White cloud of mist    
+The fragrant blossoms remain.    
+How soon it must die.    
 
