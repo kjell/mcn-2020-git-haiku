@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-mingling with bright small shells    
-Marks only midnight yet    
+Silent the old town    
+to see the moon, whose solemn pace    
+Over the orchid    
 
