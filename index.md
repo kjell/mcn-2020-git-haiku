@@ -1,4 +1,4 @@
-Swallow in the dusk    
-captains swore grand conquest    
-Marks only midnight yet    
+A owner of the old thatched hut    
+Twilight whippoorwill, whistle on, sweet deepener    
+from looking at the moon.    
 
