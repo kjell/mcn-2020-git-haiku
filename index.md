@@ -1,4 +1,4 @@
-Oh, tranquility!    
-The lips feel cold.    
-Muffled by hot rocks    
+Now the swinging bridge    
+April's air stirs in willow-leaves    
+Over the orchid    
 
