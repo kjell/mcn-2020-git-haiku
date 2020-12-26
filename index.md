@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-watching us pass, met death    
-A cicada’s voice.    
+First white snow of fall    
+visit the ancestral grave    
+Silent clouds of stars    
 
