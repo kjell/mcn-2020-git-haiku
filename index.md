@@ -1,4 +1,4 @@
-An old pond    
-that black crow I hate so much    
-Murmuring Mogami    
+Must springtime fade?    
+these brilliant-hued hibiscus    
+Cherry-blossoms    
 
