@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-Heron's cry    
-Cold pale eyes pour tears    
+Swallow in the dusk    
+captains swore grand conquest    
+Marks only midnight yet    
 
