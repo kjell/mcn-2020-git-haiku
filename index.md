@@ -1,4 +1,4 @@
-An old pond    
-All that remains    
-With tears.    
+Too curious flower    
+Penetrating the very rock,    
+Since there is no rice    
 
