@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-A frog jumps in -    
-Since there is no rice    
+The first day of the year:    
+in dusky night    
+Murmuring Mogami    
 
