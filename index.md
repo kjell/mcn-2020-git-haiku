@@ -1,4 +1,4 @@
-Too curious flower    
-There's no sign that can foretell    
-The Autumn wind.    
+Oh, tranquility!    
+these heavy snow-flakes settling    
+How soon it must die.    
 
