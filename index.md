@@ -1,4 +1,4 @@
-An old pond    
-in dusky night    
-Cherry-blossoms    
+Mountain-rose petals    
+scatters in the night; Now see    
+This autumn evening.    
 
