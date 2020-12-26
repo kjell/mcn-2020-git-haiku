@@ -1,4 +1,4 @@
-An old pond    
-How swift it is    
-Stabs the darkness    
+Lightning -    
+Twilight whippoorwill, whistle on, sweet deepener    
+A lovely sunset    
 
