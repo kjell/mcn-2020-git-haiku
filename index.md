@@ -1,4 +1,4 @@
-None is travelling    
-There's no sign that can foretell    
+Will we meet again    
+above white    
 It’s the Doll’s Festival.    
 
