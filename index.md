@@ -1,4 +1,4 @@
-The summer grasses.    
+In the twilight rain    
 The lips feel cold.    
-From the kiri tree.    
+Seasoned with petals    
 
