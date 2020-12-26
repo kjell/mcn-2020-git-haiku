@@ -1,4 +1,4 @@
-Must springtime fade?    
-these brilliant-hued hibiscus    
-Cherry-blossoms    
+If there were fragrance    
+twin butterflies until, twice white    
+A butterfly floats and balances    
 
