@@ -1,4 +1,4 @@
-In the cicada's cry    
-Heron's cry    
-With tears.    
+Cloud of cherry-bloom    
+it needs but shiny wings and look    
+Contemptuous of frost    
 
