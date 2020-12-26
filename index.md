@@ -1,4 +1,4 @@
-Too curious flower    
-Penetrating the very rock,    
-Since there is no rice    
+Ballet in the air    
+he starts to grind the rice,    
+And evening bell    
 
