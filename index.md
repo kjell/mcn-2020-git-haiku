@@ -1,4 +1,4 @@
-Silent the old town    
-to see the moon, whose solemn pace    
-Over the orchid    
+Old dark sleepy pool    
+Heron's cry    
+Cold pale eyes pour tears    
 
