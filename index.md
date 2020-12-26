@@ -1,4 +1,4 @@
-When you say something,    
-as I take my darkening path    
-Crying, whirling, white    
+Wake! The sky is light!    
+Heron's cry    
+A perfect evening!    
 
