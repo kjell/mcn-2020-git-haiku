@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-it needs but shiny wings and look    
-Contemptuous of frost    
+Spring is passing.    
+even the crickets' singing    
+A little woven cape    
 
