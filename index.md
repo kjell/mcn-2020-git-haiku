@@ -1,4 +1,4 @@
-First white snow of fall    
-visit the ancestral grave    
-Silent clouds of stars    
+This snowy morning    
+poor monkey, you too could use    
+Come to rest our necks    
 
