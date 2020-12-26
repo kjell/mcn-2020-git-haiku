@@ -1,4 +1,4 @@
-Now the swinging bridge    
-April's air stirs in willow-leaves    
-Over the orchid    
+Won't you come and see    
+let us arrange these flowers    
+It’s the Doll’s Festival.    
 
