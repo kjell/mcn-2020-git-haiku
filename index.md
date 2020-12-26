@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-Heron's cry    
-A perfect evening!    
+Old dark sleepy pool    
+these heavy snow-flakes settling    
+And evening bell    
 
