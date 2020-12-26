@@ -1,4 +1,4 @@
-The first day of the year:    
-in dusky night    
-Murmuring Mogami    
+In the twilight rain    
+the scent of flowers floating    
+from the kiri tree.    
 
