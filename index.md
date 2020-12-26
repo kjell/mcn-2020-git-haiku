@@ -1,4 +1,4 @@
-Ballet in the air    
-and bring to men a chance to rest    
-Over the orchid    
+An old pond    
+that black crow I hate so much    
+Murmuring Mogami    
 
