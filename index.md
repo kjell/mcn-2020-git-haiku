@@ -1,4 +1,4 @@
-Oh, tranquility!    
-these heavy snow-flakes settling    
-How soon it must die.    
+The summer grasses.    
+The lips feel cold.    
+From the kiri tree.    
 
