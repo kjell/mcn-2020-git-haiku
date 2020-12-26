@@ -1,4 +1,4 @@
-In the twilight rain    
-The lips feel cold.    
-Seasoned with petals    
+Oh, tranquility!    
+these heavy snow-flakes settling    
+cherry-blossoms . . .    
 
