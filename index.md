@@ -1,4 +1,4 @@
-This snowy morning    
-poor monkey, you too could use    
-Come to rest our necks    
+Camellia-petal    
+A frog jumps in -    
+A little woven cape    
 
