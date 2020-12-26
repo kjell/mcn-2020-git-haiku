@@ -1,4 +1,4 @@
-None is travelling    
-above white    
-Like our tendrilled life    
+Oh, tranquility!    
+The lips feel cold.    
+Muffled by hot rocks    
 
