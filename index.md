@@ -1,4 +1,4 @@
-Will we meet again    
-therefore our thanks dark clouds    
-Of warriors’ dreams.    
+None is travelling    
+Twilight whippoorwill, whistle on, sweet deepener    
+With tears.    
 
