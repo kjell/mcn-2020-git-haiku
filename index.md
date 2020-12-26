@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-poor monkey, you too could use    
+Carven gods long gone    
+chirping, keeps the autumn gay    
 How soon it must die.    
 
