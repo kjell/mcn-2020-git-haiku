@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-these heavy snow-flakes settling    
-And evening bell    
+None is travelling    
+There's no sign that can foretell    
+It’s the Doll’s Festival.    
 
