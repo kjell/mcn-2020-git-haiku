@@ -1,4 +1,4 @@
-The sea darkening    
-loneliness? Just one leaf    
-A solitary bird    
+Chirping of the quails    
+these heavy snow-flakes settling    
+Seasoned with petals    
 
