@@ -1,4 +1,4 @@
-In the cicada's cry    
-just enough to bend the leaves    
-The autumn dusk is here.    
+Clouds come from time to time -    
+thoughts come - and there is loneliness;    
+Darting dragon-fly!    
 
