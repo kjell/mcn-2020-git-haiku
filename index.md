@@ -1,4 +1,4 @@
-Won't you come and see    
-let us arrange these flowers    
-It’s the Doll’s Festival.    
+An old pond    
+All that remains    
+With tears.    
 
