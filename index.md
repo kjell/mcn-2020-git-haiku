@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-thoughts come - and there is loneliness;    
-Darting dragon-fly!    
+Will we meet again    
+therefore our thanks dark clouds    
+Of warriors’ dreams.    
 
