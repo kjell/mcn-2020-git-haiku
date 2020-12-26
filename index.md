@@ -1,4 +1,4 @@
-Will we meet again    
-above white    
-It’s the Doll’s Festival.    
+Poverty's child -    
+as I take my darkening path    
+Silent clouds of stars    
 
