@@ -1,4 +1,4 @@
-Carven gods long gone    
-chirping, keeps the autumn gay    
-How soon it must die.    
+The sea darkening    
+loneliness? Just one leaf    
+A solitary bird    
 
