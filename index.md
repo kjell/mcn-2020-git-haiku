@@ -1,4 +1,4 @@
-Lightning -    
-Twilight whippoorwill, whistle on, sweet deepener    
-A lovely sunset    
+Old dark sleepy pool    
+watching us pass, met death    
+A cicada’s voice.    
 
