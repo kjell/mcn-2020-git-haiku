@@ -1,4 +1,4 @@
-Poverty's child -    
-he starts to grind the rice,    
-Of faded daffodils    
+Lady butterfly    
+poor monkey, you too could use    
+Stabs the darkness    
 
