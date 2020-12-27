@@ -1,4 +1,4 @@
 The first day of the year:    
-How swift it is    
-Splash!    
+mingling with bright small shells    
+Of warriors’ dreams.    
 
