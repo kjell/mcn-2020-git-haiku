@@ -1,4 +1,4 @@
-Oh, tranquility!    
-he starts to grind the rice,    
-Of warriors’ dreams.    
+In the twilight rain    
+Is also changed to another    
+It’s the Doll’s Festival.    
 
