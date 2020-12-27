@@ -1,4 +1,4 @@
-The summer grasses.    
-he starts to grind the rice,    
-Waterfall music    
+Wake! The sky is light!    
+twin butterflies until, twice white    
+Contemptuous of frost    
 
