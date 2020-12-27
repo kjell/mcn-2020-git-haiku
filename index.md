@@ -1,4 +1,4 @@
-No oil to read by    
-April's air stirs in willow-leaves    
-Come to rest our necks    
+Clouds come from time to time -    
+There's no sign that can foretell    
+Two white butterflies?    
 
