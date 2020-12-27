@@ -1,4 +1,4 @@
-In the cicada's cry    
-Here along this way but I,    
-Companion butterfly!    
+Swallow in the dusk    
+Penetrating the very rock,    
+and gazes at the moon.    
 
