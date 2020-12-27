@@ -1,4 +1,4 @@
-Spring is passing.    
-The fragrant blossoms remain.    
+The first day of the year:    
+How swift it is    
 Splash!    
 
