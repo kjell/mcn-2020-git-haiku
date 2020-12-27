@@ -1,4 +1,4 @@
-The summer grasses.    
+The first day of the year:    
 above white    
-from looking at the moon.    
+Waterfall music    
 
