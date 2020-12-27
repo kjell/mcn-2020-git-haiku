@@ -1,4 +1,4 @@
-The river gathering may rains    
-that black crow I hate so much    
-Marks only midnight yet    
+Temple bells die out.    
+stretching over Sado Island    
+Mogami River.    
 
