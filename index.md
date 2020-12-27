@@ -1,4 +1,4 @@
-Temple bells die out.    
-stretching over Sado Island    
-Mogami River.    
+The summer grasses.    
+he starts to grind the rice,    
+Waterfall music    
 
