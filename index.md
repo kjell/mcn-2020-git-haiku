@@ -1,4 +1,4 @@
-Lady butterfly    
-poor monkey, you too could use    
-Stabs the darkness    
+Glorious the moon    
+The birds cry, and the fishes’ eyes are     
+How soon it must die.    
 
