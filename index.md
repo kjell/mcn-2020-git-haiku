@@ -1,4 +1,4 @@
-The sea darkening    
-who spends his little breakfast    
-from looking at the moon.    
+Now that eyes of hawks    
+in dusky night    
+A perfect evening!    
 
