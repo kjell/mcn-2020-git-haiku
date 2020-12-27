@@ -1,4 +1,4 @@
-An old pond    
-therefore our thanks dark clouds    
-Two white butterflies?    
+The summer grasses.    
+above white    
+from looking at the moon.    
 
