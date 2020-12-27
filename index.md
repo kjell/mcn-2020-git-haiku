@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-Line that won't be deleted    
-A perfect evening!    
+Lightning -    
+Is also changed to another    
+This autumn evening.    
 
