@@ -1,4 +1,4 @@
-In the cicada's cry    
-All that remains    
-Companion butterfly!    
+The rains of summer join together.    
+tolling twilight bell; Temple    
+From the kiri tree.    
 
