@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-Here along this way but I,    
-from the kiri tree.    
+Under cherry-trees    
+Is also changed to another    
+and gazes at the moon.    
 
