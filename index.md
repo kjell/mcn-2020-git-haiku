@@ -1,4 +1,4 @@
-The rains of summer join together.    
-tolling twilight bell; Temple    
-From the kiri tree.    
+Cloud of cherry-bloom    
+above white    
+Tall grass their monument    
 
