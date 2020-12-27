@@ -1,4 +1,4 @@
-White cloud of mist    
-Heron's cry    
-Seasoned with petals    
+Poverty's child -    
+he starts to grind the rice,    
+Of faded daffodils    
 
