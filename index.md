@@ -1,4 +1,4 @@
-In the twilight rain    
-A frog jumps in -    
-A little woven cape    
+Spring is passing.    
+The fragrant blossoms remain.    
+Splash!    
 
