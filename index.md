@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-even the crickets' singing    
-Tall grass their monument    
+Spring is passing.    
+Here along this way but I,    
+Cherry-blossoms    
 
