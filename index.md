@@ -1,4 +1,4 @@
-Poverty's child -    
-even the crickets' singing    
-Come to rest our necks    
+Oh, tranquility!    
+dead leaves alone foregather    
+cherry-blossoms . . .    
 
