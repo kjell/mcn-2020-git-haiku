@@ -1,4 +1,4 @@
-Temple bells die out.    
-All that remains    
-Mogami River.    
+Clouds come from time to time -    
+Line that won't be deleted    
+A perfect evening!    
 
