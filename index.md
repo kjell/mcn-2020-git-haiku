@@ -1,4 +1,4 @@
-None is travelling    
-Is also changed to another    
-How soon it must die.    
+White cloud of mist    
+Heron's cry    
+Seasoned with petals    
 
