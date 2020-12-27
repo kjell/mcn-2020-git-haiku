@@ -1,4 +1,4 @@
-Lightning -    
-How swift it is    
-Among the flowers    
+Temple bells die out.    
+All that remains    
+Mogami River.    
 
