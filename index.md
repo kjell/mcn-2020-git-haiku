@@ -1,4 +1,4 @@
-White cloud of mist    
-therefore our thanks dark clouds    
-This autumn evening.    
+Old dark sleepy pool    
+even the crickets' singing    
+Tall grass their monument    
 
