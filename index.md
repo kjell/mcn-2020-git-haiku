@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-in dusky night    
-A perfect evening!    
+In the cicada's cry    
+All that remains    
+Companion butterfly!    
 
