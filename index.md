@@ -1,4 +1,4 @@
-Spring is passing.    
-Here along this way but I,    
-Cherry-blossoms    
+Oh, tranquility!    
+he starts to grind the rice,    
+Of warriors’ dreams.    
 
