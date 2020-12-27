@@ -1,4 +1,4 @@
-Swallow in the dusk    
-Penetrating the very rock,    
-and gazes at the moon.    
+In the cicada's cry    
+oh voices of the wild ducks    
+My moonlit pillow    
 
