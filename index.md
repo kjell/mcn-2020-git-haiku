@@ -1,4 +1,4 @@
-The first day of the year:    
-above white    
-Waterfall music    
+Lightning -    
+let us arrange these flowers    
+But he's beautiful!    
 
