@@ -1,4 +1,4 @@
-Oh, tranquility!    
-dead leaves alone foregather    
-cherry-blossoms . . .    
+Lightning -    
+How swift it is    
+Among the flowers    
 
