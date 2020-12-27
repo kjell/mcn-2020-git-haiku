@@ -1,4 +1,4 @@
-Here, where a thousand    
-is quieted with creepers    
-A solitary bird    
+None is travelling    
+Is also changed to another    
+How soon it must die.    
 
