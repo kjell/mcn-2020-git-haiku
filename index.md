@@ -1,4 +1,4 @@
-Won't you come and see    
-The fragrant blossoms remain.    
-Stabs the darkness    
+An old pond    
+therefore our thanks dark clouds    
+Two white butterflies?    
 
