@@ -1,4 +1,4 @@
-In the twilight rain    
-Is also changed to another    
-It’s the Doll’s Festival.    
+The sea darkening    
+who spends his little breakfast    
+from looking at the moon.    
 
