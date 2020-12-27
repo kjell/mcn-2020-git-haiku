@@ -1,4 +1,4 @@
-Camellia-petal    
-in dusky night    
-From the kiri tree.    
+Poverty's child -    
+even the crickets' singing    
+Come to rest our necks    
 
