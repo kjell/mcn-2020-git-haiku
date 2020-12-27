@@ -1,4 +1,4 @@
-Mountain-rose petals    
+In the twilight rain    
 A frog jumps in -    
-Our hungry donkey    
+A little woven cape    
 
