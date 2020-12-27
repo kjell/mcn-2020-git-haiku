@@ -1,4 +1,4 @@
-In the cicada's cry    
-oh voices of the wild ducks    
-My moonlit pillow    
+Camellia-petal    
+in dusky night    
+From the kiri tree.    
 
