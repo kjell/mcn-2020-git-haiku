@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-twin butterflies until, twice white    
-Contemptuous of frost    
+This is the new line    
+in your brief sweet waters    
+Tall grass their monument    
 
