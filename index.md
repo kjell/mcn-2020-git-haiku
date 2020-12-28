@@ -1,4 +1,4 @@
-Poverty's child -    
-A frog jumps in -    
-from the kiri tree.    
+Black cloudbank broken    
+All that remains    
+and gazes at the moon.    
 
