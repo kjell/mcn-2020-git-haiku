@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-Heron's cry    
-A solitary bird    
+If there were fragrance    
+that black crow I hate so much    
+Over the orchid    
 
