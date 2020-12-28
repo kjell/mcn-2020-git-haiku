@@ -1,4 +1,4 @@
-This is the new line    
-chirping, keeps the autumn gay    
-Stabs the darkness    
+Why so scrawny, cat?    
+these heavy snow-flakes settling    
+With tears.    
 
