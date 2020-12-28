@@ -1,4 +1,4 @@
-Cold first winter rain    
-The birds cry, and the fishes’ eyes are     
-My moonlit pillow    
+Poverty's child -    
+fell in silent dawn, spilling    
+Lilies on the rocks    
 
