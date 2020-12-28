@@ -1,4 +1,4 @@
-Poverty's child -    
-fell in silent dawn, spilling    
-Lilies on the rocks    
+Now the swinging bridge    
+above white    
+and gazes at the moon.    
 
