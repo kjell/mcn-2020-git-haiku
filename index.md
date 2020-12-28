@@ -1,4 +1,4 @@
-The river gathering may rains    
-in dusky night    
-A cicada’s voice.    
+Temple bells die out.    
+Is also changed to another    
+Since there is no rice    
 
