@@ -1,4 +1,4 @@
-Now in sad autumn    
-starving for fat fish or mice    
-Moon-lighted mountains!    
+Swallow in the dusk    
+thoughts come - and there is loneliness;    
+Seasoned with petals    
 
