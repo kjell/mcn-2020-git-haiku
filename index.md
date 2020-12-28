@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-as I take my darkening path    
-Come to rest our necks    
+First white snow of fall    
+then cry all birds and fishes    
+A cicada’s voice.    
 
