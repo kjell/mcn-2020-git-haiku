@@ -1,4 +1,4 @@
-Cold first winter rain    
-in your brief sweet waters    
-are darkened    
+The rains of summer join together.    
+A frog jumps in -    
+Of dark loneliness    
 
