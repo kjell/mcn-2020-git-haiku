@@ -1,4 +1,4 @@
-Temple bells die out.    
-Is also changed to another    
-Since there is no rice    
+Wake! The sky is light!    
+Heron's cry    
+A solitary bird    
 
