@@ -1,4 +1,4 @@
-Swallow in the dusk    
-here at your flowering grave    
-Of dark loneliness    
+Now in sad autumn    
+starving for fat fish or mice    
+Moon-lighted mountains!    
 
