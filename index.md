@@ -1,4 +1,4 @@
-The rains of summer join together.    
+Lightning -    
 A frog jumps in -    
-Of dark loneliness    
+It’s the Doll’s Festival.    
 
