@@ -1,4 +1,4 @@
-Spring is passing.    
-these heavy snow-flakes settling    
-Over the orchid    
+Ballet in the air    
+A frog jumps in -    
+Waterfall music    
 
