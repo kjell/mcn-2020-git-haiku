@@ -1,4 +1,4 @@
-Too curious flower    
-quick unexpected frog    
-Ueno? Asakura?    
+Bright red pepper-pod    
+tolling twilight bell; Temple    
+This autumn evening.    
 
