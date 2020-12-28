@@ -1,4 +1,4 @@
-Lady butterfly    
-Line that won't be deleted    
-Come to rest our necks    
+For a lovely bowl    
+in dusky night    
+Of warriors’ dreams.    
 
