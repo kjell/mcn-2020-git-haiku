@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-All that remains    
-Tall grass their monument    
+Lady butterfly    
+Line that won't be deleted    
+Come to rest our necks    
 
