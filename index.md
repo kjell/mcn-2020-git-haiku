@@ -1,4 +1,4 @@
-The sea darkening    
-chirping, keeps the autumn gay    
-cherry-blossoms . . .    
+If there were fragrance    
+twin butterflies until, twice white    
+Mogami River.    
 
