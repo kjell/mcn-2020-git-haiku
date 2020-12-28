@@ -1,4 +1,4 @@
-This is the new line    
-in your brief sweet waters    
-Tall grass their monument    
+Now that eyes of hawks    
+oh voices of the wild ducks    
+the autumn dusk is here.    
 
