@@ -1,4 +1,4 @@
-Carven gods long gone    
-in dusky night    
-Mogami River.    
+For a lovely bowl    
+as I take my darkening path    
+They meet, they mate    
 
