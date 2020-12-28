@@ -1,4 +1,4 @@
-Ah me! I am one    
-There's no sign that can foretell    
-A cicada’s voice.    
+Now in sad autumn    
+poor monkey, you too could use    
+Stabs the darkness    
 
