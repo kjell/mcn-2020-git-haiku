@@ -1,4 +1,4 @@
-First white snow of fall    
-then cry all birds and fishes    
-A cicada’s voice.    
+The sea darkening    
+just enough to bend the leaves    
+A solitary bird    
 
