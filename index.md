@@ -1,4 +1,4 @@
-Now the swinging bridge    
-above white    
-and gazes at the moon.    
+A owner of the old thatched hut    
+All that remains    
+Tall grass their monument    
 
