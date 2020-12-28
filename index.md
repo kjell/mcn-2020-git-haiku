@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-Penetrating the very rock,    
-But he's beautiful!    
+Swallow in the dusk    
+here at your flowering grave    
+Of dark loneliness    
 
