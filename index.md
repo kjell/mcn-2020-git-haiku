@@ -1,4 +1,4 @@
-For a lovely bowl    
-as I take my darkening path    
-They meet, they mate    
+Seas are wild tonight    
+visit the ancestral grave    
+are darkened    
 
