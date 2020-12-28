@@ -1,4 +1,4 @@
-Seas are wild tonight    
-visit the ancestral grave    
-are darkened    
+Ah me! I am one    
+There's no sign that can foretell    
+A cicada’s voice.    
 
