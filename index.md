@@ -1,4 +1,4 @@
-Nine times arising    
-The lips feel cold.    
-A lovely sunset    
+Spring is passing.    
+these heavy snow-flakes settling    
+Over the orchid    
 
