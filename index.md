@@ -1,4 +1,4 @@
-Ballet in the air    
-A frog jumps in -    
-Waterfall music    
+The river gathering may rains    
+in dusky night    
+A cicada’s voice.    
 
