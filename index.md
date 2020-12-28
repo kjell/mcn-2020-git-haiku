@@ -1,4 +1,4 @@
-Black cloudbank broken    
-All that remains    
-and gazes at the moon.    
+Cold first winter rain    
+in your brief sweet waters    
+are darkened    
 
