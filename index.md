@@ -1,4 +1,4 @@
-Won't you come and see    
-that black crow I hate so much    
-and gazes at the moon.    
+White cloud of mist    
+thoughts come - and there is loneliness;    
+Splash!    
 
