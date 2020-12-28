@@ -1,4 +1,4 @@
-Now in sad autumn    
-poor monkey, you too could use    
-Stabs the darkness    
+Too curious flower    
+quick unexpected frog    
+Ueno? Asakura?    
 
