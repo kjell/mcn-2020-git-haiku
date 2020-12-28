@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-these heavy snow-flakes settling    
-With tears.    
+The sea darkening    
+chirping, keeps the autumn gay    
+cherry-blossoms . . .    
 
