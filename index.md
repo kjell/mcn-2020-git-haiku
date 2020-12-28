@@ -1,4 +1,4 @@
-Will we meet again    
-above white    
-Seasoned with petals    
+Carven gods long gone    
+in dusky night    
+Mogami River.    
 
