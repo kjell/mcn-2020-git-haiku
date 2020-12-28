@@ -1,4 +1,4 @@
-Lightning -    
-Here along this way but I,    
-Come to rest our necks    
+Oh, tranquility!    
+mingling with bright small shells    
+Of warriors’ dreams.    
 
