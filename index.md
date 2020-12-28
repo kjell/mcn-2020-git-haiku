@@ -1,4 +1,4 @@
-Lightning -    
-A frog jumps in -    
-It’s the Doll’s Festival.    
+Nine times arising    
+The lips feel cold.    
+A lovely sunset    
 
