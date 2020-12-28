@@ -1,4 +1,4 @@
 An old pond    
-fell in silent dawn, spilling    
-Silent clouds of stars    
+April's air stirs in willow-leaves    
+It’s the Doll’s Festival.    
 
