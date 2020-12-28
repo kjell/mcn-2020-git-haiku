@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-tolling twilight bell; Temple    
-This autumn evening.    
+Won't you come and see    
+that black crow I hate so much    
+and gazes at the moon.    
 
