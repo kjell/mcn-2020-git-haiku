@@ -1,4 +1,4 @@
-Carven gods long gone    
-in dusky night    
-These dark hands of life    
+In the twilight rain    
+Twilight whippoorwill, whistle on, sweet deepener    
+And evening bell    
 
