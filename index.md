@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-thoughts come - and there is loneliness;    
-Splash!    
+Here, where a thousand    
+Is also changed to another    
+Cold pale eyes pour tears    
 
