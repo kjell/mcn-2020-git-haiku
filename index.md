@@ -1,4 +1,4 @@
-The first day of the year:    
-Penetrating the very rock,    
-Mountain-top jewels    
+Seek on high bare trails    
+visit the ancestral grave    
+My moonlit pillow    
 
