@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Is also changed to another    
-Ueno? Asakura?    
+For a lovely bowl    
+he starts to grind the rice,    
+Silent clouds of stars    
 
