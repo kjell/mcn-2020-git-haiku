@@ -1,4 +1,4 @@
-In the cicada's cry    
-The fragrant blossoms remain.    
-Murmuring Mogami    
+Won't you come and see    
+let us to the road again    
+It’s the Doll’s Festival.    
 
