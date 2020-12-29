@@ -1,4 +1,4 @@
-Won't you come and see    
-mingling with bright small shells    
-A solitary bird    
+Old dark sleepy pool    
+visit the ancestral grave    
+Splash!    
 
