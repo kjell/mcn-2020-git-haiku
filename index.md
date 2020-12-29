@@ -1,4 +1,4 @@
-When you say something,    
-Heron's cry    
-This autumn evening.    
+Lightning -    
+Penetrating the very rock,    
+And evening bell    
 
