@@ -1,4 +1,4 @@
-The summer grasses.    
-April's air stirs in willow-leaves    
-Or backyard love?    
+Must springtime fade?    
+above white    
+Lilies on the rocks    
 
