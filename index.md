@@ -1,4 +1,4 @@
-Lightning -    
-Penetrating the very rock,    
-And evening bell    
+White cloud of mist    
+The fragrant blossoms remain.    
+Crying, whirling, white    
 
