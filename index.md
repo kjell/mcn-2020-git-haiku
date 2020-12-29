@@ -1,4 +1,4 @@
-White cloud of mist    
-thoughts come - and there is loneliness;    
-Splash!    
+Now the swinging bridge    
+I am off to bed - but ah!    
+Of warriors’ dreams.    
 
