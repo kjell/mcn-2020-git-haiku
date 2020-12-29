@@ -1,4 +1,4 @@
-Must springtime fade?    
-above white    
-Lilies on the rocks    
+Carven gods long gone    
+these brilliant-hued hibiscus    
+A cicada’s voice.    
 
