@@ -1,4 +1,4 @@
-Lightning -    
-and bring to men a chance to rest    
-Seasoned with petals    
+When you say something,    
+Heron's cry    
+This autumn evening.    
 
