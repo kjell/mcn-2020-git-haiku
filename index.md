@@ -1,4 +1,4 @@
-Seek on high bare trails    
-visit the ancestral grave    
-My moonlit pillow    
+Lightning -    
+above white    
+Since there is no rice    
 
