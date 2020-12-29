@@ -1,4 +1,4 @@
-Carven gods long gone    
-let us to the road again    
-But he's beautiful!    
+A owner of the old thatched hut    
+thoughts come - and there is loneliness;    
+Splash!    
 
