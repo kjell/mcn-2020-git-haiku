@@ -1,4 +1,4 @@
-Lightning -    
-above white    
-Since there is no rice    
+No oil to read by    
+loneliness? Just one leaf    
+Or backyard love?    
 
