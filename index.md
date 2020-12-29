@@ -1,4 +1,4 @@
-Won't you come and see    
+Carven gods long gone    
 let us to the road again    
-It’s the Doll’s Festival.    
+But he's beautiful!    
 
