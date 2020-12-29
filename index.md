@@ -1,4 +1,4 @@
-Now the swinging bridge    
-I am off to bed - but ah!    
-Of warriors’ dreams.    
+This is the new line    
+these heavy snow-flakes settling    
+A cicada’s voice.    
 
