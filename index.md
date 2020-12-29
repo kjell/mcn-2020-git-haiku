@@ -1,4 +1,4 @@
-The first day of the year:    
-he starts to grind the rice,    
-It’s the Doll’s Festival.    
+The sea darkening    
+even the crickets' singing    
+With tears.    
 
