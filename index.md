@@ -1,4 +1,4 @@
-Ah me! I am one    
-above white    
-are darkened    
+Seas are wild tonight    
+is quieted with creepers    
+Cherry-blossoms    
 
