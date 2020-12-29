@@ -1,4 +1,4 @@
-Seas are wild tonight    
-is quieted with creepers    
-Cherry-blossoms    
+Old dark sleepy pool    
+Line that won't be deleted    
+Muffled by hot rocks    
 
