@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-Line that won't be deleted    
-Muffled by hot rocks    
+Dawn-shining mountains    
+loneliness? Just one leaf    
+Splash!    
 
