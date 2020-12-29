@@ -1,4 +1,4 @@
-Lightning -    
-There's no sign that can foretell    
-Lilies on the rocks    
+Dry cheerful cricket    
+Penetrating the very rock,    
+This autumn evening.    
 
