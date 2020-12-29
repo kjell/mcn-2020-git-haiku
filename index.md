@@ -1,4 +1,4 @@
-In the twilight rain    
-Twilight whippoorwill, whistle on, sweet deepener    
-And evening bell    
+The rains of summer join together.    
+Is also changed to another    
+Ueno? Asakura?    
 
