@@ -1,4 +1,4 @@
-Glorious the moon    
-sky-reflecting violets    
-With tears.    
+Cold first winter rain    
+There's no sign that can foretell    
+and gazes at the moon.    
 
