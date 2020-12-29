@@ -1,4 +1,4 @@
-White cloud of mist    
-The fragrant blossoms remain.    
-Crying, whirling, white    
+The summer grasses.    
+April's air stirs in willow-leaves    
+Or backyard love?    
 
