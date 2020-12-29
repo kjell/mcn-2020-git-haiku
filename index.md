@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-Penetrating the very rock,    
-This autumn evening.    
+Lightning -    
+How swift it is    
+are darkened    
 
