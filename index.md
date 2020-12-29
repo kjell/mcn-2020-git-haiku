@@ -1,4 +1,4 @@
-Carven gods long gone    
-these brilliant-hued hibiscus    
-A cicada’s voice.    
+Poverty's child -    
+Penetrating the very rock,    
+are darkened . . .    
 
