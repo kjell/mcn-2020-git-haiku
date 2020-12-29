@@ -1,4 +1,4 @@
-None is travelling    
-All that remains    
-With tears.    
+Chirping of the quails    
+quick unexpected frog    
+Lilies on the rocks    
 
