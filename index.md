@@ -1,4 +1,4 @@
-The sea darkening    
-even the crickets' singing    
-With tears.    
+Carven gods long gone    
+in dusky night    
+These dark hands of life    
 
