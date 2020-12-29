@@ -1,4 +1,4 @@
-For a lovely bowl    
-he starts to grind the rice,    
-Silent clouds of stars    
+Lightning -    
+There's no sign that can foretell    
+Lilies on the rocks    
 
