@@ -1,4 +1,4 @@
-Cold first winter rain    
-There's no sign that can foretell    
-and gazes at the moon.    
+Chirping of the quails    
+oh voices of the wild ducks    
+from looking at the moon.    
 
