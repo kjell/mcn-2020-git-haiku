@@ -1,4 +1,4 @@
-In the twilight rain    
-fell in silent dawn, spilling    
-My moonlit pillow    
+Won't you come and see    
+starving for fat fish or mice    
+Mountain-top jewels    
 
