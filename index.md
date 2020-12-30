@@ -1,4 +1,4 @@
-Will we meet again    
-in dusky night    
-Of warriors’ dreams.    
+In the cicada's cry    
+he starts to grind the rice,    
+A butterfly floats and balances    
 
