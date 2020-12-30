@@ -1,4 +1,4 @@
-An old pond    
-tolling twilight bell; Temple    
-A little woven cape    
+Lightning -    
+and bring to men a chance to rest    
+Marks only midnight yet    
 
