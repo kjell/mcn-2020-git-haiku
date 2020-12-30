@@ -1,4 +1,4 @@
-The summer grasses.    
-A frog jumps in -    
-A cicada’s voice.    
+Swallow in the dusk    
+Line that won't be deleted    
+from the kiri tree.    
 
