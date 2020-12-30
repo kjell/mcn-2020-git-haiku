@@ -1,4 +1,4 @@
-Won't you come and see    
-starving for fat fish or mice    
-Mountain-top jewels    
+Spring is passing.    
+stretching over Sado Island    
+The Autumn wind.    
 
