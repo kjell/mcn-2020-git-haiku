@@ -1,4 +1,4 @@
-Nine times arising    
-I am off to bed - but ah!    
-This autumn evening.    
+Won't you come and see    
+perfumes her wings by floating    
+It’s the Doll’s Festival.    
 
