@@ -1,4 +1,4 @@
-In the cicada's cry    
-poor monkey, you too could use    
-It’s the Doll’s Festival.    
+Clouds come from time to time -    
+let us arrange these flowers    
+Bearded, with bent canes    
 
