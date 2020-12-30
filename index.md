@@ -1,4 +1,4 @@
-In the cicada's cry    
-these brilliant-hued hibiscus    
-Bearded, with bent canes    
+Wake! The sky is light!    
+The birds cry, and the fishes’ eyes are     
+the autumn dusk is here.    
 
