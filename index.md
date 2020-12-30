@@ -1,4 +1,4 @@
-An old pond    
-dead leaves alone foregather    
-Since there is no rice    
+In the twilight rain    
+fell in silent dawn, spilling    
+My moonlit pillow    
 
