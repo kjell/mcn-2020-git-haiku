@@ -1,4 +1,4 @@
-In the cicada's cry    
-starving for fat fish or mice    
-Waterfall music    
+Cold first winter rain    
+stretching over Sado Island    
+Like our tendrilled life    
 
