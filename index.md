@@ -1,4 +1,4 @@
-White cloud of mist    
-these heavy snow-flakes settling    
-Mountain-top jewels    
+For a lovely bowl    
+Here along this way but I,    
+But he's beautiful!    
 
