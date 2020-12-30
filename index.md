@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-perfumes her wings by floating    
+Bright red pepper-pod    
+the scent of flowers floating    
 How soon it must die.    
 
