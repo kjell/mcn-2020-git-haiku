@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-these brilliant-hued hibiscus    
-Of warriors’ dreams.    
+Under cherry-trees    
+in your brief sweet waters    
+Come to rest our necks    
 
