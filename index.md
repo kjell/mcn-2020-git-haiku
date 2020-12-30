@@ -1,4 +1,4 @@
-Will we meet again    
-as I take my darkening path    
-are darkened    
+Bright red pepper-pod    
+There's no sign that can foretell    
+Lilies on the rocks    
 
