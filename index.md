@@ -1,4 +1,4 @@
-Lightning -    
-and bring to men a chance to rest    
-Marks only midnight yet    
+Dawn-shining mountains    
+these brilliant-hued hibiscus    
+Our hungry donkey    
 
