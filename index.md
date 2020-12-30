@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-The birds cry, and the fishes’ eyes are     
-Lilies on the rocks    
+Oh, tranquility!    
+in dusky night    
+Muffled by hot rocks    
 
