@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-spare my little buzzing friends    
-Mogami River.    
+The sea darkening    
+who spends his little breakfast    
+cherry-blossoms . . .    
 
