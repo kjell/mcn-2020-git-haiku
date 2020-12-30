@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-How swift it is    
-Two white butterflies?    
+Will we meet again    
+as I take my darkening path    
+are darkened    
 
