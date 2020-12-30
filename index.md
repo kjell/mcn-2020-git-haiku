@@ -1,4 +1,4 @@
-Here, where a thousand    
-Is also changed to another    
-Cold pale eyes pour tears    
+Bright red pepper-pod    
+these brilliant-hued hibiscus    
+Of warriors’ dreams.    
 
