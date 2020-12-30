@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-mingling with bright small shells    
-Cherry-blossoms    
+Bright red pepper-pod    
+How swift it is    
+Two white butterflies?    
 
