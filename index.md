@@ -1,4 +1,4 @@
-Won't you come and see    
-perfumes her wings by floating    
-It’s the Doll’s Festival.    
+An old pond    
+dead leaves alone foregather    
+Since there is no rice    
 
