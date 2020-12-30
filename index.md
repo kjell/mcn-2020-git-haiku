@@ -1,4 +1,4 @@
-Under cherry-trees    
-in your brief sweet waters    
-Come to rest our necks    
+None is travelling    
+he starts to grind the rice,    
+Murmuring Mogami    
 
