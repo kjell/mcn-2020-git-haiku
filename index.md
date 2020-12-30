@@ -1,4 +1,4 @@
-Oh, tranquility!    
-oh voices of the wild ducks    
-Two white butterflies?    
+Camellia-petal    
+Heron's cry    
+Marks only midnight yet    
 
