@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-let us arrange these flowers    
-Bearded, with bent canes    
+Old dark sleepy pool    
+The birds cry, and the fishes’ eyes are     
+Lilies on the rocks    
 
