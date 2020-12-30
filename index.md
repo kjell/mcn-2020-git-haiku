@@ -1,4 +1,4 @@
-The sea darkening    
-who spends his little breakfast    
-cherry-blossoms . . .    
+Nine times arising    
+I am off to bed - but ah!    
+This autumn evening.    
 
