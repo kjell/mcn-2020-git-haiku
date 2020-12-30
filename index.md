@@ -1,4 +1,4 @@
-In the cicada's cry    
-he starts to grind the rice,    
-A butterfly floats and balances    
+A owner of the old thatched hut    
+perfumes her wings by floating    
+How soon it must die.    
 
