@@ -1,4 +1,4 @@
-Swallow in the dusk    
-Line that won't be deleted    
-from the kiri tree.    
+In the cicada's cry    
+these brilliant-hued hibiscus    
+Bearded, with bent canes    
 
