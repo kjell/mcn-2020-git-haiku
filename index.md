@@ -1,4 +1,4 @@
-First white snow of fall    
-The fragrant blossoms remain.    
-Lilies on the rocks    
+White cloud of mist    
+these heavy snow-flakes settling    
+Mountain-top jewels    
 
