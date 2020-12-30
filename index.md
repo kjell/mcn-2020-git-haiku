@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-There's no sign that can foretell    
-Lilies on the rocks    
+Clouds come from time to time -    
+oh voices of the wild ducks    
+the autumn dusk is here.    
 
