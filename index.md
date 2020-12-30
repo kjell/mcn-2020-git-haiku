@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-these brilliant-hued hibiscus    
-Our hungry donkey    
+Now that eyes of hawks    
+spare my little buzzing friends    
+Mogami River.    
 
