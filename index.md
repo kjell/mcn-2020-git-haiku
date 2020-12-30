@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-Here along this way but I,    
-Tall grass their monument    
+In the cicada's cry    
+starving for fat fish or mice    
+Waterfall music    
 
