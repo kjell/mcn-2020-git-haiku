@@ -1,4 +1,4 @@
-Camellia-petal    
-Heron's cry    
-Marks only midnight yet    
+The summer grasses.    
+Line that won't be deleted    
+A perfect evening!    
 
