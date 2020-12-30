@@ -1,4 +1,4 @@
-Cold first winter rain    
-stretching over Sado Island    
-Like our tendrilled life    
+Oh, tranquility!    
+oh voices of the wild ducks    
+Two white butterflies?    
 
