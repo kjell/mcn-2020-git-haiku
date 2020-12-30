@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-the scent of flowers floating    
-How soon it must die.    
+First white snow of fall    
+The fragrant blossoms remain.    
+Lilies on the rocks    
 
