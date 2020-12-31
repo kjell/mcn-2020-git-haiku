@@ -1,4 +1,4 @@
-This is the new line    
-A frog jumps in -    
-From the kiri tree.    
+The rains of summer join together.    
+How swift it is    
+Ueno? Asakura?    
 
