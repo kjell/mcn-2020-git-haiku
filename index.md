@@ -1,4 +1,4 @@
-Won't you come and see    
-stretching over Sado Island    
-These dark hands of life    
+No oil to read by    
+therefore our thanks dark clouds    
+Of warriors’ dreams.    
 
