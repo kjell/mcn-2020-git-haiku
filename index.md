@@ -1,4 +1,4 @@
-Will we meet again    
-falling, falling, falling now    
-Over the orchid    
+Camellia-petal    
+All that remains    
+from looking at the moon.    
 
