@@ -1,4 +1,4 @@
-Too curious flower    
-let us to the road again    
-The Autumn wind.    
+An old pond    
+he starts to grind the rice,    
+A butterfly floats and balances    
 
