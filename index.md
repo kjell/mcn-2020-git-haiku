@@ -1,4 +1,4 @@
-Glorious the moon    
-April's air stirs in willow-leaves    
-Of warriors’ dreams.    
+Seek on high bare trails    
+The birds cry, and the fishes’ eyes are     
+Lilies on the rocks    
 
