@@ -1,4 +1,4 @@
-Seek on high bare trails    
-The birds cry, and the fishes’ eyes are     
-Lilies on the rocks    
+Clouds come from time to time -    
+is quieted with creepers    
+Silent clouds of stars    
 
