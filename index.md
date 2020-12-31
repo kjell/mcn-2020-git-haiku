@@ -1,4 +1,4 @@
-Camellia-petal    
-All that remains    
-from looking at the moon.    
+Silent the old town    
+watching us pass, met death    
+Contemptuous of frost    
 
