@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-he starts to grind the rice,    
-How soon it must die.    
+In the cicada's cry    
+thoughts come - and there is loneliness;    
+Morning-glory gazing    
 
