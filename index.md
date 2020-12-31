@@ -1,4 +1,4 @@
-If there were fragrance    
-who spends his little breakfast    
-How soon it must die.    
+Dawn-shining mountains    
+thoughts come - and there is loneliness;    
+Cold pale eyes pour tears    
 
