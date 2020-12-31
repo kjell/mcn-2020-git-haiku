@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-is quieted with creepers    
-Silent clouds of stars    
+White cloud of mist    
+All that remains    
+From the kiri tree.    
 
