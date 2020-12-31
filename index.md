@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-There's no sign that can foretell    
-Of faded daffodils    
+Camellia-petal    
+these brilliant-hued hibiscus    
+Marks only midnight yet    
 
