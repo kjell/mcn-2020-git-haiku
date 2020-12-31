@@ -1,4 +1,4 @@
-Now in sad autumn    
-to see the moon, whose solemn pace    
-My moonlit pillow    
+The first day of the year:    
+sky-reflecting violets    
+Stabs the darkness    
 
