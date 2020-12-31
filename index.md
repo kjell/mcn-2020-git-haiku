@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-thoughts come - and there is loneliness;    
-Cold pale eyes pour tears    
+Bright red pepper-pod    
+these heavy snow-flakes settling    
+Stabs the darkness    
 
