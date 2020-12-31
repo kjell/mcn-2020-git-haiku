@@ -1,4 +1,4 @@
-No oil to read by    
-April's air stirs in willow-leaves    
-This autumn evening.    
+Dewdrop, let me cleanse    
+Penetrating the very rock,    
+and gazes at the moon.    
 
