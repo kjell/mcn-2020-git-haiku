@@ -1,4 +1,4 @@
-For a lovely bowl    
-A frog jumps in -    
-Of warriors’ dreams.    
+Won't you come and see    
+therefore our thanks dark clouds    
+A perfect evening!    
 
