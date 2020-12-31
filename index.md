@@ -1,4 +1,4 @@
-The first day of the year:    
-sky-reflecting violets    
-Stabs the darkness    
+Glorious the moon    
+April's air stirs in willow-leaves    
+Of warriors’ dreams.    
 
