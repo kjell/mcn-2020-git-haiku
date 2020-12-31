@@ -1,4 +1,4 @@
-An old pond    
-he starts to grind the rice,    
-A butterfly floats and balances    
+If there were fragrance    
+who spends his little breakfast    
+How soon it must die.    
 
