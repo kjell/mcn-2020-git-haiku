@@ -1,4 +1,4 @@
-In the cicada's cry    
-thoughts come - and there is loneliness;    
-Morning-glory gazing    
+Carven gods long gone    
+soup, the salad, fish and all    
+Darting dragon-fly!    
 
