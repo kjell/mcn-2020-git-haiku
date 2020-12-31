@@ -1,4 +1,4 @@
-No oil to read by    
-therefore our thanks dark clouds    
-Of warriors’ dreams.    
+Oh, tranquility!    
+How swift it is    
+Contemptuous of frost    
 
