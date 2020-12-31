@@ -1,4 +1,4 @@
-Oh, tranquility!    
-How swift it is    
-Contemptuous of frost    
+Ah me! I am one    
+as I take my darkening path    
+Of warriors’ dreams.    
 
