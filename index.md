@@ -1,4 +1,4 @@
-White cloud of mist    
-is quieted with creepers    
-and gazes at the moon.    
+Will we meet again    
+falling, falling, falling now    
+Over the orchid    
 
