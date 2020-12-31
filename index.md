@@ -1,4 +1,4 @@
-White cloud of mist    
+Silent the old town    
 All that remains    
-From the kiri tree.    
+Cherry-blossoms    
 
