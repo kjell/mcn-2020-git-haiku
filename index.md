@@ -1,4 +1,4 @@
-First white snow of fall    
-these heavy snow-flakes settling    
-A perfect evening!    
+Won't you come and see    
+stretching over Sado Island    
+These dark hands of life    
 
