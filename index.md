@@ -1,4 +1,4 @@
-Ah me! I am one    
-as I take my darkening path    
-Of warriors’ dreams.    
+In the cicada's cry    
+A frog jumps in -    
+Lilies on the rocks    
 
