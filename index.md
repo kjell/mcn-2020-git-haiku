@@ -1,4 +1,4 @@
-Carven gods long gone    
-soup, the salad, fish and all    
-Darting dragon-fly!    
+Must springtime fade?    
+fell in silent dawn, spilling    
+On the temple porch    
 
