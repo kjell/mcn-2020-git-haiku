@@ -1,4 +1,4 @@
-Black cloudbank broken    
-as I take my darkening path    
-from the kiri tree.    
+If there were fragrance    
+Penetrating the very rock,    
+are darkened . . .    
 
