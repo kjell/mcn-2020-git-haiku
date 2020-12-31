@@ -1,4 +1,4 @@
-Silent the old town    
-twin butterflies until, twice white    
-Muffled by hot rocks    
+First white snow of fall    
+these heavy snow-flakes settling    
+A perfect evening!    
 
