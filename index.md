@@ -1,4 +1,4 @@
-Lightning -    
-How swift it is    
-A cicada’s voice.    
+Black cloudbank broken    
+as I take my darkening path    
+from the kiri tree.    
 
