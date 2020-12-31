@@ -1,4 +1,4 @@
-In the cicada's cry    
-A frog jumps in -    
-Lilies on the rocks    
+No oil to read by    
+April's air stirs in willow-leaves    
+This autumn evening.    
 
