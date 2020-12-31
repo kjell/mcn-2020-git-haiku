@@ -1,4 +1,4 @@
-Won't you come and see    
-therefore our thanks dark clouds    
-A perfect evening!    
+The rains of summer join together.    
+There's no sign that can foretell    
+Basho lines the moon    
 
