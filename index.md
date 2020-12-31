@@ -1,4 +1,4 @@
-Silent the old town    
-All that remains    
-Cherry-blossoms    
+Old dark sleepy pool    
+who spends his little breakfast    
+Murmuring Mogami    
 
