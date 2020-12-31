@@ -1,4 +1,4 @@
-Must springtime fade?    
-fell in silent dawn, spilling    
-On the temple porch    
+Temple bells die out.    
+thoughts come - and there is loneliness;    
+and gazes at the moon.    
 
