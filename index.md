@@ -1,4 +1,4 @@
-Silent the old town    
-watching us pass, met death    
-Contemptuous of frost    
+This is the new line    
+A frog jumps in -    
+From the kiri tree.    
 
