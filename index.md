@@ -1,4 +1,4 @@
-The rains of summer join together.    
-here at your flowering grave    
-Cold pale eyes pour tears    
+Too curious flower    
+let us to the road again    
+The Autumn wind.    
 
