@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-who spends his little breakfast    
-Murmuring Mogami    
+Silent the old town    
+twin butterflies until, twice white    
+Muffled by hot rocks    
 
