@@ -1,4 +1,4 @@
-This is the new line    
-falling, falling, falling now    
-Bearded, with bent canes    
+Cloud of cherry-bloom    
+Here along this way but I,    
+Splash!    
 
