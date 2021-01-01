@@ -1,4 +1,4 @@
-Glorious the moon    
-Here along this way but I,    
-Silent clouds of stars    
+This is the new line    
+falling, falling, falling now    
+Bearded, with bent canes    
 
