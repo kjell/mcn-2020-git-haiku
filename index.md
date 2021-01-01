@@ -1,4 +1,4 @@
-Oh, tranquility!    
-loneliness? Just one leaf    
-and gazes at the moon.    
+Spring is passing.    
+soup, the salad, fish and all    
+from looking at the moon.    
 
