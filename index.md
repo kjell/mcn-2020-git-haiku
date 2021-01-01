@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-Here along this way but I,    
-Splash!    
+Bright red pepper-pod    
+as I take my darkening path    
+Among the flowers    
 
