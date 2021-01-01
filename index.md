@@ -1,4 +1,4 @@
-Lightning -    
-in your brief sweet waters    
-A little woven cape    
+Wake! The sky is light!    
+Penetrating the very rock,    
+are darkened    
 
