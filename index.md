@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-perfumes her wings by floating    
-It’s the Doll’s Festival.    
+Cold first winter rain    
+A frog jumps in -    
+On the temple porch    
 
