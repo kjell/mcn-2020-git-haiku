@@ -1,4 +1,4 @@
-Poverty's child -    
-Line that won't be deleted    
-A butterfly floats and balances    
+Now that eyes of hawks    
+thoughts come - and there is loneliness;    
+Stabs the darkness    
 
