@@ -1,4 +1,4 @@
-In the cicada's cry    
-twin butterflies until, twice white    
-Lilies on the rocks    
+Seas are wild tonight    
+that black crow I hate so much    
+Ueno? Asakura?    
 
