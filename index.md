@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-spare my little buzzing friends    
-Stabs the darkness    
+Cold first winter rain    
+Here along this way but I,    
+Or backyard love?    
 
