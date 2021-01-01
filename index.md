@@ -1,4 +1,4 @@
-See: surviving suns    
-The fragrant blossoms remain.    
-Like our tendrilled life    
+Oh, tranquility!    
+loneliness? Just one leaf    
+and gazes at the moon.    
 
