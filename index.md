@@ -1,4 +1,4 @@
-For a lovely bowl    
-and bring to men a chance to rest    
-from looking at the moon.    
+If there were fragrance    
+falling, falling, falling now    
+From the kiri tree.    
 
