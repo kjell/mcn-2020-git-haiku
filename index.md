@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-Here along this way but I,    
-A perfect evening!    
+See: surviving suns    
+The fragrant blossoms remain.    
+Like our tendrilled life    
 
