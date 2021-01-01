@@ -1,4 +1,4 @@
-Cold first winter rain    
-A frog jumps in -    
-On the temple porch    
+Temple bells die out.    
+stretching over Sado Island    
+Splash!    
 
