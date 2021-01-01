@@ -1,4 +1,4 @@
-The sea darkening    
-thoughts come - and there is loneliness;    
-With tears.    
+In the cicada's cry    
+in your brief sweet waters    
+from looking at the moon.    
 
