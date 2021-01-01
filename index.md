@@ -1,4 +1,4 @@
-The first day of the year:    
-let us to the road again    
-It’s the Doll’s Festival.    
+Clouds come from time to time -    
+I am off to bed - but ah!    
+Tall grass their monument    
 
