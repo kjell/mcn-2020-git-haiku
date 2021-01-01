@@ -1,4 +1,4 @@
-Chirping of the quails    
-he starts to grind the rice,    
-are darkened    
+The summer grasses.    
+fell in silent dawn, spilling    
+Seasoned with petals    
 
