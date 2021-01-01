@@ -1,4 +1,4 @@
-This snowy morning    
-scatters in the night; Now see    
-How soon it must die.    
+Black cloudbank broken    
+Here along this way but I,    
+Among the flowers    
 
