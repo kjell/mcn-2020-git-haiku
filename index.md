@@ -1,4 +1,4 @@
-The first day of the year:    
-perfumes her wings by floating    
-Murmuring Mogami    
+Clouds come from time to time -    
+Here along this way but I,    
+A perfect evening!    
 
