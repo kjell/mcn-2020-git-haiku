@@ -1,4 +1,4 @@
-Oh, tranquility!    
-visit the ancestral grave    
-How soon it must die.    
+For a lovely bowl    
+perfumes her wings by floating    
+and gazes at the moon.    
 
