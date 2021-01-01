@@ -1,4 +1,4 @@
-Glorious the moon    
-Heron's cry    
-The autumn dusk is here.    
+The first day of the year:    
+let us to the road again    
+It’s the Doll’s Festival.    
 
