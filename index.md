@@ -1,4 +1,4 @@
-The river gathering may rains    
-these brilliant-hued hibiscus    
-These dark hands of life    
+Under cherry-trees    
+to see the moon, whose solemn pace    
+It’s the Doll’s Festival.    
 
