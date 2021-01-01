@@ -1,4 +1,4 @@
-Spring is passing.    
-soup, the salad, fish and all    
-from looking at the moon.    
+Old dark sleepy pool    
+scatters in the night; Now see    
+Over the orchid    
 
