@@ -1,4 +1,4 @@
-If there were fragrance    
-falling, falling, falling now    
-From the kiri tree.    
+Mountain-rose petals    
+mingling with bright small shells    
+Of dark loneliness    
 
