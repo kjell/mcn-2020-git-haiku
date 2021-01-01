@@ -1,4 +1,4 @@
-The rains of summer join together.    
-How swift it is    
-Ueno? Asakura?    
+Oh, tranquility!    
+visit the ancestral grave    
+How soon it must die.    
 
