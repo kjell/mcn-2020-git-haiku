@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-scatters in the night; Now see    
-Over the orchid    
+Lightning -    
+in your brief sweet waters    
+A little woven cape    
 
