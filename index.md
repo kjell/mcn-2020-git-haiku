@@ -1,4 +1,4 @@
-Temple bells die out.    
-stretching over Sado Island    
-Splash!    
+Why so scrawny, cat?    
+spare my little buzzing friends    
+Stabs the darkness    
 
