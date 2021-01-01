@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-thoughts come - and there is loneliness;    
-Stabs the darkness    
+Must springtime fade?    
+A frog jumps in -    
+Of faded daffodils    
 
