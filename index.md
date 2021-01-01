@@ -1,4 +1,4 @@
-For a lovely bowl    
-perfumes her wings by floating    
-and gazes at the moon.    
+Poverty's child -    
+Line that won't be deleted    
+A butterfly floats and balances    
 
