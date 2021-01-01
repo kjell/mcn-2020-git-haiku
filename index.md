@@ -1,4 +1,4 @@
-If there were fragrance    
-here at your flowering grave    
-Bush-clover petals    
+The river gathering may rains    
+these brilliant-hued hibiscus    
+These dark hands of life    
 
