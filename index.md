@@ -1,4 +1,4 @@
-Mountain-rose petals    
-mingling with bright small shells    
-Of dark loneliness    
+Glorious the moon    
+Heron's cry    
+The autumn dusk is here.    
 
