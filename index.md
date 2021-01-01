@@ -1,4 +1,4 @@
-Seas are wild tonight    
-that black crow I hate so much    
-Ueno? Asakura?    
+For a lovely bowl    
+and bring to men a chance to rest    
+from looking at the moon.    
 
