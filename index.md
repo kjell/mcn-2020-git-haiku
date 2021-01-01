@@ -1,4 +1,4 @@
-In the cicada's cry    
-in your brief sweet waters    
-from looking at the moon.    
+The first day of the year:    
+perfumes her wings by floating    
+Murmuring Mogami    
 
