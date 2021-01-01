@@ -1,4 +1,4 @@
-Cold first winter rain    
-tolling twilight bell; Temple    
-Companion butterfly!    
+This snowy morning    
+scatters in the night; Now see    
+How soon it must die.    
 
