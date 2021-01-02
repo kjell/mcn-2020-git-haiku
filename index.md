@@ -1,4 +1,4 @@
-Cold first winter rain    
+Spring is passing.    
 Here along this way but I,    
-Or backyard love?    
+from looking at the moon.    
 
