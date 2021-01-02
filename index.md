@@ -1,4 +1,4 @@
 No oil to read by    
-and bring to men a chance to rest    
+Is also changed to another    
 Of faded daffodils    
 
