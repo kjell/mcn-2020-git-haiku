@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-April's air stirs in willow-leaves    
-A little woven cape    
+Under cherry-trees    
+Penetrating the very rock,    
+Ueno? Asakura?    
 
