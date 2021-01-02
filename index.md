@@ -1,4 +1,4 @@
-In the sea-surf edge    
-twin butterflies until, twice white    
-But he's beautiful!    
+The rains of summer join together.    
+sky-reflecting violets    
+Among the flowers    
 
