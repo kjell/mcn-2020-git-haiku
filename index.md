@@ -1,4 +1,4 @@
 No oil to read by    
-starving for fat fish or mice    
-The autumn dusk is here.    
+There's no sign that can foretell    
+Bearded, with bent canes    
 
