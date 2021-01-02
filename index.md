@@ -1,4 +1,4 @@
 Won't you come and see    
-watching us pass, met death    
+from cold streamlets for the sea    
 Waterfall music    
 
