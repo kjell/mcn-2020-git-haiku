@@ -1,4 +1,4 @@
-No oil to read by    
-There's no sign that can foretell    
-Bearded, with bent canes    
+Lightning -    
+it needs but shiny wings and look    
+Of dark loneliness    
 
