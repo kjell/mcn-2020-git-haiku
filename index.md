@@ -1,4 +1,4 @@
-In the cicada's cry    
-he starts to grind the rice,    
-A perfect evening!    
+Now that eyes of hawks    
+April's air stirs in willow-leaves    
+A little woven cape    
 
