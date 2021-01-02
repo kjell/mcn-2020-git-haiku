@@ -1,4 +1,4 @@
-Silent the old town    
-in your brief sweet waters    
-Two white butterflies?    
+Won't you come and see    
+watching us pass, met death    
+Waterfall music    
 
