@@ -1,4 +1,4 @@
-The first day of the year:    
-stretching over Sado Island    
-and gazes at the moon.    
+In the twilight rain    
+The fragrant blossoms remain.    
+Among the flowers    
 
