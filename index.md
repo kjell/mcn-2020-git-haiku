@@ -1,4 +1,4 @@
-An old pond    
-captains swore grand conquest    
-On the temple porch    
+Now the swinging bridge    
+loneliness? Just one leaf    
+How soon it must die.    
 
