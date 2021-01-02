@@ -1,4 +1,4 @@
-The rains of summer join together.    
-therefore our thanks dark clouds    
-A water-jewel    
+No oil to read by    
+starving for fat fish or mice    
+The autumn dusk is here.    
 
