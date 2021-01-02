@@ -1,4 +1,4 @@
-Such utter silence!    
-let us arrange these flowers    
-They meet, they mate    
+First white snow of fall    
+and bring to men a chance to rest    
+Companion butterfly!    
 
