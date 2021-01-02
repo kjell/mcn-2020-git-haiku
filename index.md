@@ -1,4 +1,4 @@
-This snowy morning    
-The birds cry, and the fishes’ eyes are     
-Crying, whirling, white    
+No oil to read by    
+and bring to men a chance to rest    
+Of faded daffodils    
 
