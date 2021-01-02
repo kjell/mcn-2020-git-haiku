@@ -1,4 +1,4 @@
-In the cicada's cry    
-I am off to bed - but ah!    
-This autumn evening.    
+The summer grasses.    
+let us arrange these flowers    
+Goes plop! Watersplash!    
 
