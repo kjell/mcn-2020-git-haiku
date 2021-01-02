@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-who spends his little breakfast    
-the autumn dusk is here.    
+None is travelling    
+he starts to grind the rice,    
+Of warriors’ dreams.    
 
