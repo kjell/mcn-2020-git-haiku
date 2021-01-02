@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-thoughts come - and there is loneliness;    
-A butterfly floats and balances    
+In the sea-surf edge    
+twin butterflies until, twice white    
+But he's beautiful!    
 
