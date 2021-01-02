@@ -1,4 +1,4 @@
-The summer grasses.    
-let us arrange these flowers    
-Goes plop! Watersplash!    
+The river gathering may rains    
+even the crickets' singing    
+Marks only midnight yet    
 
