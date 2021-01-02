@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-and bring to men a chance to rest    
-This autumn evening.    
+The rains of summer join together.    
+therefore our thanks dark clouds    
+A water-jewel    
 
