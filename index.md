@@ -1,4 +1,4 @@
-Seek on high bare trails    
-captains swore grand conquest    
-from the kiri tree.    
+Cloud of cherry-bloom    
+visit the ancestral grave    
+With tears.    
 
