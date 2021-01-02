@@ -1,4 +1,4 @@
-None is travelling    
-he starts to grind the rice,    
-Of warriors’ dreams.    
+The first day of the year:    
+stretching over Sado Island    
+and gazes at the moon.    
 
