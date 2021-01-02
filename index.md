@@ -1,4 +1,4 @@
-Won't you come and see    
-from cold streamlets for the sea    
-Waterfall music    
+Now the swinging bridge    
+Heron's cry    
+Or backyard love?    
 
