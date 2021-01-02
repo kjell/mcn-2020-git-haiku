@@ -1,4 +1,4 @@
-In the cicada's cry    
-in dusky night    
-Or backyard love?    
+Oh, tranquility!    
+perfumes her wings by floating    
+How soon it must die.    
 
