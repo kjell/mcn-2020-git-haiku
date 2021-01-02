@@ -1,4 +1,4 @@
-None is travelling    
-stretching over Sado Island    
-My moonlit pillow    
+Nine times arising    
+loneliness? Just one leaf    
+Or backyard love?    
 
