@@ -1,4 +1,4 @@
-In the twilight rain    
-The fragrant blossoms remain.    
-Among the flowers    
+Ah me! I am one    
+fell in silent dawn, spilling    
+Darting dragon-fly!    
 
