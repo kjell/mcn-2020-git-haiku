@@ -1,4 +1,4 @@
-Spring is passing.    
-Here along this way but I,    
-from looking at the moon.    
+None is travelling    
+stretching over Sado Island    
+My moonlit pillow    
 
