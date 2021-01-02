@@ -1,4 +1,4 @@
-Lightning -    
-it needs but shiny wings and look    
-Of dark loneliness    
+In the cicada's cry    
+I am off to bed - but ah!    
+This autumn evening.    
 
