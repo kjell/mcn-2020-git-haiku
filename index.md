@@ -1,4 +1,4 @@
-Ah me! I am one    
-fell in silent dawn, spilling    
-Darting dragon-fly!    
+In the cicada's cry    
+he starts to grind the rice,    
+A perfect evening!    
 
