@@ -1,4 +1,4 @@
-The river gathering may rains    
-even the crickets' singing    
-Marks only midnight yet    
+Silent the old town    
+in your brief sweet waters    
+Two white butterflies?    
 
