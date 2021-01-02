@@ -1,4 +1,4 @@
-First white snow of fall    
-and bring to men a chance to rest    
-Darting dragon-fly!    
+The rains of summer join together.    
+loneliness? Just one leaf    
+from looking at the moon.    
 
