@@ -1,4 +1,4 @@
-Black cloudbank broken    
-the scent of flowers floating    
-from looking at the moon.    
+In the cicada's cry    
+in dusky night    
+Or backyard love?    
 
