@@ -1,4 +1,4 @@
-Nine times arising    
-loneliness? Just one leaf    
-Or backyard love?    
+Black cloudbank broken    
+All that remains    
+A cicada’s voice.    
 
