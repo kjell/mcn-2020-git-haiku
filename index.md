@@ -1,4 +1,4 @@
-The rains of summer join together.    
-sky-reflecting violets    
-Among the flowers    
+The first day of the year:    
+oh voices of the wild ducks    
+How soon it must die.    
 
