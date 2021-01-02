@@ -1,4 +1,4 @@
-Now the swinging bridge    
-Heron's cry    
-Or backyard love?    
+This snowy morning    
+just enough to bend the leaves    
+My moonlit pillow    
 
