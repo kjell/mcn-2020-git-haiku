@@ -1,4 +1,4 @@
-Under cherry-trees    
-Penetrating the very rock,    
-Ueno? Asakura?    
+Wake! The sky is light!    
+thoughts come - and there is loneliness;    
+A butterfly floats and balances    
 
