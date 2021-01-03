@@ -1,4 +1,4 @@
-Temple bells die out.    
-twin butterflies until, twice white    
-A cicada’s voice.    
+Dewdrop, let me cleanse    
+The fragrant blossoms remain.    
+Of warriors’ dreams.    
 
