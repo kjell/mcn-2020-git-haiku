@@ -1,4 +1,4 @@
-An old pond    
-loneliness? Just one leaf    
-and gazes at the moon.    
+Won't you come and see    
+Here along this way but I,    
+Morning-glory gazing    
 
