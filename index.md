@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-Line that won't be deleted    
-Two white butterflies?    
+Clouds come from time to time -    
+The fragrant blossoms remain.    
+Of warriors’ dreams.    
 
