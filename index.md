@@ -1,4 +1,4 @@
-The first day of the year:    
-perfumes her wings by floating    
-Bush-clover petals    
+Bright red pepper-pod    
+to see the moon, whose solemn pace    
+Our hungry donkey    
 
