@@ -1,4 +1,4 @@
-When you say something,    
-soup, the salad, fish and all    
-Marks only midnight yet    
+The summer grasses.    
+to see the moon, whose solemn pace    
+the autumn dusk is here.    
 
