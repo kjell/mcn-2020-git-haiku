@@ -1,4 +1,4 @@
-Nine times arising    
-captains swore grand conquest    
-the autumn dusk is here.    
+Such utter silence!    
+it needs but shiny wings and look    
+from looking at the moon.    
 
