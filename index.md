@@ -1,4 +1,4 @@
-Glorious the moon    
-quick unexpected frog    
-Darting dragon-fly!    
+Too curious flower    
+the scent of flowers floating    
+They meet, they mate    
 
