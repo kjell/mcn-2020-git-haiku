@@ -1,4 +1,4 @@
-None is travelling    
-let us to the road again    
-Over the orchid    
+The river gathering may rains    
+The fragrant blossoms remain.    
+Ueno? Asakura?    
 
