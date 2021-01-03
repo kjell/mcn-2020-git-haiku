@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-Heron's cry    
-Contemptuous of frost    
+Dry cheerful cricket    
+Line that won't be deleted    
+Two white butterflies?    
 
