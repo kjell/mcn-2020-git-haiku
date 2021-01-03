@@ -1,4 +1,4 @@
-The river gathering may rains    
-The fragrant blossoms remain.    
-Ueno? Asakura?    
+The first day of the year:    
+perfumes her wings by floating    
+Bush-clover petals    
 
