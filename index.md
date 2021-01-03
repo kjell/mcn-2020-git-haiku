@@ -1,4 +1,4 @@
 An old pond    
-thoughts come - and there is loneliness;    
-Of faded daffodils    
+loneliness? Just one leaf    
+Of warriors’ dreams.    
 
