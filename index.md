@@ -1,4 +1,4 @@
-Won't you come and see    
-falling, falling, falling now    
-Stabs the darkness    
+Cloud of cherry-bloom    
+There's no sign that can foretell    
+Companion butterfly!    
 
