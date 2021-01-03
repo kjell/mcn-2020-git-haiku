@@ -1,4 +1,4 @@
-Oh, tranquility!    
-that black crow I hate so much    
-How soon it must die.    
+Now the swinging bridge    
+Heron's cry    
+Silent clouds of stars    
 
