@@ -1,4 +1,4 @@
-Such utter silence!    
-it needs but shiny wings and look    
-from looking at the moon.    
+None is travelling    
+let us to the road again    
+Over the orchid    
 
