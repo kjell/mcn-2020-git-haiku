@@ -1,4 +1,4 @@
-An old pond    
-loneliness? Just one leaf    
-Of warriors’ dreams.    
+When you say something,    
+soup, the salad, fish and all    
+Marks only midnight yet    
 
