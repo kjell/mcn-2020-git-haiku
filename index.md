@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-The fragrant blossoms remain.    
-Of warriors’ dreams.    
+See: surviving suns    
+captains swore grand conquest    
+Darting dragon-fly!    
 
