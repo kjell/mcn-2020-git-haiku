@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-The fragrant blossoms remain.    
-Of warriors’ dreams.    
+An old pond    
+as I take my darkening path    
+and gazes at the moon.    
 
