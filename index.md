@@ -1,4 +1,4 @@
-Lightning -    
-let us arrange these flowers    
-Splash!    
+Dewdrop, let me cleanse    
+Heron's cry    
+Contemptuous of frost    
 
