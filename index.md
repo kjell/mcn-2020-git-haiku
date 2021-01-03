@@ -1,4 +1,4 @@
-The river gathering may rains    
-How swift it is    
-Come to rest our necks    
+Glorious the moon    
+quick unexpected frog    
+Darting dragon-fly!    
 
