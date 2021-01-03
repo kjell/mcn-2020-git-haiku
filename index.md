@@ -1,4 +1,4 @@
-None is travelling    
-from cold streamlets for the sea    
-Silent clouds of stars    
+Nine times arising    
+captains swore grand conquest    
+the autumn dusk is here.    
 
