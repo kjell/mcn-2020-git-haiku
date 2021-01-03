@@ -1,4 +1,4 @@
-Silent the old town    
-from cold streamlets for the sea    
-Crying, whirling, white    
+An old pond    
+thoughts come - and there is loneliness;    
+Of faded daffodils    
 
