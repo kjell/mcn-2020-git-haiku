@@ -1,4 +1,4 @@
-See: surviving suns    
-captains swore grand conquest    
-Darting dragon-fly!    
+Dry cheerful cricket    
+in dusky night    
+A cicada’s voice.    
 
