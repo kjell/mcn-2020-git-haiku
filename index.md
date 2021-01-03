@@ -1,4 +1,4 @@
-In the cicada's cry    
-Is also changed to another    
-Since there is no rice    
+Bright red pepper-pod    
+All that remains    
+A water-jewel    
 
