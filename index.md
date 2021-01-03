@@ -1,4 +1,4 @@
-Silent the old town    
-The fragrant blossoms remain.    
-Stabs the darkness    
+The river gathering may rains    
+in dusky night    
+Crying, whirling, white    
 
