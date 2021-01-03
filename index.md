@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-All that remains    
-With tears.    
+Temple bells die out.    
+twin butterflies until, twice white    
+A cicada’s voice.    
 
