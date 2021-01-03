@@ -1,4 +1,4 @@
-An old pond    
-as I take my darkening path    
-and gazes at the moon.    
+Silent the old town    
+The fragrant blossoms remain.    
+Stabs the darkness    
 
