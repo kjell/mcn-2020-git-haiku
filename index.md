@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-even the crickets' singing    
-How soon it must die.    
+None is travelling    
+from cold streamlets for the sea    
+Silent clouds of stars    
 
