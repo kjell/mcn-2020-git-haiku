@@ -1,4 +1,4 @@
-The first day of the year:    
-oh voices of the wild ducks    
-How soon it must die.    
+Silent the old town    
+from cold streamlets for the sea    
+Crying, whirling, white    
 
