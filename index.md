@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-to see the moon, whose solemn pace    
-Our hungry donkey    
+This is the new line    
+All that remains    
+From the kiri tree.    
 
