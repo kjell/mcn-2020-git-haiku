@@ -1,4 +1,4 @@
-This is the new line    
-All that remains    
-From the kiri tree.    
+Spring is passing.    
+in dusky night    
+Moon-lighted mountains!    
 
