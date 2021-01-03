@@ -1,4 +1,4 @@
-The river gathering may rains    
-in dusky night    
-Crying, whirling, white    
+Wake! The sky is light!    
+All that remains    
+With tears.    
 
