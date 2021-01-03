@@ -1,4 +1,4 @@
-Won't you come and see    
-Here along this way but I,    
-Morning-glory gazing    
+First white snow of fall    
+above white    
+Cherry-blossoms    
 
