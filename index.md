@@ -1,4 +1,4 @@
-An old pond    
-he starts to grind the rice,    
-My moonlit pillow    
+The first day of the year:    
+and bring to men a chance to rest    
+Morning-glory gazing    
 
