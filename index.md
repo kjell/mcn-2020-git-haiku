@@ -1,4 +1,4 @@
-The summer grasses.    
-from cold streamlets for the sea    
-Mogami River.    
+Wake! The sky is light!    
+How swift it is    
+The Autumn wind.    
 
