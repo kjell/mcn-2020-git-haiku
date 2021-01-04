@@ -1,4 +1,4 @@
-None is travelling    
-Line that won't be deleted    
-This autumn evening.    
+Ballet in the air    
+let us arrange these flowers    
+Of warriors’ dreams.    
 
