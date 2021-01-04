@@ -1,4 +1,4 @@
-The sea darkening    
-mingling with bright small shells    
-Companion butterfly!    
+Clouds come from time to time -    
+There's no sign that can foretell    
+Goes plop! Watersplash!    
 
