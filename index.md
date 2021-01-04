@@ -1,4 +1,4 @@
-Too curious flower    
-I am off to bed - but ah!    
-A little woven cape    
+Now that eyes of hawks    
+poor monkey, you too could use    
+Splash!    
 
