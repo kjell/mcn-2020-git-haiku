@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-poor monkey, you too could use    
-Splash!    
+Wake! The sky is light!    
+oh voices of the wild ducks    
+Like our tendrilled life    
 
