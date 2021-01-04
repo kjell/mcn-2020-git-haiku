@@ -1,4 +1,4 @@
-Spring is passing.    
-loneliness? Just one leaf    
-Since there is no rice    
+Such utter silence!    
+There's no sign that can foretell    
+A lovely sunset    
 
