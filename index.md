@@ -1,4 +1,4 @@
-Spring is passing.    
-I am off to bed - but ah!    
-Splash!    
+In the cicada's cry    
+How swift it is    
+cherry-blossoms . . .    
 
