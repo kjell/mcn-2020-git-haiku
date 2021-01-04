@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-How swift it is    
-cherry-blossoms . . .    
+An old pond    
+April's air stirs in willow-leaves    
+Over the orchid    
 
