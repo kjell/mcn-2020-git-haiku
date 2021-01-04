@@ -1,4 +1,4 @@
-Mountain-rose petals    
-these heavy snow-flakes settling    
-are darkened . . .    
+None is travelling    
+Line that won't be deleted    
+This autumn evening.    
 
