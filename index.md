@@ -1,4 +1,4 @@
-An old pond    
-therefore our thanks dark clouds    
-Marks only midnight yet    
+This snowy morning    
+it needs but shiny wings and look    
+Seasoned with petals    
 
