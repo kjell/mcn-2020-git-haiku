@@ -1,4 +1,4 @@
-See: surviving suns    
-it needs but shiny wings and look    
-Of dark loneliness    
+Now that eyes of hawks    
+and bring to men a chance to rest    
+This autumn evening.    
 
