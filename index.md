@@ -1,4 +1,4 @@
-In the twilight rain    
-Line that won't be deleted    
-Waterfall music    
+Mountain-rose petals    
+these heavy snow-flakes settling    
+are darkened . . .    
 
