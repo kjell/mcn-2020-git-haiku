@@ -1,4 +1,4 @@
-Poverty's child -    
-in dusky night    
-Seasoned with petals    
+Silent the old town    
+therefore our thanks dark clouds    
+On the temple porch    
 
