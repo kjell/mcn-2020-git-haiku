@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-All that remains    
-A water-jewel    
+An old pond    
+he starts to grind the rice,    
+My moonlit pillow    
 
