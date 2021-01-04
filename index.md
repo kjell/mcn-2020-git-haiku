@@ -1,4 +1,4 @@
-White cloud of mist    
-it needs but shiny wings and look    
-Stabs the darkness    
+The river gathering may rains    
+Heron's cry    
+Or backyard love?    
 
