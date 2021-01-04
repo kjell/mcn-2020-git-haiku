@@ -1,4 +1,4 @@
-In the cicada's cry    
-How swift it is    
-cherry-blossoms . . .    
+The summer grasses.    
+from cold streamlets for the sea    
+Mogami River.    
 
