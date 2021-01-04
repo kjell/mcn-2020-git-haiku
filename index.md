@@ -1,4 +1,4 @@
-For a lovely bowl    
-Is also changed to another    
-Come to rest our necks    
+Spring is passing.    
+I am off to bed - but ah!    
+Splash!    
 
