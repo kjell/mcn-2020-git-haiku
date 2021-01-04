@@ -1,4 +1,4 @@
-The first day of the year:    
-and bring to men a chance to rest    
-Morning-glory gazing    
+White cloud of mist    
+it needs but shiny wings and look    
+Stabs the darkness    
 
