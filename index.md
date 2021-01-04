@@ -1,4 +1,4 @@
-In the sea-surf edge    
-The fragrant blossoms remain.    
-And evening bell    
+See: surviving suns    
+it needs but shiny wings and look    
+Of dark loneliness    
 
