@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-How swift it is    
-The Autumn wind.    
+The rains of summer join together.    
+Penetrating the very rock,    
+Contemptuous of frost    
 
