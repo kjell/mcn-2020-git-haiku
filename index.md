@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Penetrating the very rock,    
-Contemptuous of frost    
+First white snow of fall    
+let us to the road again    
+A perfect evening!    
 
