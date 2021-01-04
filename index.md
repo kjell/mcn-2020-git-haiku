@@ -1,4 +1,4 @@
-Ballet in the air    
-let us arrange these flowers    
-Of warriors’ dreams.    
+For a lovely bowl    
+The lips feel cold.    
+Murmuring Mogami    
 
