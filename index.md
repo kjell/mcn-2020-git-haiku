@@ -1,4 +1,4 @@
-Silent the old town    
-therefore our thanks dark clouds    
-On the temple porch    
+Black cloudbank broken    
+The fragrant blossoms remain.    
+Mountain-top jewels    
 
