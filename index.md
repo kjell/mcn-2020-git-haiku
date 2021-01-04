@@ -1,4 +1,4 @@
-When you say something,    
-There's no sign that can foretell    
-Seasoned with petals    
+Now that eyes of hawks    
+The lips feel cold.    
+A little woven cape    
 
