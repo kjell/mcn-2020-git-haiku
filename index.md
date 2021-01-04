@@ -1,4 +1,4 @@
-For a lovely bowl    
-The lips feel cold.    
-Murmuring Mogami    
+Too curious flower    
+I am off to bed - but ah!    
+A little woven cape    
 
