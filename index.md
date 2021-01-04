@@ -1,4 +1,4 @@
-Black cloudbank broken    
-The fragrant blossoms remain.    
-Mountain-top jewels    
+Chirping of the quails    
+Here along this way but I,    
+A perfect evening!    
 
