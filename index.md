@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-oh voices of the wild ducks    
-Like our tendrilled life    
+The sea darkening    
+mingling with bright small shells    
+Companion butterfly!    
 
