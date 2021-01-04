@@ -1,4 +1,4 @@
-First white snow of fall    
-let us to the road again    
-A perfect evening!    
+Mountain-rose petals    
+here at your flowering grave    
+Morning-glory gazing    
 
