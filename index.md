@@ -1,4 +1,4 @@
-The river gathering may rains    
-Heron's cry    
-Or backyard love?    
+In the sea-surf edge    
+soup, the salad, fish and all    
+from looking at the moon.    
 
