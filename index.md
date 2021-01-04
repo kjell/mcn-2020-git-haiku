@@ -1,4 +1,4 @@
-Seas are wild tonight    
-dead leaves alone foregather    
-Goes plop! Watersplash!    
+Poverty's child -    
+and bring to men a chance to rest    
+With tears.    
 
