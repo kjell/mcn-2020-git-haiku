@@ -1,4 +1,4 @@
-Mountain-rose petals    
-here at your flowering grave    
-Morning-glory gazing    
+In the twilight rain    
+Line that won't be deleted    
+Waterfall music    
 
