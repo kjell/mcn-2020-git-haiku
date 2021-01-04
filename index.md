@@ -1,4 +1,4 @@
-Chirping of the quails    
-Here along this way but I,    
-A perfect evening!    
+Spring is passing.    
+loneliness? Just one leaf    
+Since there is no rice    
 
