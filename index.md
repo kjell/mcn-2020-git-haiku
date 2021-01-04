@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-The lips feel cold.    
-A little woven cape    
+Poverty's child -    
+in dusky night    
+Seasoned with petals    
 
