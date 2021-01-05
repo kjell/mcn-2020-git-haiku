@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-watching us pass, met death    
-They meet, they mate    
+Glorious the moon    
+The fragrant blossoms remain.    
+But he's beautiful!    
 
