@@ -1,4 +1,4 @@
-For a lovely bowl    
-April's air stirs in willow-leaves    
-Of warriors’ dreams.    
+Silent the old town    
+quick unexpected frog    
+These dark hands of life    
 
