@@ -1,4 +1,4 @@
-Cold first winter rain    
-to see the moon, whose solemn pace    
-Ueno? Asakura?    
+Seas are wild tonight    
+chirping, keeps the autumn gay    
+Muffled by hot rocks    
 
