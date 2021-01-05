@@ -1,4 +1,4 @@
-No oil to read by    
-loneliness? Just one leaf    
-from looking at the moon.    
+Dawn-shining mountains    
+watching us pass, met death    
+They meet, they mate    
 
