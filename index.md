@@ -1,4 +1,4 @@
-This snowy morning    
-Penetrating the very rock,    
-from the kiri tree.    
+Cloud of cherry-bloom    
+these heavy snow-flakes settling    
+Companion butterfly!    
 
