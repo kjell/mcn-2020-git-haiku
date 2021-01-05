@@ -1,4 +1,4 @@
-None is travelling    
-mingling with bright small shells    
-A solitary bird    
+Nine times arising    
+thoughts come - and there is loneliness;    
+My moonlit pillow    
 
