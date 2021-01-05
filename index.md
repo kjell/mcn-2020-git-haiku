@@ -1,4 +1,4 @@
-The rains of summer join together.    
-A frog jumps in -    
-A solitary bird    
+Nine times arising    
+Twilight whippoorwill, whistle on, sweet deepener    
+Mogami River.    
 
