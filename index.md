@@ -1,4 +1,4 @@
-Such utter silence!    
-The fragrant blossoms remain.    
-Two white butterflies?    
+This snowy morning    
+Penetrating the very rock,    
+from the kiri tree.    
 
