@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-these heavy snow-flakes settling    
-Companion butterfly!    
+Such utter silence!    
+twin butterflies until, twice white    
+the autumn dusk is here.    
 
