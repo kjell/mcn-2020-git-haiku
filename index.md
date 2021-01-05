@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-A frog jumps in -    
-from the kiri tree.    
+For a lovely bowl    
+April's air stirs in willow-leaves    
+Of warriors’ dreams.    
 
