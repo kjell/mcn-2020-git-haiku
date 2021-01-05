@@ -1,4 +1,4 @@
-Temple bells die out.    
-The birds cry, and the fishes’ eyes are     
-are darkened    
+Carven gods long gone    
+A frog jumps in -    
+It’s the Doll’s Festival.    
 
