@@ -1,4 +1,4 @@
-Spring is passing.    
-even the crickets' singing    
+Dry cheerful cricket    
+captains swore grand conquest    
 My moonlit pillow    
 
