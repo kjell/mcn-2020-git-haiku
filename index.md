@@ -1,4 +1,4 @@
-Carven gods long gone    
-A frog jumps in -    
-It’s the Doll’s Festival.    
+Lady butterfly    
+April's air stirs in willow-leaves    
+This autumn evening.    
 
