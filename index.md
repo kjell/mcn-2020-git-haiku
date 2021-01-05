@@ -1,4 +1,4 @@
-Such utter silence!    
-twin butterflies until, twice white    
-the autumn dusk is here.    
+Won't you come and see    
+The fragrant blossoms remain.    
+Muffled by hot rocks    
 
