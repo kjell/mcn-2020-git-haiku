@@ -1,4 +1,4 @@
-Silent the old town    
-quick unexpected frog    
-These dark hands of life    
+Cold first winter rain    
+to see the moon, whose solemn pace    
+Ueno? Asakura?    
 
