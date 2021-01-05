@@ -1,4 +1,4 @@
-Lightning -    
-sky-reflecting violets    
-My moonlit pillow    
+Old dark sleepy pool    
+A frog jumps in -    
+from the kiri tree.    
 
