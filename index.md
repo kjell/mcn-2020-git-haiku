@@ -1,4 +1,4 @@
-Temple bells die out.    
-perfumes her wings by floating    
-The Autumn wind.    
+Spring is passing.    
+Here along this way but I,    
+It’s the Doll’s Festival.    
 
