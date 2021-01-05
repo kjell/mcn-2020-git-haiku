@@ -1,4 +1,4 @@
-Seas are wild tonight    
-chirping, keeps the autumn gay    
-Muffled by hot rocks    
+Spring is passing.    
+the scent of flowers floating    
+from looking at the moon.    
 
