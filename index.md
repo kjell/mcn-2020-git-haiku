@@ -1,4 +1,4 @@
-Temple bells die out.    
+This is the new line    
 Twilight whippoorwill, whistle on, sweet deepener    
-Bush-clover petals    
+A cicada’s voice.    
 
