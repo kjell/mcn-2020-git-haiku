@@ -1,4 +1,4 @@
-In the sea-surf edge    
-The fragrant blossoms remain.    
-Two white butterflies?    
+Temple bells die out.    
+perfumes her wings by floating    
+The Autumn wind.    
 
