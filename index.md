@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-A frog jumps in -    
-On the temple porch    
+When you say something,    
+How swift it is    
+Murmuring Mogami    
 
