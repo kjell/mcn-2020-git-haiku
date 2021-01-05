@@ -1,4 +1,4 @@
-When you say something,    
-How swift it is    
-Murmuring Mogami    
+Temple bells die out.    
+Twilight whippoorwill, whistle on, sweet deepener    
+Bush-clover petals    
 
