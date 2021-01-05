@@ -1,4 +1,4 @@
-Carven gods long gone    
-A frog jumps in -    
-A little woven cape    
+No oil to read by    
+loneliness? Just one leaf    
+from looking at the moon.    
 
