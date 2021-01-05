@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-Line that won't be deleted    
-from the kiri tree.    
+Carven gods long gone    
+A frog jumps in -    
+A little woven cape    
 
