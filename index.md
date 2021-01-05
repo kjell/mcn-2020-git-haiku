@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-captains swore grand conquest    
-My moonlit pillow    
+Poverty's child -    
+and bring to men a chance to rest    
+Or backyard love?    
 
