@@ -1,4 +1,4 @@
-An old pond    
-in dusky night    
-With tears.    
+Such utter silence!    
+The fragrant blossoms remain.    
+Two white butterflies?    
 
