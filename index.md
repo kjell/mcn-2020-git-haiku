@@ -1,4 +1,4 @@
-Silent the old town    
-falling, falling, falling now    
-A cicada’s voice.    
+Clouds come from time to time -    
+Line that won't be deleted    
+from the kiri tree.    
 
