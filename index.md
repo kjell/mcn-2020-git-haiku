@@ -1,4 +1,4 @@
-Nine times arising    
-thoughts come - and there is loneliness;    
-My moonlit pillow    
+In the sea-surf edge    
+The fragrant blossoms remain.    
+Two white butterflies?    
 
