@@ -1,4 +1,4 @@
-Won't you come and see    
-The fragrant blossoms remain.    
-Muffled by hot rocks    
+Such utter silence!    
+perfumes her wings by floating    
+Seasoned with petals    
 
