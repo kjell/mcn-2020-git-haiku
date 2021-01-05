@@ -1,4 +1,4 @@
-Lady butterfly    
-April's air stirs in willow-leaves    
-This autumn evening.    
+Silent the old town    
+falling, falling, falling now    
+A cicada’s voice.    
 
