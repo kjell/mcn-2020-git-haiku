@@ -1,4 +1,4 @@
-Won't you come and see    
-above white    
-Ueno? Asakura?    
+None is travelling    
+spare my little buzzing friends    
+Waterfall music    
 
