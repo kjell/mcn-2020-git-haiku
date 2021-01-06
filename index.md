@@ -1,4 +1,4 @@
-No oil to read by    
-tolling twilight bell; Temple    
-This autumn evening.    
+The sea darkening    
+April's air stirs in willow-leaves    
+Splash!    
 
