@@ -1,4 +1,4 @@
-Ballet in the air    
-and bring to men a chance to rest    
-Of faded daffodils    
+Cold first winter rain    
+Heron's cry    
+Among the flowers    
 
