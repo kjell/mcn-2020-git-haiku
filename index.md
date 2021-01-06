@@ -1,4 +1,4 @@
-None is travelling    
-he starts to grind the rice,    
-Mogami River.    
+Swallow in the dusk    
+just enough to bend the leaves    
+Murmuring Mogami    
 
