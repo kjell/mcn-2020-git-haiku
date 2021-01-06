@@ -1,4 +1,4 @@
-This snowy morning    
-let us to the road again    
-from looking at the moon.    
+Must springtime fade?    
+sky-reflecting violets    
+Marks only midnight yet    
 
