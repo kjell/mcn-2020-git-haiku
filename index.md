@@ -1,4 +1,4 @@
-Under cherry-trees    
-How swift it is    
-A solitary bird    
+The first day of the year:    
+fell in silent dawn, spilling    
+Morning-glory gazing    
 
