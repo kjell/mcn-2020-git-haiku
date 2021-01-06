@@ -1,4 +1,4 @@
-Ballet in the air    
-I am off to bed - but ah!    
-Crying, whirling, white    
+Temple bells die out.    
+All that remains    
+and gazes at the moon.    
 
