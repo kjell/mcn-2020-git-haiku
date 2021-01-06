@@ -1,4 +1,4 @@
-In the cicada's cry    
-the scent of flowers floating    
-Tall grass their monument    
+The rains of summer join together.    
+captains swore grand conquest    
+Murmuring Mogami    
 
