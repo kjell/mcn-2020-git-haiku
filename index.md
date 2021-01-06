@@ -1,4 +1,4 @@
-An old pond    
-All that remains    
-and gazes at the moon.    
+This is the new line    
+chirping, keeps the autumn gay    
+Of faded daffodils    
 
