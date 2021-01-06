@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-A frog jumps in -    
-The autumn dusk is here.    
+Won't you come and see    
+The fragrant blossoms remain.    
+With tears.    
 
