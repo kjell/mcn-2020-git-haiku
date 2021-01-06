@@ -1,4 +1,4 @@
-The rains of summer join together.    
-captains swore grand conquest    
-Murmuring Mogami    
+Bright red pepper-pod    
+How swift it is    
+Ueno? Asakura?    
 
