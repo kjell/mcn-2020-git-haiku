@@ -1,4 +1,4 @@
-The sea darkening    
-April's air stirs in willow-leaves    
-Splash!    
+Clouds come from time to time -    
+therefore our thanks dark clouds    
+They meet, they mate    
 
