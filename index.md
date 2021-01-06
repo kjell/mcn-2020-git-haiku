@@ -1,4 +1,4 @@
-Poverty's child -    
-April's air stirs in willow-leaves    
-Since there is no rice    
+An old pond    
+All that remains    
+and gazes at the moon.    
 
