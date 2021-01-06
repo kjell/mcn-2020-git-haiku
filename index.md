@@ -1,4 +1,4 @@
-Seek on high bare trails    
-then cry all birds and fishes    
-How soon it must die.    
+Dewdrop, let me cleanse    
+Heron's cry    
+A perfect evening!    
 
