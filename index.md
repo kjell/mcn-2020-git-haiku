@@ -1,4 +1,4 @@
-Cold first winter rain    
-these heavy snow-flakes settling    
-But he's beautiful!    
+Oh, tranquility!    
+let us arrange these flowers    
+Seasoned with petals    
 
