@@ -1,4 +1,4 @@
-Nine times arising    
-Twilight whippoorwill, whistle on, sweet deepener    
-Mogami River.    
+Seek on high bare trails    
+then cry all birds and fishes    
+How soon it must die.    
 
