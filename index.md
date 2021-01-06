@@ -1,4 +1,4 @@
-The first day of the year:    
-A frog jumps in -    
-from looking at the moon.    
+For a lovely bowl    
+April's air stirs in willow-leaves    
+Over the orchid    
 
