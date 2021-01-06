@@ -1,4 +1,4 @@
-Won't you come and see    
-The fragrant blossoms remain.    
-With tears.    
+No oil to read by    
+tolling twilight bell; Temple    
+This autumn evening.    
 
