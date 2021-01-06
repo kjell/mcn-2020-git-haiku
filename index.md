@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-Twilight whippoorwill, whistle on, sweet deepener    
-A perfect evening!    
+Dry cheerful cricket    
+A frog jumps in -    
+The autumn dusk is here.    
 
