@@ -1,4 +1,4 @@
-Now in sad autumn    
-spare my little buzzing friends    
-These dark hands of life    
+Under cherry-trees    
+How swift it is    
+A solitary bird    
 
