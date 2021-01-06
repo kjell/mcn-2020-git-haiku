@@ -1,4 +1,4 @@
-None is travelling    
+Now in sad autumn    
 spare my little buzzing friends    
-Waterfall music    
+These dark hands of life    
 
