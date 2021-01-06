@@ -1,4 +1,4 @@
-Lightning -    
-he starts to grind the rice,    
-Of warriors’ dreams.    
+In the cicada's cry    
+the scent of flowers floating    
+Tall grass their monument    
 
