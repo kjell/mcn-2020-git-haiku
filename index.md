@@ -1,4 +1,4 @@
-This snowy morning    
-dead leaves alone foregather    
-This autumn evening.    
+White cloud of mist    
+April's air stirs in willow-leaves    
+Marks only midnight yet    
 
