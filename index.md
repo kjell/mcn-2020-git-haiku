@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-Heron's cry    
-A perfect evening!    
+Lightning -    
+he starts to grind the rice,    
+Of warriors’ dreams.    
 
