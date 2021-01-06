@@ -1,4 +1,4 @@
-Must springtime fade?    
-sky-reflecting violets    
-Marks only midnight yet    
+Poverty's child -    
+April's air stirs in willow-leaves    
+Since there is no rice    
 
