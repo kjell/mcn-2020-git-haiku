@@ -1,4 +1,4 @@
-Temple bells die out.    
-All that remains    
-and gazes at the moon.    
+Lightning -    
+falling, falling, falling now    
+Of dark loneliness    
 
