@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-spare my little buzzing friends    
-and gazes at the moon.    
+The rains of summer join together.    
+Heron's cry    
+With tears.    
 
