@@ -1,4 +1,4 @@
-The rains of summer join together.    
-visit the ancestral grave    
-It’s the Doll’s Festival.    
+Old dark sleepy pool    
+There's no sign that can foretell    
+My moonlit pillow    
 
