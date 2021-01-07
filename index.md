@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-Penetrating the very rock,    
-Since there is no rice    
+Won't you come and see    
+I am off to bed - but ah!    
+A butterfly floats and balances    
 
