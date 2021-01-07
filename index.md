@@ -1,4 +1,4 @@
-Cold first winter rain    
-Heron's cry    
-Among the flowers    
+The river gathering may rains    
+dead leaves alone foregather    
+How soon it must die.    
 
