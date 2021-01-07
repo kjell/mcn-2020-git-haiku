@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-The birds cry, and the fishes’ eyes are     
-Basho lines the moon    
+Mountain-rose petals    
+Here along this way but I,    
+Stabs the darkness    
 
