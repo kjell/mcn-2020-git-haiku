@@ -1,4 +1,4 @@
-This snowy morning    
-as I take my darkening path    
-A perfect evening!    
+Swallow in the dusk    
+he starts to grind the rice,    
+Bush-clover petals    
 
