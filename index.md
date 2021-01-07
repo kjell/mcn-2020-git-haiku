@@ -1,4 +1,4 @@
-Oh, tranquility!    
-thoughts come - and there is loneliness;    
-A cicada’s voice.    
+Old dark sleepy pool    
+Penetrating the very rock,    
+Since there is no rice    
 
