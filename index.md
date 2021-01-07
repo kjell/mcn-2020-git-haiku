@@ -1,4 +1,4 @@
-Lightning -    
-in dusky night    
-Cold pale eyes pour tears    
+An old pond    
+just enough to bend the leaves    
+A cicada’s voice.    
 
