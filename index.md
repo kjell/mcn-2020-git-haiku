@@ -1,4 +1,4 @@
-Lightning -    
-loneliness? Just one leaf    
-Of dark loneliness    
+Old dark sleepy pool    
+poor monkey, you too could use    
+and gazes at the moon.    
 
