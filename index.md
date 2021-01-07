@@ -1,4 +1,4 @@
-Mountain-rose petals    
-Here along this way but I,    
-Like our tendrilled life    
+This snowy morning    
+as I take my darkening path    
+A perfect evening!    
 
