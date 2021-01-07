@@ -1,4 +1,4 @@
-Will we meet again    
-All that remains    
-A perfect evening!    
+Mountain-rose petals    
+that black crow I hate so much    
+Of dark loneliness    
 
