@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-above white    
-Bush-clover petals    
+Temple bells die out.    
+Is also changed to another    
+Of warriors’ dreams.    
 
