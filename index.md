@@ -1,4 +1,4 @@
-None is travelling    
-who spends his little breakfast    
-Cold pale eyes pour tears    
+Lightning -    
+tolling twilight bell; Temple    
+from looking at the moon.    
 
