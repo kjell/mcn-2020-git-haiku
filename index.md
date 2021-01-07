@@ -1,4 +1,4 @@
-Spring is passing.    
-above white    
-from looking at the moon.    
+Will we meet again    
+and bring to men a chance to rest    
+A perfect evening!    
 
