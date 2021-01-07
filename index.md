@@ -1,4 +1,4 @@
-Mountain-rose petals    
-that black crow I hate so much    
+Lightning -    
+loneliness? Just one leaf    
 Of dark loneliness    
 
