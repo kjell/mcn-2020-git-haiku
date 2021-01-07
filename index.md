@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-let us arrange these flowers    
-How soon it must die.    
+None is travelling    
+who spends his little breakfast    
+Cold pale eyes pour tears    
 
