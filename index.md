@@ -1,4 +1,4 @@
-The rains of summer join together.    
-I am off to bed - but ah!    
-Over the orchid    
+Mountain-rose petals    
+Here along this way but I,    
+Like our tendrilled life    
 
