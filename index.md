@@ -1,4 +1,4 @@
-Will we meet again    
-and bring to men a chance to rest    
-A perfect evening!    
+Black cloudbank broken    
+All that remains    
+And evening bell    
 
