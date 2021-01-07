@@ -1,4 +1,4 @@
-An old pond    
-just enough to bend the leaves    
-A cicada’s voice.    
+The rains of summer join together.    
+I am off to bed - but ah!    
+Over the orchid    
 
