@@ -1,4 +1,4 @@
-Ballet in the air    
-The lips feel cold.    
-Basho lines the moon    
+Will we meet again    
+All that remains    
+A perfect evening!    
 
