@@ -1,4 +1,4 @@
-In the cicada's cry    
-poor monkey, you too could use    
-Of faded daffodils    
+Now that eyes of hawks    
+spare my little buzzing friends    
+and gazes at the moon.    
 
