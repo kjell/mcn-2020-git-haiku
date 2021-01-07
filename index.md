@@ -1,4 +1,4 @@
-Seas are wild tonight    
-just enough to bend the leaves    
-The Autumn wind.    
+The rains of summer join together.    
+visit the ancestral grave    
+It’s the Doll’s Festival.    
 
