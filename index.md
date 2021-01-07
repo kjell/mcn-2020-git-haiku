@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Heron's cry    
-With tears.    
+Ballet in the air    
+The lips feel cold.    
+Basho lines the moon    
 
