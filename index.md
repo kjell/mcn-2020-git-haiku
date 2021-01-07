@@ -1,4 +1,4 @@
-Mountain-rose petals    
-Here along this way but I,    
+Camellia-petal    
+above white    
 Stabs the darkness    
 
