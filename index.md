@@ -1,4 +1,4 @@
-Swallow in the dusk    
-he starts to grind the rice,    
-Bush-clover petals    
+Oh, tranquility!    
+thoughts come - and there is loneliness;    
+A cicada’s voice.    
 
