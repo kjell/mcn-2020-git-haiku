@@ -1,4 +1,4 @@
-Ballet in the air    
-All that remains    
-It’s the Doll’s Festival.    
+Spring is passing.    
+above white    
+from looking at the moon.    
 
