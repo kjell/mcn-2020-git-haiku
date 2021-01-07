@@ -1,4 +1,4 @@
-Cold first winter rain    
-tolling twilight bell; Temple    
-With tears.    
+A owner of the old thatched hut    
+above white    
+Bush-clover petals    
 
