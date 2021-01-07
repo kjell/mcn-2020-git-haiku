@@ -1,4 +1,4 @@
-Temple bells die out.    
-Is also changed to another    
-Of warriors’ dreams.    
+Nine times arising    
+Here along this way but I,    
+Cherry-blossoms    
 
