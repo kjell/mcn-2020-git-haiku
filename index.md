@@ -1,4 +1,4 @@
-When you say something,    
+Ballet in the air    
 All that remains    
-from the kiri tree.    
+It’s the Doll’s Festival.    
 
