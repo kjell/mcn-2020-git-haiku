@@ -1,4 +1,4 @@
-In the twilight rain    
-these heavy snow-flakes settling    
-Morning-glory gazing    
+Will we meet again    
+How swift it is    
+With tears.    
 
