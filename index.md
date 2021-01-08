@@ -1,4 +1,4 @@
-The river gathering may rains    
-even the crickets' singing    
-Come to rest our necks    
+Won't you come and see    
+Is also changed to another    
+And evening bell    
 
