@@ -1,4 +1,4 @@
-White cloud of mist    
-it needs but shiny wings and look    
-Mogami River.    
+Dewdrop, let me cleanse    
+here at your flowering grave    
+A water-jewel    
 
