@@ -1,4 +1,4 @@
-Under cherry-trees    
-spare my little buzzing friends    
-From the kiri tree.    
+None is travelling    
+here at your flowering grave    
+Come to rest our necks    
 
