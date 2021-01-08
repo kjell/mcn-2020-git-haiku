@@ -1,4 +1,4 @@
-Nine times arising    
-Here along this way but I,    
+Wake! The sky is light!    
+quick unexpected frog    
 Cherry-blossoms    
 
