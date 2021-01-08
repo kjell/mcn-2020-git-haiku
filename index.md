@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-sky-reflecting violets    
+White cloud of mist    
+it needs but shiny wings and look    
 Mogami River.    
 
