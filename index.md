@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-captains swore grand conquest    
-Murmuring Mogami    
+No oil to read by    
+Is also changed to another    
+are darkened . . .    
 
