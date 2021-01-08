@@ -1,4 +1,4 @@
-Temple bells die out.    
-chirping, keeps the autumn gay    
-This autumn evening.    
+Clouds come from time to time -    
+sky-reflecting violets    
+Mogami River.    
 
