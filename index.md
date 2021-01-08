@@ -1,4 +1,4 @@
-Swallow in the dusk    
-sky-reflecting violets    
-Marks only midnight yet    
+Temple bells die out.    
+chirping, keeps the autumn gay    
+This autumn evening.    
 
