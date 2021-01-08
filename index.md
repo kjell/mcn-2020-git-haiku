@@ -1,4 +1,4 @@
-If there were fragrance    
-All that remains    
-On the temple porch    
+The rains of summer join together.    
+even the crickets' singing    
+Mogami River.    
 
