@@ -1,4 +1,4 @@
-Spring is passing.    
-starving for fat fish or mice    
-Bearded, with bent canes    
+In the cicada's cry    
+Heron's cry    
+Two white butterflies?    
 
