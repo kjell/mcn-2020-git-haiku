@@ -1,4 +1,4 @@
-Spring is passing.    
-tolling twilight bell; Temple    
-It’s the Doll’s Festival.    
+When you say something,    
+visit the ancestral grave    
+Splash!    
 
