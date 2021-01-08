@@ -1,4 +1,4 @@
-If there were fragrance    
-The birds cry, and the fishes’ eyes are     
-Splash!    
+Now that eyes of hawks    
+Twilight whippoorwill, whistle on, sweet deepener    
+Stabs the darkness    
 
