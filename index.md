@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-quick unexpected frog    
-Cherry-blossoms    
+Spring is passing.    
+he starts to grind the rice,    
+Moon-lighted mountains!    
 
