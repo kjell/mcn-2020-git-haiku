@@ -1,4 +1,4 @@
-Poverty's child -    
-is quieted with creepers    
-Among the flowers    
+Won't you come and see    
+he starts to grind the rice,    
+Waterfall music    
 
