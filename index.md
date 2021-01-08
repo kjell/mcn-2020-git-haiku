@@ -1,4 +1,4 @@
-The rains of summer join together.    
-even the crickets' singing    
-Mogami River.    
+Poverty's child -    
+is quieted with creepers    
+Among the flowers    
 
