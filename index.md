@@ -1,4 +1,4 @@
-Won't you come and see    
-he starts to grind the rice,    
-Waterfall music    
+An old pond    
+let us arrange these flowers    
+and gazes at the moon.    
 
