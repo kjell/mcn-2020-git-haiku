@@ -1,4 +1,4 @@
-This is the new line    
-Is also changed to another    
-are darkened    
+If there were fragrance    
+The birds cry, and the fishes’ eyes are     
+Splash!    
 
