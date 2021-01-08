@@ -1,4 +1,4 @@
-No oil to read by    
-Is also changed to another    
-are darkened . . .    
+Swallow in the dusk    
+sky-reflecting violets    
+Marks only midnight yet    
 
