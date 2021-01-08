@@ -1,4 +1,4 @@
-Seas are wild tonight    
-here at your flowering grave    
-Of faded daffodils    
+The river gathering may rains    
+even the crickets' singing    
+Come to rest our necks    
 
