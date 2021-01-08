@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-Twilight whippoorwill, whistle on, sweet deepener    
-the autumn dusk is here.    
+In the twilight rain    
+these heavy snow-flakes settling    
+Morning-glory gazing    
 
