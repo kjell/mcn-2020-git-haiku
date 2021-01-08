@@ -1,4 +1,4 @@
-Here, where a thousand    
-starving for fat fish or mice    
-Moon-lighted mountains!    
+If there were fragrance    
+All that remains    
+On the temple porch    
 
