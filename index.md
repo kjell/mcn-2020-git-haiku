@@ -1,4 +1,4 @@
-Spring is passing.    
-he starts to grind the rice,    
-Moon-lighted mountains!    
+Chirping of the quails    
+soup, the salad, fish and all    
+and gazes at the moon.    
 
