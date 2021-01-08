@@ -1,4 +1,4 @@
-Too curious flower    
-then cry all birds and fishes    
-Ueno? Asakura?    
+White cloud of mist    
+Heron's cry    
+The Autumn wind.    
 
