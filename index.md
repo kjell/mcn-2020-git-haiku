@@ -1,4 +1,4 @@
-Will we meet again    
-How swift it is    
-With tears.    
+Here, where a thousand    
+starving for fat fish or mice    
+Moon-lighted mountains!    
 
