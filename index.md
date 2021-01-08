@@ -1,4 +1,4 @@
-Won't you come and see    
-Is also changed to another    
-And evening bell    
+Such utter silence!    
+watching us pass, met death    
+A little woven cape    
 
