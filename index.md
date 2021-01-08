@@ -1,4 +1,4 @@
-White cloud of mist    
-Heron's cry    
-The Autumn wind.    
+Spring is passing.    
+starving for fat fish or mice    
+Bearded, with bent canes    
 
