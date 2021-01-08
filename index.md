@@ -1,4 +1,4 @@
-None is travelling    
-here at your flowering grave    
-Come to rest our necks    
+Too curious flower    
+then cry all birds and fishes    
+Ueno? Asakura?    
 
