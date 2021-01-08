@@ -1,4 +1,4 @@
-An old pond    
-How swift it is    
-And evening bell    
+Seas are wild tonight    
+here at your flowering grave    
+Of faded daffodils    
 
