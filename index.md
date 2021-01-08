@@ -1,4 +1,4 @@
-An old pond    
-let us arrange these flowers    
-and gazes at the moon.    
+When you say something,    
+it needs but shiny wings and look    
+Of warriors’ dreams.    
 
