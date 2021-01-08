@@ -1,4 +1,4 @@
-Such utter silence!    
-watching us pass, met death    
-A little woven cape    
+Spring is passing.    
+tolling twilight bell; Temple    
+It’s the Doll’s Festival.    
 
