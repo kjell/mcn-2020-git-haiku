@@ -1,4 +1,4 @@
-The rains of summer join together.    
-soup, the salad, fish and all    
-and gazes at the moon.    
+Oh, tranquility!    
+who spends his little breakfast    
+from the kiri tree.    
 
