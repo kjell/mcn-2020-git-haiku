@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-There's no sign that can foretell    
-My moonlit pillow    
+Spring is passing.    
+is quieted with creepers    
+Cold pale eyes pour tears    
 
