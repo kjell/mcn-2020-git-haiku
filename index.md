@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-even the crickets' singing    
-Splash!    
+The sea darkening    
+Here along this way but I,    
+Silent clouds of stars    
 
