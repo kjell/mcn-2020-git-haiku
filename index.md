@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-above white    
-Bush-clover petals    
+When you say something,    
+therefore our thanks dark clouds    
+My moonlit pillow    
 
