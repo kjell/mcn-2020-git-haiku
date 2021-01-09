@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-Twilight whippoorwill, whistle on, sweet deepener    
-Stabs the darkness    
+A owner of the old thatched hut    
+fell in silent dawn, spilling    
+Splash!    
 
