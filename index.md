@@ -1,4 +1,4 @@
-Lightning -    
-poor monkey, you too could use    
-Of warriors’ dreams.    
+Now that eyes of hawks    
+tolling twilight bell; Temple    
+From the kiri tree.    
 
