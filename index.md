@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-fell in silent dawn, spilling    
-Splash!    
+The rains of summer join together.    
+twin butterflies until, twice white    
+Of faded daffodils    
 
