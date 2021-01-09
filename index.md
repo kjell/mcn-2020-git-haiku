@@ -1,4 +1,4 @@
-Glorious the moon    
-How swift it is    
-are darkened    
+Too curious flower    
+Here along this way but I,    
+cherry-blossoms . . .    
 
