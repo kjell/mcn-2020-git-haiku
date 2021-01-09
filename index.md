@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-these heavy snow-flakes settling    
-And evening bell    
+Glorious the moon    
+How swift it is    
+are darkened    
 
