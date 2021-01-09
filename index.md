@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-sky-reflecting violets    
-A little woven cape    
+A owner of the old thatched hut    
+in your brief sweet waters    
+Over the orchid    
 
