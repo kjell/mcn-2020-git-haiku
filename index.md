@@ -1,4 +1,4 @@
-In the cicada's cry    
-the scent of flowers floating    
-With tears.    
+Dry cheerful cricket    
+April's air stirs in willow-leaves    
+Bush-clover petals    
 
