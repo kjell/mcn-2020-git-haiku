@@ -1,4 +1,4 @@
-Too curious flower    
-Here along this way but I,    
-cherry-blossoms . . .    
+In the cicada's cry    
+the scent of flowers floating    
+With tears.    
 
