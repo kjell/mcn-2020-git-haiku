@@ -1,4 +1,4 @@
-Will we meet again    
-in your brief sweet waters    
-They meet, they mate    
+Dry cheerful cricket    
+Here along this way but I,    
+A butterfly floats and balances    
 
