@@ -1,4 +1,4 @@
-The sea darkening    
-Here along this way but I,    
-Silent clouds of stars    
+Lightning -    
+poor monkey, you too could use    
+Of warriors’ dreams.    
 
