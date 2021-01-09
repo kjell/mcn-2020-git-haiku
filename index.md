@@ -1,4 +1,4 @@
-Swallow in the dusk    
-twin butterflies until, twice white    
-On the temple porch    
+The rains of summer join together.    
+soup, the salad, fish and all    
+and gazes at the moon.    
 
