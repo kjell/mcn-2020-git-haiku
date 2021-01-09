@@ -1,4 +1,4 @@
-In the twilight rain    
-Penetrating the very rock,    
-But he's beautiful!    
+When you say something,    
+chirping, keeps the autumn gay    
+Our hungry donkey    
 
