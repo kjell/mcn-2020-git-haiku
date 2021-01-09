@@ -1,4 +1,4 @@
-Oh, tranquility!    
-captains swore grand conquest    
-and gazes at the moon.    
+Camellia-petal    
+There's no sign that can foretell    
+from looking at the moon.    
 
