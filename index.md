@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-in your brief sweet waters    
-Over the orchid    
+Swallow in the dusk    
+twin butterflies until, twice white    
+On the temple porch    
 
