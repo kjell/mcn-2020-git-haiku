@@ -1,4 +1,4 @@
-Lady butterfly    
-thoughts come - and there is loneliness;    
-It’s the Doll’s Festival.    
+The sea darkening    
+Heron's cry    
+The Autumn wind.    
 
