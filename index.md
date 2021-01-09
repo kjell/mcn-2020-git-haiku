@@ -1,4 +1,4 @@
-The river gathering may rains    
-here at your flowering grave    
+Lady butterfly    
+thoughts come - and there is loneliness;    
 It’s the Doll’s Festival.    
 
