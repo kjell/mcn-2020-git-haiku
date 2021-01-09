@@ -1,4 +1,4 @@
-Here, where a thousand    
-Here along this way but I,    
-Silent clouds of stars    
+Poverty's child -    
+How swift it is    
+Mountain-top jewels    
 
