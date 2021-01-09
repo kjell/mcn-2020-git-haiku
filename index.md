@@ -1,4 +1,4 @@
-Camellia-petal    
-There's no sign that can foretell    
-from looking at the moon.    
+Temple bells die out.    
+let us to the road again    
+Moon-lighted mountains!    
 
