@@ -1,4 +1,4 @@
-Spring is passing.    
-is quieted with creepers    
-Cold pale eyes pour tears    
+Camellia-petal    
+oh voices of the wild ducks    
+and gazes at the moon.    
 
