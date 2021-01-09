@@ -1,4 +1,4 @@
-Oh, tranquility!    
-who spends his little breakfast    
-from the kiri tree.    
+Carven gods long gone    
+The birds cry, and the fishes’ eyes are     
+Seasoned with petals    
 
