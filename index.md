@@ -1,4 +1,4 @@
-When you say something,    
+The first day of the year:    
 therefore our thanks dark clouds    
-My moonlit pillow    
+But he's beautiful!    
 
