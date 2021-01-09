@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-Here along this way but I,    
-A butterfly floats and balances    
+Oh, tranquility!    
+captains swore grand conquest    
+and gazes at the moon.    
 
