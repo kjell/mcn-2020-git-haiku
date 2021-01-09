@@ -1,4 +1,4 @@
-Carven gods long gone    
-The birds cry, and the fishes’ eyes are     
-Seasoned with petals    
+Now that eyes of hawks    
+these heavy snow-flakes settling    
+And evening bell    
 
