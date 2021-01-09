@@ -1,4 +1,4 @@
-The rains of summer join together.    
-twin butterflies until, twice white    
-Of faded daffodils    
+Clouds come from time to time -    
+sky-reflecting violets    
+A little woven cape    
 
