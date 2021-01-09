@@ -1,4 +1,4 @@
-The first day of the year:    
-therefore our thanks dark clouds    
-But he's beautiful!    
+The river gathering may rains    
+here at your flowering grave    
+It’s the Doll’s Festival.    
 
