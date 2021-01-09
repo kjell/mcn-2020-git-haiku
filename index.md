@@ -1,4 +1,4 @@
-Temple bells die out.    
-let us to the road again    
-Moon-lighted mountains!    
+Clouds come from time to time -    
+above white    
+Bush-clover petals    
 
