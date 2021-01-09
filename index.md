@@ -1,4 +1,4 @@
-When you say something,    
-chirping, keeps the autumn gay    
-Our hungry donkey    
+Will we meet again    
+in your brief sweet waters    
+They meet, they mate    
 
