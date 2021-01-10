@@ -1,4 +1,4 @@
-Swallow in the dusk    
-above white    
-and gazes at the moon.    
+Won't you come and see    
+the scent of flowers floating    
+Silent clouds of stars    
 
