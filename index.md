@@ -1,4 +1,4 @@
-This is the new line    
-let us to the road again    
-the autumn dusk is here.    
+Won't you come and see    
+and bring to men a chance to rest    
+How soon it must die.    
 
