@@ -1,4 +1,4 @@
-See: surviving suns    
-chirping, keeps the autumn gay    
-Morning-glory gazing    
+This is the new line    
+let us to the road again    
+the autumn dusk is here.    
 
