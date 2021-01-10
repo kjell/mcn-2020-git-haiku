@@ -1,4 +1,4 @@
-The first day of the year:    
-and bring to men a chance to rest    
-Silent clouds of stars    
+Wake! The sky is light!    
+mingling with bright small shells    
+Mogami River.    
 
