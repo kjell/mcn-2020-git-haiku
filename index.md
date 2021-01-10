@@ -1,4 +1,4 @@
-Glorious the moon    
-The birds cry, and the fishes’ eyes are     
-Splash!    
+Silent the old town    
+perfumes her wings by floating    
+The autumn dusk is here.    
 
