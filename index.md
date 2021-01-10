@@ -1,4 +1,4 @@
-The sea darkening    
-Heron's cry    
-The Autumn wind.    
+For a lovely bowl    
+therefore our thanks dark clouds    
+Moon-lighted mountains!    
 
