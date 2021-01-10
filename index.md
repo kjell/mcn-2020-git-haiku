@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-There's no sign that can foretell    
-Our hungry donkey    
+None is travelling    
+just enough to bend the leaves    
+Darting dragon-fly!    
 
