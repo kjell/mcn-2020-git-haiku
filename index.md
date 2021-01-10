@@ -1,4 +1,4 @@
-Will we meet again    
-just enough to bend the leaves    
-A perfect evening!    
+The first day of the year:    
+and bring to men a chance to rest    
+Silent clouds of stars    
 
