@@ -1,4 +1,4 @@
-Won't you come and see    
-the scent of flowers floating    
-Silent clouds of stars    
+Glorious the moon    
+The birds cry, and the fishes’ eyes are     
+Splash!    
 
