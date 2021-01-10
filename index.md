@@ -1,4 +1,4 @@
-White cloud of mist    
-these heavy snow-flakes settling    
-Since there is no rice    
+Will we meet again    
+just enough to bend the leaves    
+A perfect evening!    
 
