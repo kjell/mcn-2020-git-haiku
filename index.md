@@ -1,4 +1,4 @@
-Carven gods long gone    
-soup, the salad, fish and all    
-Mogami River.    
+Mountain-rose petals    
+tolling twilight bell; Temple    
+Goes plop! Watersplash!    
 
