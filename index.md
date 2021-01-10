@@ -1,4 +1,4 @@
-Ah me! I am one    
-the scent of flowers floating    
-Bush-clover petals    
+Why so scrawny, cat?    
+Heron's cry    
+It’s the Doll’s Festival.    
 
