@@ -1,4 +1,4 @@
-Silent the old town    
-perfumes her wings by floating    
-The autumn dusk is here.    
+Now that eyes of hawks    
+Is also changed to another    
+cherry-blossoms . . .    
 
