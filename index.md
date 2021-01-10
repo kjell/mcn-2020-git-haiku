@@ -1,4 +1,4 @@
-This is the new line    
-Penetrating the very rock,    
-Cherry-blossoms    
+Seas are wild tonight    
+tolling twilight bell; Temple    
+Waterfall music    
 
