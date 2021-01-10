@@ -1,4 +1,4 @@
-Temple bells die out.    
+None is travelling    
 in your brief sweet waters    
-The autumn dusk is here.    
+A water-jewel    
 
