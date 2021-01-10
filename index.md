@@ -1,4 +1,4 @@
-In the cicada's cry    
+This is the new line    
 Penetrating the very rock,    
-But he's beautiful!    
+Cherry-blossoms    
 
