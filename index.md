@@ -1,4 +1,4 @@
-None is travelling    
-just enough to bend the leaves    
-Darting dragon-fly!    
+In the cicada's cry    
+it needs but shiny wings and look    
+and gazes at the moon.    
 
