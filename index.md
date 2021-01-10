@@ -1,4 +1,4 @@
-Spring is passing.    
-A frog jumps in -    
-Mogami River.    
+See: surviving suns    
+How swift it is    
+Lilies on the rocks    
 
