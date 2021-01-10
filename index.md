@@ -1,4 +1,4 @@
 A owner of the old thatched hut    
-and bring to men a chance to rest    
-Muffled by hot rocks    
+There's no sign that can foretell    
+Our hungry donkey    
 
