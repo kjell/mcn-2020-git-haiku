@@ -1,4 +1,4 @@
-Oh, tranquility!    
-falling, falling, falling now    
-Cherry-blossoms    
+Carven gods long gone    
+soup, the salad, fish and all    
+Mogami River.    
 
