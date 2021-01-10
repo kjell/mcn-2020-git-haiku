@@ -1,4 +1,4 @@
-None is travelling    
-in your brief sweet waters    
-A water-jewel    
+Swallow in the dusk    
+above white    
+and gazes at the moon.    
 
