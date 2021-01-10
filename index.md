@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-thoughts come - and there is loneliness;    
-Like our tendrilled life    
+An old pond    
+is quieted with creepers    
+Since there is no rice    
 
