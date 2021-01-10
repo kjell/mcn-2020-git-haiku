@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-Is also changed to another    
-cherry-blossoms . . .    
+Such utter silence!    
+is quieted with creepers    
+A cicada’s voice.    
 
