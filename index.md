@@ -1,4 +1,4 @@
-Such utter silence!    
-is quieted with creepers    
-A cicada’s voice.    
+Clouds come from time to time -    
+thoughts come - and there is loneliness;    
+Like our tendrilled life    
 
