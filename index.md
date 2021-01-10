@@ -1,4 +1,4 @@
-See: surviving suns    
-How swift it is    
-Lilies on the rocks    
+Temple bells die out.    
+in your brief sweet waters    
+The autumn dusk is here.    
 
