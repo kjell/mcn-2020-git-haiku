@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-Heron's cry    
-It’s the Doll’s Festival.    
+A owner of the old thatched hut    
+and bring to men a chance to rest    
+Muffled by hot rocks    
 
