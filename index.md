@@ -1,4 +1,4 @@
-An old pond    
-is quieted with creepers    
-Since there is no rice    
+Such utter silence!    
+A frog jumps in -    
+Bearded, with bent canes    
 
