@@ -1,4 +1,4 @@
-Now in sad autumn    
-How swift it is    
-Ueno? Asakura?    
+In the sea-surf edge    
+let us arrange these flowers    
+Mogami River.    
 
