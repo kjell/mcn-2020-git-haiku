@@ -1,4 +1,4 @@
-Now in sad autumn    
-Penetrating the very rock,    
-But he's beautiful!    
+Will we meet again    
+oh voices of the wild ducks    
+Goes plop! Watersplash!    
 
