@@ -1,4 +1,4 @@
-Poverty's child -    
-and bring to men a chance to rest    
-Or backyard love?    
+Oh, tranquility!    
+from cold streamlets for the sea    
+the autumn dusk is here.    
 
