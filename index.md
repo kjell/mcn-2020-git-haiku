@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-these heavy snow-flakes settling    
-A solitary bird    
+Bright red pepper-pod    
+April's air stirs in willow-leaves    
+Splash!    
 
