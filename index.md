@@ -1,4 +1,4 @@
-In the sea-surf edge    
-let us arrange these flowers    
-Mogami River.    
+In the cicada's cry    
+perfumes her wings by floating    
+With tears.    
 
