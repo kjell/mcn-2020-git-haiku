@@ -1,4 +1,4 @@
-No oil to read by    
-who spends his little breakfast    
-Stabs the darkness    
+Dewdrop, let me cleanse    
+then cry all birds and fishes    
+A butterfly floats and balances    
 
