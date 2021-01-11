@@ -1,4 +1,4 @@
-Will we meet again    
-oh voices of the wild ducks    
+Swallow in the dusk    
+watching us pass, met death    
 Goes plop! Watersplash!    
 
