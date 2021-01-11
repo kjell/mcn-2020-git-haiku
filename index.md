@@ -1,4 +1,4 @@
-Swallow in the dusk    
-watching us pass, met death    
-Goes plop! Watersplash!    
+The first day of the year:    
+loneliness? Just one leaf    
+Muffled by hot rocks    
 
