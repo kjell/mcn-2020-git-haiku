@@ -1,4 +1,4 @@
-First white snow of fall    
-twin butterflies until, twice white    
-Among the flowers    
+Such utter silence!    
+in your brief sweet waters    
+Murmuring Mogami    
 
