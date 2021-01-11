@@ -1,4 +1,4 @@
-Nine times arising    
-captains swore grand conquest    
-Splash!    
+Cloud of cherry-bloom    
+perfumes her wings by floating    
+With tears.    
 
