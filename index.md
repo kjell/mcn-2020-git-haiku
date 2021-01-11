@@ -1,4 +1,4 @@
-The summer grasses.    
-is quieted with creepers    
-Waterfall music    
+Too curious flower    
+Penetrating the very rock,    
+Splash!    
 
