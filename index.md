@@ -1,4 +1,4 @@
-Such utter silence!    
-A frog jumps in -    
-Bearded, with bent canes    
+Won't you come and see    
+Here along this way but I,    
+Over the orchid    
 
