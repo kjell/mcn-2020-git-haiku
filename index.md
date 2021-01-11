@@ -1,4 +1,4 @@
-Oh, tranquility!    
-from cold streamlets for the sea    
-the autumn dusk is here.    
+Poverty's child -    
+Is also changed to another    
+Splash!    
 
