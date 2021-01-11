@@ -1,4 +1,4 @@
-Here, where a thousand    
-How swift it is    
-and gazes at the moon.    
+Old dark sleepy pool    
+Twilight whippoorwill, whistle on, sweet deepener    
+Moon-lighted mountains!    
 
