@@ -1,4 +1,4 @@
-Such utter silence!    
-in your brief sweet waters    
-Murmuring Mogami    
+Temple bells die out.    
+stretching over Sado Island    
+Mogami River.    
 
