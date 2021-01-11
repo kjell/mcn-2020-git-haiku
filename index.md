@@ -1,4 +1,4 @@
-Poverty's child -    
-Is also changed to another    
-Splash!    
+Now in sad autumn    
+Penetrating the very rock,    
+But he's beautiful!    
 
