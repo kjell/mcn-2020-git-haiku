@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-Twilight whippoorwill, whistle on, sweet deepener    
-Moon-lighted mountains!    
+Now in sad autumn    
+How swift it is    
+Ueno? Asakura?    
 
