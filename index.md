@@ -1,4 +1,4 @@
-The first day of the year:    
-in dusky night    
-A butterfly floats and balances    
+Black cloudbank broken    
+soup, the salad, fish and all    
+A water-jewel    
 
