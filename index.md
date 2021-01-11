@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-above white    
-It’s the Doll’s Festival.    
+Here, where a thousand    
+How swift it is    
+and gazes at the moon.    
 
