@@ -1,4 +1,4 @@
-Glorious the moon    
+The first day of the year:    
 Here along this way but I,    
-It’s the Doll’s Festival.    
+and gazes at the moon.    
 
