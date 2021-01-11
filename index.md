@@ -1,4 +1,4 @@
-The first day of the year:    
-loneliness? Just one leaf    
-Muffled by hot rocks    
+Nine times arising    
+captains swore grand conquest    
+Splash!    
 
