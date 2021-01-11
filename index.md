@@ -1,4 +1,4 @@
-See: surviving suns    
-just enough to bend the leaves    
-Among the flowers    
+The first day of the year:    
+in dusky night    
+A butterfly floats and balances    
 
