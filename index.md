@@ -1,4 +1,4 @@
-Cloud of cherry-bloom    
-perfumes her wings by floating    
-With tears.    
+Glorious the moon    
+Here along this way but I,    
+It’s the Doll’s Festival.    
 
