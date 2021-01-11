@@ -1,4 +1,4 @@
-Black cloudbank broken    
-soup, the salad, fish and all    
-A water-jewel    
+No oil to read by    
+who spends his little breakfast    
+Stabs the darkness    
 
