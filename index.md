@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-April's air stirs in willow-leaves    
-Splash!    
+First white snow of fall    
+twin butterflies until, twice white    
+Among the flowers    
 
