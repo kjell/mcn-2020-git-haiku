@@ -1,4 +1,4 @@
-This snowy morning    
-All that remains    
-Waterfall music    
+See: surviving suns    
+just enough to bend the leaves    
+Among the flowers    
 
