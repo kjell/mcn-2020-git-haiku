@@ -1,4 +1,4 @@
-Dewdrop, let me cleanse    
-then cry all birds and fishes    
-A butterfly floats and balances    
+Dawn-shining mountains    
+these heavy snow-flakes settling    
+A solitary bird    
 
