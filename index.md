@@ -1,4 +1,4 @@
-Won't you come and see    
-Here along this way but I,    
-Over the orchid    
+This snowy morning    
+All that remains    
+Waterfall music    
 
