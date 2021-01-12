@@ -1,4 +1,4 @@
-The summer grasses.    
-The birds cry, and the fishes’ eyes are     
-It’s the Doll’s Festival.    
+An old pond    
+it needs but shiny wings and look    
+Our hungry donkey    
 
