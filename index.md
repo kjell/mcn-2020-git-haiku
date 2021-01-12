@@ -1,4 +1,4 @@
-No oil to read by    
-thoughts come - and there is loneliness;    
-Over the orchid    
+Spring is passing.    
+spare my little buzzing friends    
+from looking at the moon.    
 
