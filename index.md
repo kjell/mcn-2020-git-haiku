@@ -1,4 +1,4 @@
-Ballet in the air    
-captains swore grand conquest    
-Mountain-top jewels    
+No oil to read by    
+in your brief sweet waters    
+Ueno? Asakura?    
 
