@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-loneliness? Just one leaf    
-are darkened    
+Wake! The sky is light!    
+it needs but shiny wings and look    
+Marks only midnight yet    
 
