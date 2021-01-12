@@ -1,4 +1,4 @@
-For a lovely bowl    
-therefore our thanks dark clouds    
-Two white butterflies?    
+Must springtime fade?    
+thoughts come - and there is loneliness;    
+How soon it must die.    
 
