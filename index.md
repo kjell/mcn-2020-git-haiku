@@ -1,4 +1,4 @@
-Now the swinging bridge    
+Dawn-shining mountains    
 loneliness? Just one leaf    
-A butterfly floats and balances    
+are darkened    
 
