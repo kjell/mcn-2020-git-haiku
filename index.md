@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-visit the ancestral grave    
-from the kiri tree.    
+Nine times arising    
+tolling twilight bell; Temple    
+Splash!    
 
