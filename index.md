@@ -1,4 +1,4 @@
-The rains of summer join together.    
-Here along this way but I,    
-Goes plop! Watersplash!    
+The summer grasses.    
+The birds cry, and the fishes’ eyes are     
+It’s the Doll’s Festival.    
 
