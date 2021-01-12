@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-here at your flowering grave    
-It’s the Doll’s Festival.    
+Clouds come from time to time -    
+from cold streamlets for the sea    
+My moonlit pillow    
 
