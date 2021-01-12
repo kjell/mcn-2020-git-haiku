@@ -1,4 +1,4 @@
-No oil to read by    
-in your brief sweet waters    
-Ueno? Asakura?    
+A owner of the old thatched hut    
+visit the ancestral grave    
+from the kiri tree.    
 
