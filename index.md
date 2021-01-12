@@ -1,4 +1,4 @@
-Too curious flower    
-Penetrating the very rock,    
-Splash!    
+Mountain-rose petals    
+that black crow I hate so much    
+Mountain-top jewels    
 
