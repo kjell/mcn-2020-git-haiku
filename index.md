@@ -1,4 +1,4 @@
-Wake! The sky is light!    
-it needs but shiny wings and look    
-Marks only midnight yet    
+A owner of the old thatched hut    
+thoughts come - and there is loneliness;    
+A cicada’s voice.    
 
