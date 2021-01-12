@@ -1,4 +1,4 @@
-No oil to read by    
+Must springtime fade?    
 sky-reflecting violets    
-They meet, they mate    
+Tall grass their monument    
 
