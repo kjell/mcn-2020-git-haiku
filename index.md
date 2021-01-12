@@ -1,4 +1,4 @@
-Under cherry-trees    
-I am off to bed - but ah!    
-cherry-blossoms . . .    
+Spring is passing.    
+Here along this way but I,    
+the autumn dusk is here.    
 
