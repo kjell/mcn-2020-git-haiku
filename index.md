@@ -1,4 +1,4 @@
-Nine times arising    
-tolling twilight bell; Temple    
-Splash!    
+Ballet in the air    
+these brilliant-hued hibiscus    
+Ueno? Asakura?    
 
