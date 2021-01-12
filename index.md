@@ -1,4 +1,4 @@
-Must springtime fade?    
-thoughts come - and there is loneliness;    
-How soon it must die.    
+Dawn-shining mountains    
+let us arrange these flowers    
+Contemptuous of frost    
 
