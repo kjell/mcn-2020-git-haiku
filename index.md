@@ -1,4 +1,4 @@
-The first day of the year:    
-tolling twilight bell; Temple    
-This autumn evening.    
+In the cicada's cry    
+visit the ancestral grave    
+Contemptuous of frost    
 
