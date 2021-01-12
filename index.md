@@ -1,4 +1,4 @@
-An old pond    
-it needs but shiny wings and look    
-Our hungry donkey    
+Swallow in the dusk    
+above white    
+are darkened . . .    
 
