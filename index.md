@@ -1,4 +1,4 @@
-Ballet in the air    
-these brilliant-hued hibiscus    
-Ueno? Asakura?    
+Now that eyes of hawks    
+here at your flowering grave    
+It’s the Doll’s Festival.    
 
