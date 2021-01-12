@@ -1,4 +1,4 @@
-Mountain-rose petals    
-that black crow I hate so much    
+Ballet in the air    
+captains swore grand conquest    
 Mountain-top jewels    
 
