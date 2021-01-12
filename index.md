@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-let us arrange these flowers    
-Contemptuous of frost    
+Oh, tranquility!    
+Line that won't be deleted    
+It’s the Doll’s Festival.    
 
