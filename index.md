@@ -1,4 +1,4 @@
-Spring is passing.    
-Here along this way but I,    
-the autumn dusk is here.    
+No oil to read by    
+thoughts come - and there is loneliness;    
+Over the orchid    
 
