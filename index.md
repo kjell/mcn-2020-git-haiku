@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-thoughts come - and there is loneliness;    
-A cicada’s voice.    
+No oil to read by    
+sky-reflecting violets    
+They meet, they mate    
 
