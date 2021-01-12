@@ -1,4 +1,4 @@
-In the cicada's cry    
-visit the ancestral grave    
-Contemptuous of frost    
+Why so scrawny, cat?    
+chirping, keeps the autumn gay    
+Bearded, with bent canes    
 
