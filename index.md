@@ -1,4 +1,4 @@
-Swallow in the dusk    
-above white    
-are darkened . . .    
+White cloud of mist    
+from cold streamlets for the sea    
+From the kiri tree.    
 
