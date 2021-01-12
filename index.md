@@ -1,4 +1,4 @@
-White cloud of mist    
-from cold streamlets for the sea    
-From the kiri tree.    
+The first day of the year:    
+tolling twilight bell; Temple    
+This autumn evening.    
 
