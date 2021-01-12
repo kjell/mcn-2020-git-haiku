@@ -1,4 +1,4 @@
-Why so scrawny, cat?    
-chirping, keeps the autumn gay    
-Bearded, with bent canes    
+Under cherry-trees    
+I am off to bed - but ah!    
+cherry-blossoms . . .    
 
