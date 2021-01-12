@@ -1,4 +1,4 @@
-Glorious the moon    
-it needs but shiny wings and look    
-And evening bell    
+For a lovely bowl    
+therefore our thanks dark clouds    
+Two white butterflies?    
 
