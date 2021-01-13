@@ -1,4 +1,4 @@
-White cloud of mist    
-let us to the road again    
-But he's beautiful!    
+None is travelling    
+who spends his little breakfast    
+And evening bell    
 
