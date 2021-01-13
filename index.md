@@ -1,4 +1,4 @@
-Chirping of the quails    
-Is also changed to another    
-With tears.    
+Dawn-shining mountains    
+just enough to bend the leaves    
+A perfect evening!    
 
