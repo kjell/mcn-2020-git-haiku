@@ -1,4 +1,4 @@
-Under cherry-trees    
-Heron's cry    
-On the temple porch    
+Chirping of the quails    
+Is also changed to another    
+With tears.    
 
