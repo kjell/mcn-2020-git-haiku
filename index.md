@@ -1,4 +1,4 @@
-Lightning -    
-loneliness? Just one leaf    
-Our hungry donkey    
+Chirping of the quails    
+Twilight whippoorwill, whistle on, sweet deepener    
+Come to rest our necks    
 
