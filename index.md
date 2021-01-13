@@ -1,4 +1,4 @@
-Ballet in the air    
-from cold streamlets for the sea    
-Bearded, with bent canes    
+None is travelling    
+and bring to men a chance to rest    
+Seasoned with petals    
 
