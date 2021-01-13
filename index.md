@@ -1,4 +1,4 @@
-When you say something,    
-the scent of flowers floating    
-Mogami River.    
+Poverty's child -    
+stretching over Sado Island    
+Our hungry donkey    
 
