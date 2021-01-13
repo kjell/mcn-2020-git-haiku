@@ -1,4 +1,4 @@
-For a lovely bowl    
-scatters in the night; Now see    
+White cloud of mist    
+let us to the road again    
 But he's beautiful!    
 
