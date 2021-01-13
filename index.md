@@ -1,4 +1,4 @@
-None is travelling    
-who spends his little breakfast    
-And evening bell    
+The river gathering may rains    
+he starts to grind the rice,    
+A butterfly floats and balances    
 
