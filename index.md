@@ -1,4 +1,4 @@
-For a lovely bowl    
-the scent of flowers floating    
-Moon-lighted mountains!    
+The sea darkening    
+I am off to bed - but ah!    
+and gazes at the moon.    
 
