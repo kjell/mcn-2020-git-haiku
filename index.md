@@ -1,4 +1,4 @@
-The sea darkening    
-I am off to bed - but ah!    
-and gazes at the moon.    
+A owner of the old thatched hut    
+There's no sign that can foretell    
+Goes plop! Watersplash!    
 
