@@ -1,4 +1,4 @@
-Swallow in the dusk    
-The birds cry, and the fishes’ eyes are     
-Over the orchid    
+White cloud of mist    
+he starts to grind the rice,    
+Two white butterflies?    
 
