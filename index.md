@@ -1,4 +1,4 @@
-Chirping of the quails    
-Twilight whippoorwill, whistle on, sweet deepener    
-Come to rest our necks    
+First white snow of fall    
+in dusky night    
+Stabs the darkness    
 
