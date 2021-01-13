@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-Here along this way but I,    
-Tall grass their monument    
+Ballet in the air    
+from cold streamlets for the sea    
+Bearded, with bent canes    
 
