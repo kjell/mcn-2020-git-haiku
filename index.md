@@ -1,4 +1,4 @@
-Must springtime fade?    
-sky-reflecting violets    
-Tall grass their monument    
+The sea darkening    
+here at your flowering grave    
+Mogami River.    
 
