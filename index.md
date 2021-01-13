@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-stretching over Sado Island    
-Bearded, with bent canes    
+Why so scrawny, cat?    
+perfumes her wings by floating    
+Cold pale eyes pour tears    
 
