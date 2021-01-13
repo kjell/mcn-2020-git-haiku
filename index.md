@@ -1,4 +1,4 @@
-Poverty's child -    
-stretching over Sado Island    
-Our hungry donkey    
+The sea darkening    
+he starts to grind the rice,    
+Cold pale eyes pour tears    
 
