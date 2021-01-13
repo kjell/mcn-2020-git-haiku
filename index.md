@@ -1,4 +1,4 @@
-The sea darkening    
-he starts to grind the rice,    
-Cold pale eyes pour tears    
+Now that eyes of hawks    
+stretching over Sado Island    
+Bearded, with bent canes    
 
