@@ -1,4 +1,4 @@
-The sea darkening    
-here at your flowering grave    
+When you say something,    
+the scent of flowers floating    
 Mogami River.    
 
