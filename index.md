@@ -1,4 +1,4 @@
-First white snow of fall    
-mingling with bright small shells    
-Contemptuous of frost    
+When you say something,    
+quick unexpected frog    
+Bearded, with bent canes    
 
