@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-There's no sign that can foretell    
-Goes plop! Watersplash!    
+Clouds come from time to time -    
+Here along this way but I,    
+Tall grass their monument    
 
