@@ -1,4 +1,4 @@
-First white snow of fall    
-in dusky night    
-Stabs the darkness    
+For a lovely bowl    
+scatters in the night; Now see    
+But he's beautiful!    
 
