@@ -1,4 +1,4 @@
-Dawn-shining mountains    
-just enough to bend the leaves    
-A perfect evening!    
+Swallow in the dusk    
+The birds cry, and the fishes’ eyes are     
+Over the orchid    
 
