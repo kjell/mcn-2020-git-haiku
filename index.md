@@ -1,4 +1,4 @@
-When you say something,    
-quick unexpected frog    
-Bearded, with bent canes    
+Lightning -    
+loneliness? Just one leaf    
+Our hungry donkey    
 
