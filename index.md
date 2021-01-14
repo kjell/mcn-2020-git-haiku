@@ -1,4 +1,4 @@
-The rains of summer join together.    
-visit the ancestral grave    
-How soon it must die.    
+Under cherry-trees    
+he starts to grind the rice,    
+Morning-glory gazing    
 
