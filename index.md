@@ -1,4 +1,4 @@
-Lightning -    
-poor monkey, you too could use    
-from looking at the moon.    
+Old dark sleepy pool    
+starving for fat fish or mice    
+Bearded, with bent canes    
 
