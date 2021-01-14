@@ -1,4 +1,4 @@
-Temple bells die out.    
-spare my little buzzing friends    
-Morning-glory gazing    
+Clouds come from time to time -    
+There's no sign that can foretell    
+A water-jewel    
 
