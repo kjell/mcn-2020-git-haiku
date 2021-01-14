@@ -1,4 +1,4 @@
-Under cherry-trees    
-he starts to grind the rice,    
-Morning-glory gazing    
+Now that eyes of hawks    
+Penetrating the very rock,    
+Of faded daffodils    
 
