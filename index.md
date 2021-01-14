@@ -1,4 +1,4 @@
-Ah me! I am one    
-There's no sign that can foretell    
-Two white butterflies?    
+In the cicada's cry    
+fell in silent dawn, spilling    
+Over the orchid    
 
