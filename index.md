@@ -1,4 +1,4 @@
-In the cicada's cry    
-All that remains    
-How soon it must die.    
+Poverty's child -    
+in dusky night    
+Contemptuous of frost    
 
