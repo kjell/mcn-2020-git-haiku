@@ -1,4 +1,4 @@
 Too curious flower    
-these heavy snow-flakes settling    
-Goes plop! Watersplash!    
+A frog jumps in -    
+From the kiri tree.    
 
