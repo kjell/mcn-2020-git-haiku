@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-the scent of flowers floating    
-On the temple porch    
+Lightning -    
+poor monkey, you too could use    
+from looking at the moon.    
 
