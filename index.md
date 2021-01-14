@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-There's no sign that can foretell    
-A water-jewel    
+Won't you come and see    
+above white    
+Splash!    
 
