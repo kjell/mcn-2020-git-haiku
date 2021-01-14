@@ -1,4 +1,4 @@
-Won't you come and see    
+The rains of summer join together.    
 above white    
-Splash!    
+from the kiri tree.    
 
