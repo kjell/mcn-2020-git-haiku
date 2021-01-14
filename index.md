@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-Penetrating the very rock,    
-Of faded daffodils    
+This snowy morning    
+and bring to men a chance to rest    
+A lovely sunset    
 
