@@ -1,4 +1,4 @@
-Ah me! I am one    
-soup, the salad, fish and all    
-Our hungry donkey    
+Temple bells die out.    
+spare my little buzzing friends    
+Morning-glory gazing    
 
