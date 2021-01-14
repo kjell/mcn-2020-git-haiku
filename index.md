@@ -1,4 +1,4 @@
-This snowy morning    
-and bring to men a chance to rest    
-A lovely sunset    
+Too curious flower    
+these heavy snow-flakes settling    
+Goes plop! Watersplash!    
 
