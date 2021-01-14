@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-starving for fat fish or mice    
-Bearded, with bent canes    
+Ah me! I am one    
+sky-reflecting violets    
+Like our tendrilled life    
 
