@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-All that remains    
-Since there is no rice    
+Dry cheerful cricket    
+the scent of flowers floating    
+On the temple porch    
 
