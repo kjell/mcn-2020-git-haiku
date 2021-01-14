@@ -1,4 +1,4 @@
-None is travelling    
-therefore our thanks dark clouds    
-from looking at the moon.    
+Ah me! I am one    
+There's no sign that can foretell    
+Two white butterflies?    
 
