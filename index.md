@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-April's air stirs in willow-leaves    
-Of dark loneliness    
+Poverty's child -    
+A frog jumps in -    
+Lilies on the rocks    
 
