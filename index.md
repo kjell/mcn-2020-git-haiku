@@ -1,4 +1,4 @@
-First white snow of fall    
-then cry all birds and fishes    
-are darkened . . .    
+Bright red pepper-pod    
+visit the ancestral grave    
+With tears.    
 
