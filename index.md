@@ -1,4 +1,4 @@
-Poverty's child -    
-A frog jumps in -    
-Lilies on the rocks    
+This is the new line    
+loneliness? Just one leaf    
+Splash!    
 
