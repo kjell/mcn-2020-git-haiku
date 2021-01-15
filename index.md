@@ -1,4 +1,4 @@
-No oil to read by    
-the scent of flowers floating    
-Like our tendrilled life    
+Lady butterfly    
+twin butterflies until, twice white    
+But he's beautiful!    
 
