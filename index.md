@@ -1,4 +1,4 @@
-Dry cheerful cricket    
-as I take my darkening path    
-Stabs the darkness    
+White cloud of mist    
+Is also changed to another    
+Ueno? Asakura?    
 
