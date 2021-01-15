@@ -1,4 +1,4 @@
-First white snow of fall    
-is quieted with creepers    
-Bearded, with bent canes    
+In the sea-surf edge    
+falling, falling, falling now    
+Come to rest our necks    
 
