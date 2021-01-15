@@ -1,4 +1,4 @@
-This is the new line    
-loneliness? Just one leaf    
-Splash!    
+Dry cheerful cricket    
+as I take my darkening path    
+Stabs the darkness    
 
