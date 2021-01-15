@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-The birds cry, and the fishes’ eyes are     
-They meet, they mate    
+First white snow of fall    
+is quieted with creepers    
+Bearded, with bent canes    
 
