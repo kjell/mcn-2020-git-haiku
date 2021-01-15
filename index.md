@@ -1,4 +1,4 @@
-Ah me! I am one    
-sky-reflecting violets    
-Like our tendrilled life    
+The first day of the year:    
+fell in silent dawn, spilling    
+A butterfly floats and balances    
 
