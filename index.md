@@ -1,4 +1,4 @@
-Swallow in the dusk    
-A frog jumps in -    
-from looking at the moon.    
+Mountain-rose petals    
+spare my little buzzing friends    
+Since there is no rice    
 
