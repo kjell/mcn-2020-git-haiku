@@ -1,4 +1,4 @@
-White cloud of mist    
-Is also changed to another    
-Ueno? Asakura?    
+Black cloudbank broken    
+Penetrating the very rock,    
+Our hungry donkey    
 
