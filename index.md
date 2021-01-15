@@ -1,4 +1,4 @@
-Mountain-rose petals    
-spare my little buzzing friends    
-Since there is no rice    
+Poverty's child -    
+thoughts come - and there is loneliness;    
+Bush-clover petals    
 
