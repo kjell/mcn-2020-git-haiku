@@ -1,4 +1,4 @@
-Poverty's child -    
-he starts to grind the rice,    
-Muffled by hot rocks    
+Silent the old town    
+Is also changed to another    
+Bearded, with bent canes    
 
