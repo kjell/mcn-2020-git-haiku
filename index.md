@@ -1,4 +1,4 @@
 Poverty's child -    
-thoughts come - and there is loneliness;    
-Bush-clover petals    
+he starts to grind the rice,    
+Muffled by hot rocks    
 
