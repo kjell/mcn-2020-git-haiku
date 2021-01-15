@@ -1,4 +1,4 @@
-Ballet in the air    
-let us arrange these flowers    
-Basho lines the moon    
+Lightning -    
+that black crow I hate so much    
+Splash!    
 
