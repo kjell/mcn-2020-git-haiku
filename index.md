@@ -1,4 +1,4 @@
-Lightning -    
-that black crow I hate so much    
-Splash!    
+Swallow in the dusk    
+A frog jumps in -    
+from looking at the moon.    
 
