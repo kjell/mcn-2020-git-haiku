@@ -1,4 +1,4 @@
-Silent the old town    
-Is also changed to another    
-Bearded, with bent canes    
+This is the new line    
+How swift it is    
+from looking at the moon.    
 
