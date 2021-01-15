@@ -1,4 +1,4 @@
-Black cloudbank broken    
-Penetrating the very rock,    
-Our hungry donkey    
+First white snow of fall    
+then cry all birds and fishes    
+are darkened . . .    
 
