@@ -1,4 +1,4 @@
-The first day of the year:    
-fell in silent dawn, spilling    
-A butterfly floats and balances    
+No oil to read by    
+the scent of flowers floating    
+Like our tendrilled life    
 
