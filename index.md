@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-visit the ancestral grave    
-With tears.    
+Ballet in the air    
+let us arrange these flowers    
+Basho lines the moon    
 
