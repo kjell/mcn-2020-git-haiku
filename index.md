@@ -1,4 +1,4 @@
-Clouds come from time to time -    
-then cry all birds and fishes    
-Muffled by hot rocks    
+The summer grasses.    
+in your brief sweet waters    
+The autumn dusk is here.    
 
