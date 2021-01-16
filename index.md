@@ -1,4 +1,4 @@
-The river gathering may rains    
-The fragrant blossoms remain.    
-from looking at the moon.    
+Glorious the moon    
+is quieted with creepers    
+On the temple porch    
 
