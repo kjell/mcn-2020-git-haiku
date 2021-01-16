@@ -1,4 +1,4 @@
-Now that eyes of hawks    
+Cloud of cherry-bloom    
 There's no sign that can foretell    
-The autumn dusk is here.    
+Since there is no rice    
 
