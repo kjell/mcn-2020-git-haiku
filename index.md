@@ -1,4 +1,4 @@
-Bright red pepper-pod    
-Is also changed to another    
-How soon it must die.    
+For a lovely bowl    
+let us to the road again    
+Of faded daffodils    
 
