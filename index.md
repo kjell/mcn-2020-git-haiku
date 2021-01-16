@@ -1,4 +1,4 @@
-The sea darkening    
-he starts to grind the rice,    
-Stabs the darkness    
+Such utter silence!    
+All that remains    
+A lovely sunset    
 
