@@ -1,4 +1,4 @@
-Poverty's child -    
-A frog jumps in -    
-How soon it must die.    
+Old dark sleepy pool    
+who spends his little breakfast    
+With tears.    
 
