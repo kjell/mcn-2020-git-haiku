@@ -1,4 +1,4 @@
-This is the new line    
-How swift it is    
+The river gathering may rains    
+The fragrant blossoms remain.    
 from looking at the moon.    
 
