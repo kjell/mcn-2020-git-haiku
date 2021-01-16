@@ -1,4 +1,4 @@
-Now that eyes of hawks    
-then cry all birds and fishes    
-the autumn dusk is here.    
+A owner of the old thatched hut    
+Here along this way but I,    
+Mogami River.    
 
