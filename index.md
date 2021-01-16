@@ -1,4 +1,4 @@
-For a lovely bowl    
-All that remains    
-Mogami River.    
+When you say something,    
+The birds cry, and the fishes’ eyes are     
+Cherry-blossoms    
 
