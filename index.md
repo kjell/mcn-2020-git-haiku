@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-above white    
-Of warriors’ dreams.    
+Now that eyes of hawks    
+There's no sign that can foretell    
+The autumn dusk is here.    
 
