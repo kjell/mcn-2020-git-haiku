@@ -1,4 +1,4 @@
-Glorious the moon    
-is quieted with creepers    
-On the temple porch    
+Poverty's child -    
+A frog jumps in -    
+How soon it must die.    
 
