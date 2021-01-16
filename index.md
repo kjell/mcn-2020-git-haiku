@@ -1,4 +1,4 @@
-Poverty's child -    
-spare my little buzzing friends    
-It’s the Doll’s Festival.    
+Lightning -    
+Is also changed to another    
+Mogami River.    
 
