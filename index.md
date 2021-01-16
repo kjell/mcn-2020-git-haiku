@@ -1,4 +1,4 @@
-When you say something,    
-The birds cry, and the fishes’ eyes are     
-Cherry-blossoms    
+This snowy morning    
+The fragrant blossoms remain.    
+A cicada’s voice.    
 
