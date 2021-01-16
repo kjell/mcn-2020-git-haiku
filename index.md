@@ -1,4 +1,4 @@
-Lightning -    
-Is also changed to another    
-Mogami River.    
+Old dark sleepy pool    
+above white    
+Of warriors’ dreams.    
 
