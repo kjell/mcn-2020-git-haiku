@@ -1,4 +1,4 @@
-Now in sad autumn    
-dead leaves alone foregather    
-Companion butterfly!    
+This snowy morning    
+The fragrant blossoms remain.    
+Stabs the darkness    
 
