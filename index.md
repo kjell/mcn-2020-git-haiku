@@ -1,4 +1,4 @@
-A owner of the old thatched hut    
-Here along this way but I,    
-Mogami River.    
+Dry cheerful cricket    
+these heavy snow-flakes settling    
+This autumn evening.    
 
