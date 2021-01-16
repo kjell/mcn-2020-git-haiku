@@ -1,4 +1,4 @@
-For a lovely bowl    
-let us to the road again    
-Of faded daffodils    
+Now that eyes of hawks    
+then cry all birds and fishes    
+the autumn dusk is here.    
 
