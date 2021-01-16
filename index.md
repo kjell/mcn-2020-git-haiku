@@ -1,4 +1,4 @@
-The first day of the year:    
-spare my little buzzing friends    
-A butterfly floats and balances    
+Carven gods long gone    
+Penetrating the very rock,    
+Mountain-top jewels    
 
