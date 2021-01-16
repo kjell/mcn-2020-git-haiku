@@ -1,4 +1,4 @@
-The first day of the year:    
-Is also changed to another    
-Of warriors’ dreams.    
+The sea darkening    
+he starts to grind the rice,    
+Stabs the darkness    
 
