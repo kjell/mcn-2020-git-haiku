@@ -1,4 +1,4 @@
-Such utter silence!    
-All that remains    
-A lovely sunset    
+Lady butterfly    
+quick unexpected frog    
+Ueno? Asakura?    
 
