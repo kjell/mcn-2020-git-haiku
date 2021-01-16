@@ -1,4 +1,4 @@
-This snowy morning    
-The fragrant blossoms remain.    
-A cicada’s voice.    
+Wake! The sky is light!    
+A frog jumps in -    
+On the temple porch    
 
