@@ -1,4 +1,4 @@
-Lady butterfly    
-quick unexpected frog    
-Ueno? Asakura?    
+Poverty's child -    
+spare my little buzzing friends    
+It’s the Doll’s Festival.    
 
