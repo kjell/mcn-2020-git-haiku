@@ -1,4 +1,4 @@
-Carven gods long gone    
-Penetrating the very rock,    
-Mountain-top jewels    
+Now in sad autumn    
+dead leaves alone foregather    
+Companion butterfly!    
 
