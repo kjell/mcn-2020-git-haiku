@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-who spends his little breakfast    
-With tears.    
+Bright red pepper-pod    
+Is also changed to another    
+How soon it must die.    
 
