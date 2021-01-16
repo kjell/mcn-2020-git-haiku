@@ -1,4 +1,4 @@
-Old dark sleepy pool    
-sky-reflecting violets    
-are darkened . . .    
+For a lovely bowl    
+All that remains    
+Mogami River.    
 
