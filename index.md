@@ -1,4 +1,4 @@
-This snowy morning    
-The fragrant blossoms remain.    
-Stabs the darkness    
+Poverty's child -    
+There's no sign that can foretell    
+Mogami River.    
 
