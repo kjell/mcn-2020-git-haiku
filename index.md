@@ -1,4 +1,4 @@
 Why so scrawny, cat?    
-visit the ancestral grave    
-Goes plop! Watersplash!    
+A frog jumps in -    
+Of warriors’ dreams.    
 
