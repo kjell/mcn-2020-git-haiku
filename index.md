@@ -1,4 +1,4 @@
-Poverty's child -    
-There's no sign that can foretell    
-Mogami River.    
+Why so scrawny, cat?    
+visit the ancestral grave    
+Goes plop! Watersplash!    
 
